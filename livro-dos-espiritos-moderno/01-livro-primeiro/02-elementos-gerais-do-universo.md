@@ -2,28 +2,30 @@
 title: 'Capítulo 2 - Elementos gerais do Universo'
 ---
 
-##### Conhecimento do princípio das coisas
-###### 17 — É dado ao ser humano conhecer o princípio das coisas?
+# Capítulo 2 - Elementos gerais do Universo
+
+### Conhecimento do princípio das coisas
+#### 17 — É dado ao ser humano conhecer o princípio das coisas?
 
 *— Não. Deus não permite que tudo seja revelado ao ser humano neste mundo.*
 
-###### 18 — O ser humano um dia penetrará o mistério das coisas que lhe estão ocultas?
+#### 18 — O ser humano um dia penetrará o mistério das coisas que lhe estão ocultas?
 
 *— O véu se levanta diante de seus olhos à medida que ele se aprimora; mas, para compreender certas coisas, ainda lhe faltam faculdades que não possui.*
 
-###### 19 — O ser humano não pode, por meio das investigações científicas, penetrar alguns dos segredos da natureza?
+#### 19 — O ser humano não pode, por meio das investigações científicas, penetrar alguns dos segredos da natureza?
 
 *— A ciência lhe foi dada para seu progresso em todos os aspectos; no entanto, ele não pode ultrapassar os limites que Deus estabeleceu.*
 
 Quanto mais o ser humano consegue penetrar nesses mistérios, maior deve ser sua admiração pelo poder e pela sabedoria do Criador. No entanto, seja por orgulho, seja por fragilidade, sua própria inteligência muitas vezes o engana. Ele constrói sistemas sobre sistemas, e cada dia lhe mostra quantos erros tomou por verdades e quantas verdades rejeitou como erros. São decepções sucessivas para o seu orgulho.
 
-###### 20 — É dado ao ser humano receber, sem recorrer às investigações científicas, comunicações de ordem mais elevada sobre aquilo que escapa aos sentidos?
+#### 20 — É dado ao ser humano receber, sem recorrer às investigações científicas, comunicações de ordem mais elevada sobre aquilo que escapa aos sentidos?
 
 *— Sim. Se considerar útil, Deus pode revelar o que a ciência não é capaz de ensinar.*
 
 Por meio dessas comunicações, o ser humano adquire, dentro de certos limites, conhecimento sobre seu passado e seu futuro.
 
-##### Espírito e matéria
+### Espírito e matéria
 ###### 21 — A matéria existe desde toda a eternidade, como Deus, ou foi criada por ele em determinado momento?
 
 *— Somente Deus o sabe. Há, porém, algo que a razão deve indicar: Deus, modelo de amor e caridade, nunca esteve inativo. Por mais distante que se imagine o início de sua ação, é possível concebê-lo ocioso por um único instante?*

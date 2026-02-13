@@ -30,16 +30,16 @@ title: 'Capítulo 6 - Vida espírita'
 
 Quanto às qualidades íntimas, os Espíritos pertencem a diferentes ordens ou graus, pelos quais passam sucessivamente à medida que se purificam. Quanto ao estado em que se encontram, podem ser:
 
----
+<hr>
 **- Encarnados:** Quando ligados a um corpo material;
 
----
+<hr>
 **- Errantes:** Quando estão sem corpo e aguardam nova encarnação para progredir;
 
----
+<hr>
 **- Espíritos puros:** Quando atingiram a perfeição e não necessitam mais encarnar.  
 
----
+<hr>
 Entre os Espíritos não encarnados, há os que desempenham missões e se dedicam a atividades úteis, gozando de relativa felicidade. Outros permanecem em incerteza e instabilidade; são estes que constituem, propriamente, os Espíritos errantes, no sentido mais restrito do termo, frequentemente chamados de “almas a penar”. Os primeiros nem sempre se consideram errantes, pois distinguem sua condição da dos segundos.
 
 ###### 227 — De que forma os Espíritos errantes se instruem? Certamente não como nós.
