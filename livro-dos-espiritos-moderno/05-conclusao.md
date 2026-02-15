@@ -1,8 +1,10 @@
 ---
-title: 'Conclusão pica'
+title: 'Conclusão'
 ---
 
-##### I
+# Conclusão
+
+### I
 
 Quem conhece o magnetismo terrestre apenas pelo brinquedo dos patinhos imantados, que se movem numa bacia sob a ação de um ímã, dificilmente imagina que ali esteja um dos princípios que regem o movimento dos mundos. O mesmo acontece com quem vê o Espiritismo apenas como o curioso fenômeno das mesas girantes, reduzindo-o a um passatempo sem importância, incapaz de perceber que esse fato simples — conhecido desde a Antiguidade e até por povos considerados primitivos — se conecta às questões mais profundas da moral e do futuro social.
 
@@ -10,7 +12,7 @@ Para o observador apressado, que relação poderia haver entre uma mesa que se m
 
 Por isso, apelamos aos críticos de boa-fé: estudaram realmente aquilo que criticam? A crítica só tem valor quando parte do conhecimento. Zombar do que não se conhece não é criticar — é superficialidade. Se essa filosofia tivesse sido apresentada como obra de um pensador humano, talvez tivesse recebido exame respeitoso. Mas como se afirma que vem dos Espíritos, é descartada de imediato. Julga-se pelo rótulo, como o macaco da fábula julgava a noz pela casca. Abstraí a origem, supondo que este livro fosse obra humana, e perguntai-vos, com honestidade: há nele algo que mereça escárnio?
 
-##### II
+### II
 
 O Espiritismo é o mais forte antagonista do materialismo. Não causa surpresa, portanto, que seja combatido pelos materialistas — embora muitos deles evitem assumir esse nome, preferindo esconder-se sob o discurso da razão e da ciência. Curiosamente, alguns chegam a invocar a religião, que compreendem ainda menos que o próprio Espiritismo.
 
@@ -18,7 +20,7 @@ O ataque costuma mirar o maravilhoso e o sobrenatural. Condenando-os sem distin�
 
 Nada no Espiritismo escapa às leis da natureza. Ele revela uma força natural até então ignorada, mas perfeitamente integrada à ordem universal. Nesse sentido, apoia-se menos no maravilhoso do que a própria religião tradicional. Quem o combate por esse ângulo demonstra não conhecê-lo. Mesmo grandes cientistas, se ignoram que o domínio da natureza é infinito, são apenas cientistas pela metade.
 
-##### III
+### III
 
 Dizeis querer curar o século de uma “mania”. Preferiríeis, então, que ele fosse dominado pela incredulidade? O enfraquecimento dos laços familiares e grande parte das desordens sociais não nascem justamente da ausência de fé no futuro?
 
@@ -26,13 +28,13 @@ Ao provar a existência e a imortalidade da alma, o Espiritismo reacende a esper
 
 Sem a crença no futuro, conceitos como dever, consciência e fraternidade perdem o sentido. Se tudo acaba com a morte, por que renunciar ao prazer imediato? Daí nascem a ambição, a inveja e o conflito. A lei, sozinha, não basta. Sem base moral, a sociedade se desagrega.
 
-##### IV
+### IV
 
 O progresso humano se apoia na lei de justiça, amor e caridade, que só faz sentido com a certeza do futuro. Retirai essa certeza e destruís o alicerce da civilização. A história mostra que, à medida que essa lei é melhor compreendida, as condições humanas melhoram.
 
 O progresso é inevitável. As gerações se renovam, velhos preconceitos caem, barreiras entre povos diminuem, as guerras se tornam menos frequentes, a ideia de humanidade se amplia. Ainda estamos longe da perfeição, mas o movimento é contínuo. O homem quer ser feliz — e é isso que impulsiona o progresso. Quando perceber que o progresso material não basta, buscará o progresso moral. Nesse caminho, o Espiritismo surge como uma poderosa alavanca.
 
-##### V
+### V
 
 Aqueles que dizem que o Espiritismo ameaça invadir o mundo confessam, sem perceber, a sua força. Nenhuma ideia sem lógica e sem verdade se tornaria universal. O ridículo lançado sobre ele apenas acelerou sua expansão.
 
@@ -40,25 +42,25 @@ O Espiritismo inaugura uma nova fase da humanidade: a do progresso moral. Sua r�
 
 Mesmo quem nunca presenciou fenômenos espíritas reconhece o valor de sua filosofia, que traz serenidade, segurança e sentido à vida. Quem deseja combatê-lo deve oferecer algo melhor: uma explicação mais lógica, uma esperança mais sólida, uma certeza mais profunda. Negar não basta. É preciso substituir.
 
-##### VI
+### VI
 
 A força do Espiritismo não está nas manifestações materiais, mas na sua filosofia. Ele fala à razão, não exige fé cega, não se apoia em mistérios indecifráveis. Quer ser compreendido por todos.
 
 Proibi-lo seria inútil. As manifestações não dependem de um único indivíduo. Estão em toda parte, em todos os lares, em todas as classes. Não se pode prender metade da humanidade nem queimar ideias que renascem a cada dia. O Espiritismo não é obra humana: é tão antigo quanto a própria humanidade. Sempre existiu, disperso nas religiões, especialmente no cristianismo. Hoje, apenas se organiza, se esclarece e se purifica do excesso de superstição.
 
-##### VII
+### VII
 
 O Espiritismo apresenta três aspectos: os fenômenos, a filosofia moral que deles decorre e a aplicação dessa moral. Daí três tipos de adeptos: os que observam os fatos, os que compreendem suas consequências e os que vivem segundo esses princípios. Em todos os casos, o resultado é uma transformação moral no sentido do bem.
 
 Os adversários também se dividem: os que negam sem conhecer; os que combatem por interesse pessoal; e os que se sentem incomodados pela exigência moral. Nenhum deles apresenta refutação sólida. Com o tempo, essas resistências tendem a desaparecer.
 
-##### VIII
+### VIII
 
 O Espiritismo não traz uma moral nova: reafirma a moral do Cristo, tornando-a clara, prática e racional. Se a moral evangélica é tão sublime, por que é tão pouco praticada? Os Espíritos não apenas a repetem — mostram suas consequências, explicam sua utilidade e revelam o futuro que dela decorre.
 
 Assim como o microscópio revelou o mundo invisível do infinitamente pequeno, o Espiritismo revela o mundo espiritual que nos envolve. Nada disso contradiz a razão ou a ciência. Ao contrário: amplia seus horizontes.
 
-##### IX
+### IX
 
 As divergências iniciais são naturais em qualquer ciência nascente. Com o tempo, os erros caem, a unidade se estabelece e o essencial permanece. Os Espíritos sempre ensinaram que a verdade se reconhece pela elevação moral, pela lógica e pela ausência de orgulho e maldade.
 

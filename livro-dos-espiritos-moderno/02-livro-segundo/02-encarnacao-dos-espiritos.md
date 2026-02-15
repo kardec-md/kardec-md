@@ -2,15 +2,17 @@
 title: 'Capítulo 2 - Encarnação dos Espíritos'
 ---
 
-##### Objetivo da encarnação
+# Capítulo 2 - Encarnação dos Espíritos
 
-###### 132 — Qual é o objetivo da encarnação dos Espíritos?
+## Objetivo da encarnação
+
+### 132 — Qual é o objetivo da encarnação dos Espíritos?
 
 *— Deus impõe a encarnação para conduzir os Espíritos à perfeição. Para alguns, ela é expiação; para outros, missão. Mas, para alcançar essa perfeição, é necessário passar pelas experiências e dificuldades da vida corporal: é nisso que consiste a expiação. A encarnação também tem outro objetivo: colocar o Espírito em condições de participar da obra da criação. Para isso, em cada mundo, o Espírito assume um instrumento compatível com a matéria desse mundo, a fim de cumprir, sob esse ponto de vista, as leis divinas. Assim, ao mesmo tempo em que contribui para a obra geral, ele próprio progride.*
 
 A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém, em sua sabedoria, quis que nessa mesma ação eles encontrassem um meio de evoluir e de se aproximar dele. Dessa forma, por uma admirável lei da Providência, tudo se encadeia, tudo é solidário na natureza.
 
-###### 133 — Os Espíritos que, desde o início, seguiram o caminho do bem também precisam encarnar?
+### 133 — Os Espíritos que, desde o início, seguiram o caminho do bem também precisam encarnar?
 
 *— Todos são criados simples e ignorantes e se instruem por meio das lutas e dificuldades da vida corporal. Deus, que é justo, não poderia tornar uns felizes sem esforço e trabalho, e portanto sem mérito.*
 
@@ -19,9 +21,9 @@ A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém
 *— Eles chegam mais rapidamente ao objetivo final. Além disso, os sofrimentos da vida são, muitas vezes, consequência das imperfeições do Espírito. Quanto menos imperfeições, menos tormentos. Quem não é invejoso, ciumento, avarento ou ambicioso não sofre as dores que nascem desses defeitos.*
 
 
-##### A alma
+## A alma
 
-###### 134 — O que é a alma?
+### 134 — O que é a alma?
 
 *— Um Espírito encarnado.*
 
@@ -33,7 +35,7 @@ A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém
 
 *— Sim. As almas são simplesmente Espíritos. Antes de se unir ao corpo, a alma é um dos seres inteligentes que habitam o mundo invisível e que, temporariamente, assumem um envoltório material para se purificar e se esclarecer.*
 
-###### 135 — Existe no ser humano algo além da alma e do corpo?
+### 135 — Existe no ser humano algo além da alma e do corpo?
 
 *— Existe o laço que liga a alma ao corpo.*
 
@@ -47,7 +49,7 @@ O ser humano é, portanto, constituído de três partes essenciais:
 2. a alma, Espírito encarnado que habita o corpo;  
 3. o princípio intermediário, ou perispírito, substância semimaterial que serve de primeiro envoltório ao Espírito e faz a ligação entre a alma e o corpo. Assim como, em um fruto, há o gérmen, o perisperma e a casca.
 
-###### 136 — A alma é independente do princípio vital?
+### 136 — A alma é independente do princípio vital?
 
 *— O corpo é apenas um envoltório, repetimos isso constantemente.*
 
@@ -59,23 +61,23 @@ O ser humano é, portanto, constituído de três partes essenciais:
 
 *— Uma simples massa de carne sem inteligência, tudo o que quiserem, exceto um ser humano.*
 
-###### 137 — Um Espírito pode encarnar ao mesmo tempo em dois corpos diferentes?
+### 137 — Um Espírito pode encarnar ao mesmo tempo em dois corpos diferentes?
 
 *— Não. O Espírito é indivisível e não pode animar simultaneamente dois seres distintos.*
 
 (Ver, em O Livro dos Médiuns, capítulo VII: Da bicorporeidade e da transfiguração.)
 
-###### 138 — O que pensar da opinião dos que consideram a alma como o princípio da vida material?
+### 138 — O que pensar da opinião dos que consideram a alma como o princípio da vida material?
 
 *— É apenas uma questão de palavras. Antes de tudo, é preciso que vocês se entendam sobre os termos.*
 
-###### 139 — Alguns Espíritos e, antes deles, alguns filósofos definiram a alma como “uma centelha anímica emanada do grande Todo”. Como explicar essa aparente contradição?
+### 139 — Alguns Espíritos e, antes deles, alguns filósofos definiram a alma como “uma centelha anímica emanada do grande Todo”. Como explicar essa aparente contradição?
 
 *— Não há contradição. Tudo depende do significado atribuído às palavras. Por que não possuem uma palavra específica para cada ideia?*
 
 A palavra alma é usada para expressar conceitos diferentes. Alguns chamam de alma o princípio da vida; nesse sentido, pode-se dizer, de forma figurada, que a alma é uma centelha vital emanada do grande Todo. Essa expressão indica a fonte universal do princípio vital, do qual cada ser absorve uma parte e que, após a morte, retorna à fonte de onde veio. Essa ideia não exclui a existência de um ser moral distinto, independente da matéria e que conserva sua individualidade. A esse ser também se dá o nome de alma; e, nesse sentido, pode-se dizer que a alma é um Espírito encarnado. Ao dar definições diferentes, os Espíritos falaram conforme o uso que faziam da palavra e conforme as ideias terrenas que ainda possuíam em maior ou menor grau. Isso decorre da limitação da linguagem humana, que não dispõe de uma palavra específica para cada ideia, o que gera muitos equívocos e discussões. Por isso, os Espíritos superiores recomendam que primeiro se esclareça o significado das palavras.
 
-###### 140 — O que pensar da teoria segundo a qual a alma seria dividida em tantas partes quantos são os músculos, presidindo cada função do corpo?
+### 140 — O que pensar da teoria segundo a qual a alma seria dividida em tantas partes quantos são os músculos, presidindo cada função do corpo?
 
 *— Isso também depende do sentido atribuído à palavra alma. Se por alma se entende o fluido vital, essa teoria tem fundamento; se se entende a alma como o Espírito encarnado, ela é incorreta. Já dissemos que o Espírito é indivisível. Ele transmite o movimento aos órgãos por meio do fluido intermediário, sem se dividir.*
 
@@ -85,27 +87,27 @@ A palavra alma é usada para expressar conceitos diferentes. Alguns chamam de al
 
 A alma atua por intermédio dos órgãos, e os órgãos são animados pelo fluido vital, que se distribui por eles, existindo em maior abundância nos que são centros de movimento. Essa explicação, porém, não se aplica quando se considera a alma como o Espírito que habita o corpo durante a vida e o deixa no momento da morte.
 
-###### 141 — Há algo de verdadeiro na ideia de que a alma é exterior ao corpo e o envolve?
+### 141 — Há algo de verdadeiro na ideia de que a alma é exterior ao corpo e o envolve?
 
 *— A alma não está encerrada no corpo como um pássaro numa gaiola. Ela irradia e se manifesta fora dele, assim como a luz atravessa um globo de vidro ou o som se propaga a partir de um centro. Nesse sentido, pode-se dizer que ela é exterior, sem que isso signifique que seja o envoltório do corpo. A alma possui dois envoltórios: um sutil e leve, o primeiro, chamado perispírito; e outro grosseiro, material e pesado, que é o corpo. A alma é o centro de todos esses envoltórios, como o gérmen dentro de um caroço.*
 
-###### 142 — O que pensar da teoria segundo a qual a alma de uma criança se completa aos poucos, ao longo das fases da vida?
+### 142 — O que pensar da teoria segundo a qual a alma de uma criança se completa aos poucos, ao longo das fases da vida?
 
 *— O Espírito é uno e está completo tanto na criança quanto no adulto. O que se desenvolve e se aperfeiçoa são os órgãos, ou instrumentos, por meio dos quais a alma se manifesta. Mais uma vez, confundem-se o efeito com a causa.*
 
-###### 143 — Por que todos os Espíritos não definem a alma da mesma forma?
+### 143 — Por que todos os Espíritos não definem a alma da mesma forma?
 
 *— Porque nem todos possuem o mesmo grau de esclarecimento sobre esses assuntos. Existem Espíritos de inteligência limitada, que não compreendem ideias abstratas, assim como há crianças entre vocês. Existem também Espíritos pseudossábios, que usam palavras complicadas para se impor, como acontece entre os seres humanos. Além disso, os próprios Espíritos esclarecidos podem se expressar de maneiras diferentes, embora o sentido essencial seja o mesmo, especialmente quando se trata de conceitos que a linguagem humana não consegue traduzir com precisão. Por isso, recorrem a imagens e comparações, que muitas vezes são tomadas ao pé da letra.*
 
-###### 144 — O que se deve entender por “alma do mundo”?
+### 144 — O que se deve entender por “alma do mundo”?
 
 *— O princípio universal da vida e da inteligência, do qual nascem as individualidades. Aqueles que usam essa expressão, porém, muitas vezes não se entendem entre si. O termo alma é tão amplo que cada um o interpreta conforme suas próprias ideias. Também já se atribuiu uma alma à Terra. Nesse caso, por alma da Terra deve-se entender o conjunto dos Espíritos abnegados que orientam suas ações para o bem, quando vocês os escutam, e que, de certo modo, são representantes de Deus em relação ao planeta.*
 
-###### 145 — Como explicar que tantos filósofos antigos e modernos tenham discutido por tanto tempo a psicologia sem chegar ao conhecimento da verdade?
+### 145 — Como explicar que tantos filósofos antigos e modernos tenham discutido por tanto tempo a psicologia sem chegar ao conhecimento da verdade?
 
 *— Esses homens foram precursores da eterna doutrina espírita. Prepararam o caminho. Eram humanos e, como tais, puderam se enganar, tomando suas próprias ideias como verdade absoluta. Ainda assim, até seus erros serviram para destacar a verdade, ao mostrar o que aceitar e o que rejeitar. Além disso, entre esses equívocos há grandes verdades que um estudo comparativo permite compreender.*
 
-###### 146 — A alma tem, no corpo, uma sede determinada e circunscrita?
+### 146 — A alma tem, no corpo, uma sede determinada e circunscrita?
 
 *— Não. Contudo, nos grandes pensadores, ela se manifesta mais particularmente na cabeça; e naqueles que sentem profundamente e cujas ações têm finalidade humanitária, manifesta-se mais no coração.*
 
@@ -114,13 +116,13 @@ A alma atua por intermédio dos órgãos, e os órgãos são animados pelo fluid
 *— Isso significa que o Espírito habita preferencialmente essa parte do organismo, por ser o ponto de convergência das sensações. Aqueles que a situam no que chamam de centro da vitalidade confundem-na com o fluido vital. Ainda assim, pode-se dizer que a sede da alma está especialmente nos órgãos que permitem as manifestações intelectuais e morais.*
 
 
-##### Materialismo
+## Materialismo
 
-###### 147 — Por que anatomistas, fisiologistas e, em geral, estudiosos das ciências naturais tendem com tanta frequência ao materialismo?
+### 147 — Por que anatomistas, fisiologistas e, em geral, estudiosos das ciências naturais tendem com tanta frequência ao materialismo?
 
 *— Porque o fisiologista tende a explicar tudo a partir do que vê. Soma-se a isso o orgulho humano, que leva muitos a acreditar que sabem tudo e a negar qualquer coisa que esteja além de sua compreensão. A própria ciência que cultivam os enche de presunção e os faz crer que a natureza nada lhes pode ocultar.*
 
-###### 148 — É lamentável que o materialismo seja consequência de estudos que deveriam revelar ao ser humano a superioridade da inteligência que governa o mundo? Deve-se concluir que esses estudos são perigosos?
+### 148 — É lamentável que o materialismo seja consequência de estudos que deveriam revelar ao ser humano a superioridade da inteligência que governa o mundo? Deve-se concluir que esses estudos são perigosos?
 
 *— Não é correto afirmar que o materialismo seja consequência direta desses estudos. O ser humano é que tira deles uma conclusão equivocada, pois lhe é dado abusar de tudo, até das melhores coisas. Além disso, o nada os assusta mais do que gostariam de admitir, e os que se dizem fortes, muitas vezes, são mais fanfarrões do que corajosos. Na maioria dos casos, são materialistas porque não sabem como preencher o vazio que se abre diante deles. Mostrem-lhes uma âncora de salvação, e eles se agarrarão a ela prontamente.*
 

@@ -1,8 +1,10 @@
 ---
-title: 'Capítulo 5 - Considerações sobre a pluralidade das existências'
+title: 'Capítulo 5 - Sobre a pluralidade das existências'
 ---
 
-###### 222
+# Capítulo 5 - Sobre a pluralidade das existências
+
+### 222
 
 Alguns dizem que a reencarnação não é uma ideia nova, mas apenas a retomada da doutrina de Pitágoras. Nunca afirmamos que o Espiritismo seja uma invenção moderna. Sendo uma lei da natureza, ele deve existir desde a origem dos tempos, e sempre buscamos demonstrar que seus vestígios estão presentes nas épocas mais remotas da humanidade. Pitágoras, como se sabe, não foi o criador da metempsicose; ele a recebeu dos filósofos indianos e egípcios, que a conheciam desde tempos imemoriais. A ideia da transmigração das almas era, portanto, uma crença amplamente difundida e aceita por homens de grande valor intelectual. Como essa ideia surgiu? Por revelação ou por intuição? Não sabemos. Seja como for, é certo que uma ideia não atravessa séculos nem se impõe a inteligências notáveis se não contiver algo de profundamente verdadeiro. Assim, a antiguidade dessa doutrina, longe de ser uma objeção, é um argumento a seu favor.  
 

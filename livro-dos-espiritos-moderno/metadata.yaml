@@ -1,5 +1,5 @@
 ---
-title: "Livro dos Espíritos Moderno"
+title: "Livro dos Espíritos"
 author: "Allan Kardec"
 date: 2026
 lang: pt-BR
@@ -11,8 +11,8 @@ mainfont: "Source Serif 4"
 geometry:
   - paperwidth=18cm
   - paperheight=25cm
-  - inner=2.4cm
-  - outer=2.4cm
+  - inner=2.0cm
+  - outer=2.0cm
   - top=2.6cm
   - bottom=3.6cm
   - footskip=1.2cm
