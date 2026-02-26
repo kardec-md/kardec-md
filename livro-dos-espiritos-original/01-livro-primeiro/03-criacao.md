@@ -2,87 +2,89 @@
 title: 'Capítulo 3 - Criação'
 ---
 
-##### Formação dos mundos
+# Capítulo 3 - Criação
+
+## Formação dos mundos
 
 O universo abrange a infinidade dos mundos que vemos e dos que não vemos, todos os seres animados e inanimados, todos os astros que se movem no espaço, assim como os fluidos que o enchem.
 
-###### 37 — O universo foi criado, ou existe de toda a eternidade, como Deus?
+### 37 — O universo foi criado, ou existe de toda a eternidade, como Deus?
 
 *— É fora de dúvida que ele não pode ter-se feito a si mesmo. E se existisse, como Deus, de toda a eternidade, não seria obra de Deus.*
 
 Diz-nos a razão não ser possível que o universo se tenha feito a si mesmo e que, não podendo também ser obra do acaso, há de ser obra de Deus.
 
-###### 38 — Como criou Deus o universo?
+### 38 — Como criou Deus o universo?
 
 *— Para me servir de uma expressão corrente, direi: pela sua Vontade. Nada caracteriza melhor essa vontade onipotente do que estas belas palavras da Gênese: Deus disse: ‘Faça-se a luz’, e a luz foi feita.*
 
-###### 39 — Poderemos conhecer o modo de formação dos mundos?
+### 39 — Poderemos conhecer o modo de formação dos mundos?
 
 *— Tudo o que a esse respeito se pode dizer e podeis compreender é que os mundos se formam pela condensação da matéria disseminada no espaço.*
 
-###### 40 — Serão os cometas, como agora se pensa, um começo de condensação da matéria, mundos em via de formação?
+### 40 — Serão os cometas, como agora se pensa, um começo de condensação da matéria, mundos em via de formação?
 
 *— Isso está certo; absurdo, porém, é acreditar-se na influência deles. Refiro-me à influência que vulgarmente lhes atribuem, porquanto todos os corpos celestes influem de algum modo em certos fenômenos físicos.*
 
-###### 41 — Pode um mundo completamente formado desaparecer e disseminar-se de novo no espaço a matéria que o compõe?
+### 41 — Pode um mundo completamente formado desaparecer e disseminar-se de novo no espaço a matéria que o compõe?
 
 *— Sim, Deus renova os mundos, como renova os seres vivos.*
 
-###### 42 — Poder-se-á conhecer o tempo que dura a formação dos mundos: da Terra, por exemplo?
+### 42 — Poder-se-á conhecer o tempo que dura a formação dos mundos: da Terra, por exemplo?
 
 *— Nada te posso dizer a respeito, porque só o Criador o sabe e bem louco será quem pretenda sabê-lo, ou conhecer que número de séculos dura essa formação.*
 
 
-##### Formação dos seres vivos
-###### 43 — Quando começou a Terra a ser povoada?
+## Formação dos seres vivos
+### 43 — Quando começou a Terra a ser povoada?
 
 *— No começo tudo era caos; os elementos estavam em confusão. Pouco a pouco cada coisa tomou o seu lugar. Apareceram então os seres vivos apropriados ao estado do globo.*
 
-###### 44 — Donde vieram para a Terra os seres vivos?
+### 44 — Donde vieram para a Terra os seres vivos?
 
 *— A Terra lhes continha os germens, que aguardavam momento favorável para se desenvolverem. Os princípios orgânicos se congregaram assim que cessou a atuação da força que os mantinha afastados, e formaram os germens de todos os seres vivos. Estes germens permaneceram em estado latente e de inércia, como a crisálida e as sementes das plantas, até o momento propício ao surto de cada espécie. Os seres de cada uma destas se reuniram, então, e se multiplicaram.*
 
-###### 45 — Onde estavam os elementos orgânicos, antes da formação da Terra?
+### 45 — Onde estavam os elementos orgânicos, antes da formação da Terra?
 
 *— Achavam-se, por assim dizer, em estado de fluido no espaço, no meio dos Espíritos, ou em outros planetas, à espera da criação da Terra para começarem existência nova em novo globo.*
 
 A química nos mostra as moléculas dos corpos inorgânicos unindo-se para formarem cristais de uma regularidade constante, conforme cada espécie, desde que se encontrem nas condições requeridas. A menor perturbação nestas condições basta para impedir a reunião dos elementos, ou, pelo menos, para obstar à disposição regular que constitui o cristal. Por que não se daria o mesmo com os elementos orgânicos? Durante anos se conservam germens de plantas e de animais, que não se desenvolvem senão a uma certa temperatura e em meio apropriado. Têm-se visto grãos de trigo germinarem depois de séculos. Há, pois, nessas sementes um princípio latente de vitalidade, que apenas espera uma circunstância favorável para se desenvolver. O que diariamente ocorre debaixo das nossas vistas, por que não pode ter ocorrido desde a origem do globo terráqueo? A formação dos seres vivos, saindo eles do caos pela força mesma da natureza, diminui de alguma coisa a grandeza de Deus? Longe disso: corresponde melhor à ideia que fazemos do seu poder a se exercer sobre a infinidade dos mundos por meio de leis eternas. Esta teoria não resolve, é verdade, a questão da origem dos elementos vitais; mas, Deus tem seus mistérios e pôs limites às nossas investigações.
 
-###### 46 — Ainda há seres que nasçam espontaneamente?
+### 46 — Ainda há seres que nasçam espontaneamente?
 
 *— Sim, mas o gérmen primitivo já existia em estado latente. Sois todos os dias testemunhas desse fenômeno. Os tecidos do corpo humano e do corpo dos animais não encerram os germens de uma multidão de vermes que só esperam, para desabrochar, a fermentação pútrida que lhes é necessária à existência? É um mundo minúsculo que dormita e se cria.*
 
-###### 47 — A espécie humana se encontrava entre os elementos orgânicos contidos no globo terrestre?
+### 47 — A espécie humana se encontrava entre os elementos orgânicos contidos no globo terrestre?
 
 *— Sim, e veio a seu tempo. Foi o que deu lugar a que se dissesse que o homem se formou do limo da terra.*
 
-###### 48 — Poderemos conhecer a época do aparecimento do homem e dos outros seres vivos na Terra?
+### 48 — Poderemos conhecer a época do aparecimento do homem e dos outros seres vivos na Terra?
 
 *— Não; todos os vossos cálculos são quiméricos.*
 
-###### 49 — Se o gérmen da espécie humana se encontrava entre os elementos orgânicos do globo, por que não se formam espontaneamente homens, como na origem dos tempos?
+### 49 — Se o gérmen da espécie humana se encontrava entre os elementos orgânicos do globo, por que não se formam espontaneamente homens, como na origem dos tempos?
 
 *— O princípio das coisas está nos segredos de Deus. Entretanto, pode dizer-se que os homens, uma vez espalhados pela Terra, absorveram em si mesmos os elementos necessários à sua própria formação, para os transmitir segundo as leis da reprodução. O mesmo se deu com as diferentes espécies de seres vivos.*
 
 
-##### Povoamento da Terra. Adão
-###### 50 — A espécie humana começou por um único homem?
+## Povoamento da Terra. Adão
+### 50 — A espécie humana começou por um único homem?
 
 *— Não; aquele a quem chamais Adão não foi o primeiro, nem o único a povoar a Terra.*
 
-###### 51 — Poderemos saber em que época viveu Adão?
+### 51 — Poderemos saber em que época viveu Adão?
 
 *— Mais ou menos na que lhe assinais: cerca de 4.000 anos antes do Cristo.*
 
 O homem cuja tradição se conservou sob o nome de Adão foi dos que sobreviveram, em certa região, a alguns dos grandes cataclismos que revolveram em diversas épocas a superfície do globo, e se constituiu tronco de uma das raças que atualmente o povoam. As leis da natureza se opõem a que os progressos da humanidade, comprovados muito tempo antes do Cristo, se tenham realizado em alguns séculos, como haveria sucedido se o homem não existisse na Terra senão a partir da época indicada para a existência de Adão. Muitos, com mais razão, consideram Adão um mito ou uma alegoria que personifica as primeiras idades do mundo.
 
 
-##### Diversidade das raças humanas
-###### 52 — Donde provêm as diferenças físicas e morais que distinguem as raças humanas na Terra?
+## Diversidade das raças humanas
+### 52 — Donde provêm as diferenças físicas e morais que distinguem as raças humanas na Terra?
 
 *— Do clima, da vida e dos costumes. Dá-se aí o que se dá com dois filhos de uma mesma mãe que, educados longe um do outro e de modos diferentes, em nada se assemelharão, quanto ao moral.*
 
-###### 53 — O homem surgiu em muitos pontos do globo?
+### 53 — O homem surgiu em muitos pontos do globo?
 
 *— Sim e em épocas várias, o que também constitui uma das causas da diversidade das raças. Depois, dispersando-se os homens por climas diversos e aliando-se os de uma aos de outras raças, novos tipos se formaram.*
 
@@ -90,34 +92,34 @@ O homem cuja tradição se conservou sob o nome de Adão foi dos que sobrevivera
 
 *— Certamente que não; todos são da mesma família. Porventura as múltiplas variedades de um mesmo fruto são motivo para que elas deixem de formar uma só espécie?*
 
-###### 54 — Pelo fato de não proceder de um só indivíduo a espécie humana, devem os homens deixar de considerar-se irmãos?
+### 54 — Pelo fato de não proceder de um só indivíduo a espécie humana, devem os homens deixar de considerar-se irmãos?
 
 *— Todos os homens são irmãos em Deus, porque são animados pelo espírito e tendem para o mesmo fim. Estais sempre inclinados a tomar as palavras na sua significação literal.*
 
 
-##### Pluralidade dos mundos
-###### 55 — São habitados todos os globos que se movem no espaço?
+## Pluralidade dos mundos
+### 55 — São habitados todos os globos que se movem no espaço?
 
 *— Sim e o homem terreno está longe de ser, como supõe, o primeiro em inteligência, em bondade e em perfeição. Entretanto, há homens que se têm por espíritos muito fortes e que imaginam pertencer a este pequenino globo o privilégio de conter seres racionais. Orgulho e vaidade! Julgam que só para eles criou Deus o universo.*
 
 Deus povoou de seres vivos os mundos, concorrendo todos esses seres para o objetivo final da Providência. Acreditar que só os haja no planeta que habitamos seria duvidar da sabedoria de Deus, que não fez coisa alguma inútil. Certo, a esses mundos há de ele ter dado uma destinação mais séria do que a de nos recrearem a vista. Aliás, nada há, nem na posição, nem no volume, nem na constituição física da Terra, que possa induzir à suposição de que apenas ela goze do privilégio de ser habitada, com exclusão de tantos milhares de mundos semelhantes.
 
-###### 56 — É a mesma a constituição física dos diferentes globos?
+### 56 — É a mesma a constituição física dos diferentes globos?
 
 *— Não; de modo algum se assemelham.*
 
-###### 57 — Não sendo uma só para todos a constituição física dos mundos, seguir-se-á tenham organizações diferentes os seres que os habitam?
+### 57 — Não sendo uma só para todos a constituição física dos mundos, seguir-se-á tenham organizações diferentes os seres que os habitam?
 
 *— Sem dúvida, do mesmo modo que no vosso os peixes são feitos para viver na água e os pássaros no ar.*
 
-###### 58 — Os mundos mais afastados do Sol estarão privados de luz e calor, por motivo de esse astro se lhes mostrar apenas com a aparência de uma estrela?
+### 58 — Os mundos mais afastados do Sol estarão privados de luz e calor, por motivo de esse astro se lhes mostrar apenas com a aparência de uma estrela?
 
 *— Pensais então que não há outras fontes de luz e calor além do Sol e em nenhuma conta tendes a eletricidade, que, em certos mundos, desempenha um papel que desconheceis e bem mais importante do que o que lhe cabe desempenhar na Terra? Ademais, não dissemos que todos os seres são feitos de igual matéria que vós outros e com órgãos de conformação idêntica à dos vossos.*
 
 As condições de existência dos seres que habitam os diferentes mundos hão de ser adequadas ao meio em que lhes cumpre viver. Se jamais houvéramos visto peixes, não compreenderíamos pudesse haver seres que vivessem dentro d’água. Assim acontece com relação aos outros mundos, que sem dúvida contêm elementos que desconhecemos. Não vemos na Terra as longas noites polares iluminadas pela eletricidade das auroras boreais? Que há de impossível em ser a eletricidade, nalguns mundos, mais abundante do que na Terra e desempenhar neles uma função de ordem geral, cujos efeitos não podemos compreender? Bem pode suceder, portanto, que esses mundos tragam em si mesmos as fontes de calor e de luz necessárias a seus habitantes.
 
 
-##### 59 — Considerações e concordâncias bíblicas concernentes à criação
+## 59 — Considerações e concordâncias bíblicas concernentes à criação
 
 Os povos têm formado ideias muito divergentes acerca da criação, de acordo com seu esclarecimento. Apoiada na ciência, a razão reconheceu a inverossimilhança de algumas dessas teorias. A que os Espíritos apresentam confirma a opinião de há muito partilhada pelos homens mais esclarecidos.
 

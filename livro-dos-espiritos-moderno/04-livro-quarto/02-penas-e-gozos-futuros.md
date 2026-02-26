@@ -336,15 +336,15 @@ SÃO LUÍS.
 
 SANTO AGOSTINHO.
 
-<br/>
+***
 
-*— Empenhai-vos em destruir a ideia da eternidade absoluta das penas — ideia que blasfema contra a justiça e a bondade de Deus e que tem sido uma das maiores fontes do materialismo, da incredulidade e da indiferença moral. A razão humana, ao se esclarecer, percebe essa injustiça e, rejeitando-a, muitas vezes rejeita também Deus.*
+*— Empenhai-vos em destruir a ideia da eternidade absoluta das penas — ideia que blasfema contra a justiça e a bondade de Deus e que tem sido uma das maiores fontes do materialismo, do ceticismo e da indiferença moral. A razão humana, ao se esclarecer, percebe essa injustiça e, rejeitando-a, muitas vezes rejeita também Deus.*
 
 *Pobres almas desgarradas, olhai o bom Pastor que vem ao vosso encontro, não para vos excluir para sempre, mas para vos reconduzir ao caminho. Filhos pródigos, abandonai o exílio voluntário: o Pai vos espera de braços abertos.*
 
 LAMENNAIS.
 
-<br/>
+***
 
 *— Guerras de palavras! Ainda não bastou o sangue derramado? Discutis sobre a eternidade das penas sem perceber que os antigos não entendiam eternidade como vós entendeis hoje. A eternidade dos castigos significa a permanência do mal enquanto o mal existir. Quando o arrependimento for geral, cessarão as penas.*
 
@@ -352,7 +352,7 @@ LAMENNAIS.
 
 PLATÃO.
 
-<br/>
+***
 
 *— O fim da humanidade é gravitar para a unidade divina. Para isso, são necessários justiça, amor e conhecimento. O castigo não é vingança: é consequência natural do desvio. Serve para despertar a alma, levá-la ao arrependimento e à reparação.*
 
@@ -360,7 +360,7 @@ PLATÃO.
 
 PAULO, APÓSTOLO.
 
-<br/>
+***
 
 O Espiritismo mostra que recompensas e penas só têm efeito quando são compreendidas pela razão. Castigos ilógicos não corrigem; afastam. Ao apresentar o futuro de forma racional, o Espiritismo devolve sentido à justiça divina.
 
@@ -374,6 +374,8 @@ Hoje, a teologia já reconhece que o “fogo” das penas é moral, não materia
 *— Sim. Essa doutrina decorre naturalmente de muitas passagens que, por muito tempo, não foram compreendidas. O Espiritismo não destrói a religião: ele a esclarece, retirando o véu da linguagem simbólica.*
 
 SÃO LUÍS.
+
+***
 
 A ciência demonstra a impossibilidade literal da ressurreição da carne. A matéria do corpo se transforma e se dispersa, integrando outros corpos. A reencarnação, porém, explica racionalmente o progresso da alma, sem contrariar a ciência nem a fé.
 

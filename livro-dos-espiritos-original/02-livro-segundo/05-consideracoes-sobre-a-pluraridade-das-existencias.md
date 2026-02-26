@@ -2,7 +2,9 @@
 title: 'Capítulo 5 - Considerações sobre a pluraridade das existências'
 ---
 
-###### 222. 
+# Capítulo 5 - Considerações sobre a pluraridade das existências
+
+### 222. 
 
 Não é novo, dizem alguns, o dogma da reencarnação; ressuscitaram-no da doutrina de Pitágoras. Nunca dissemos ser de invenção moderna a doutrina espírita. Constituindo uma lei da natureza, o Espiritismo há de ter existido desde a origem dos tempos, e sempre nos esforçamos por demonstrar que dele se descobrem sinais na antiguidade mais remota. Pitágoras, como se sabe, não foi o autor do sistema da metempsicose; ele o colheu dos filósofos indianos e dos egípcios, que o tinham desde tempos imemoriais. A ideia da transmigração das almas formava, pois, uma crença disseminada, aceita pelos homens mais eminentes. De que modo a adquiriram? Por uma revelação, ou por intuição? Ignoramo-lo. Seja, porém, como for, o que não padece dúvida é que uma ideia não atravessa séculos e séculos, nem consegue impor-se a inteligências de escol, se não contiver algo de sério. Assim, a ancianidade desta doutrina, em vez de ser uma objeção, seria prova a seu favor. Contudo, entre a metempsicose dos antigos e a moderna doutrina da reencarnação há, como também se sabe, profunda diferença, assinalada pelo fato de os Espíritos rejeitarem, de maneira absoluta, a transmigração da alma do homem para os animais e reciprocamente.
 

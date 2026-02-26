@@ -235,7 +235,7 @@ O progresso do Espírito é sempre ascendente, nunca regressivo. Ele pode ocupar
 
 ### 195 — A possibilidade de melhorar em outra existência não pode levar certas pessoas a persistirem no mau caminho, acreditando que sempre poderão se corrigir mais tarde?
 
-*— Quem pensa assim, na verdade, não acredita em nada. A ideia de um castigo eterno não o conteria mais do que qualquer outra, porque sua própria razão rejeita esse conceito. Além disso, essa noção extrema acaba conduzindo à incredulidade em relação a tudo. Se apenas meios racionais tivessem sido usados para orientar as pessoas, não haveria tantos céticos.*
+*— Quem pensa assim, na verdade, não acredita em nada. A ideia de um castigo eterno não o impediria de agir mal, porque sua própria razão rejeita essa noção, e isso acaba levando à rejeição de qualquer outra crença. Se apenas meios racionais tivessem sido usados para orientar as pessoas, não haveria tantos céticos.*
 
 *De fato, um Espírito ainda imperfeito pode, durante a vida corporal, raciocinar dessa forma. No entanto, quando se liberta da matéria, passa a enxergar a realidade de outro modo. Logo percebe que fez um cálculo errado e leva para a nova existência um sentimento oposto ao que tinha antes. É assim que o progresso acontece. Eis também por que os seres humanos se encontram em graus tão diferentes de adiantamento: alguns já possuem experiências que outros ainda não têm, mas que adquirirão pouco a pouco.*
 

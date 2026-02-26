@@ -2,28 +2,30 @@
 title: 'Capítulo 12 - Perfeição moral'
 ---
 
-##### As virtudes e os vícios
-###### 893 — Qual a mais meritória de todas as virtudes?
+# Capítulo 12 - Perfeição moral
+
+## As virtudes e os vícios
+### 893 — Qual a mais meritória de todas as virtudes?
 
 *— Todas as virtudes têm seu mérito, porque todas indicam progresso na senda do bem. Há virtude sempre que há resistência voluntária ao arrastamento dos maus pendores. A sublimidade da virtude, porém, está no sacrifício do interesse pessoal pelo bem do próximo, sem pensamento oculto. A mais meritória é a que assenta na mais desinteressada caridade.*
 
-###### 894 — Há pessoas que fazem o bem espontaneamente, sem que precisem vencer quaisquer sentimentos que lhes sejam opostos. Terão tanto mérito quanto as que se veem na contingência de lutar contra a natureza que lhes é própria e a vencem?
+### 894 — Há pessoas que fazem o bem espontaneamente, sem que precisem vencer quaisquer sentimentos que lhes sejam opostos. Terão tanto mérito quanto as que se veem na contingência de lutar contra a natureza que lhes é própria e a vencem?
 
 *— Só não têm que lutar aqueles em quem já há progresso realizado. Esses lutaram outrora e triunfaram. Por isso é que os bons sentimentos nenhum esforço lhes custam e suas ações lhes parecem simplíssimas. O bem se lhes tornou um hábito. Devidas lhes são as honras que se costuma tributar a velhos guerreiros que conquistaram seus altos postos.*
 
 *Como ainda estais longe da perfeição, tais exemplos vos espantam pelo contraste com o que tendes à vista, e tanto mais os admirais, quanto mais raros são. Ficai sabendo, porém, que, nos mundos mais adiantados do que o vosso, constitui a regra o que entre vós representa a exceção. Em todos os pontos desses mundos o sentimento do bem é espontâneo, porque somente Espíritos bons os habitam. Lá, uma só intenção maligna seria monstruosa exceção. Eis por que neles os homens são ditosos. O mesmo se dará na Terra quando a humanidade se houver transformado, quando compreender e praticar a caridade na sua verdadeira acepção.*
 
-###### 895 — Postos de lado os defeitos e os vícios acerca dos quais ninguém se pode equivocar, qual o sinal mais característico da imperfeição?
+### 895 — Postos de lado os defeitos e os vícios acerca dos quais ninguém se pode equivocar, qual o sinal mais característico da imperfeição?
 
 *— O interesse pessoal. Frequentemente, as qualidades morais são como, num objeto de cobre, a douradura que não resiste à pedra de toque. Pode um homem possuir qualidades reais, que levem o mundo a considerá-lo homem de bem. Mas essas qualidades, conquanto assinalem um progresso, nem sempre suportam certas provas, e às vezes basta que se fira a corda do interesse pessoal para que o fundo fique a descoberto. O verdadeiro desinteresse é coisa ainda tão rara na Terra que, quando se patenteia, todos o admiram como se fora um fenômeno.*
 
 *O apego às coisas materiais constitui sinal notório de inferioridade, porque, quanto mais se aferra aos bens deste mundo, tanto menos compreende o homem o seu destino. Pelo desinteresse, ao contrário, demonstra que encara de um ponto mais elevado o futuro.*
 
-###### 896 — Há pessoas desinteressadas, mas sem discernimento, que prodigalizam seus haveres sem utilidade real, por lhes não saberem dar emprego criterioso. Têm algum merecimento essas pessoas?
+### 896 — Há pessoas desinteressadas, mas sem discernimento, que prodigalizam seus haveres sem utilidade real, por lhes não saberem dar emprego criterioso. Têm algum merecimento essas pessoas?
 
 *— Têm o do desinteresse, porém não o do bem que poderiam fazer. O desinteresse é uma virtude, mas a prodigalidade irrefletida constitui sempre, pelo menos, falta de juízo. A riqueza, assim como não é dada a uns para ser aferrolhada num cofre forte, também não o é a outros para ser dispersada ao vento. Representa um depósito de que uns e outros terão de prestar contas, porque terão de responder por todo o bem que podiam fazer e não fizeram, por todas as lágrimas que podiam ter estancado com o dinheiro que deram aos que dele não precisavam.*
 
-###### 897 — Merecerá reprovação aquele que faz o bem sem visar a qualquer recompensa na Terra, mas esperando que lhe seja levado em conta na outra vida e que lá venha a ser melhor a sua situação? E essa preocupação lhe prejudicará o progresso?
+### 897 — Merecerá reprovação aquele que faz o bem sem visar a qualquer recompensa na Terra, mas esperando que lhe seja levado em conta na outra vida e que lá venha a ser melhor a sua situação? E essa preocupação lhe prejudicará o progresso?
 
 *— O bem deve ser feito caritativamente, isto é, com desinteresse.*
 
@@ -36,31 +38,31 @@ title: 'Capítulo 12 - Perfeição moral'
 *— Não, não. Quando dizemos fazer o bem queremos significar ser caridoso. Procede como egoísta todo aquele que calcula o que lhe possa cada uma de suas boas ações render na vida futura, tanto quanto na vida terrena. Nenhum egoísmo, porém, há em querer o homem melhorar-se, para se aproximar de Deus, pois que é o fim para o qual devem todos tender.*
 
 
-###### 898 — Sendo a vida corpórea apenas uma estada temporária neste mundo e devendo o futuro constituir objeto da nossa principal preocupação, será útil nos esforcemos por adquirir conhecimentos científicos que só digam respeito às coisas e às necessidades materiais?
+### 898 — Sendo a vida corpórea apenas uma estada temporária neste mundo e devendo o futuro constituir objeto da nossa principal preocupação, será útil nos esforcemos por adquirir conhecimentos científicos que só digam respeito às coisas e às necessidades materiais?
 
 *— Sem dúvida. Primeiramente, isso vos põe em condições de auxiliar os vossos irmãos; depois, o vosso Espírito subirá mais depressa, se já houver progredido em inteligência. Nos intervalos das encarnações, aprendereis numa hora o que na Terra vos exigiria anos de aprendizado. Nenhum conhecimento é inútil; todos mais ou menos contribuem para o progresso, porque o Espírito, para ser perfeito, tem que saber tudo, e porque, cumprindo que o progresso se efetue em todos os sentidos, todas as ideias adquiridas ajudam o desenvolvimento do Espírito.*
 
-###### 899 — Qual o mais culpado de dois homens ricos que empregam exclusivamente em gozos pessoais suas riquezas, tendo um nascido na opulência e desconhecido sempre a necessidade, devendo o outro ao seu trabalho os bens que possui?
+### 899 — Qual o mais culpado de dois homens ricos que empregam exclusivamente em gozos pessoais suas riquezas, tendo um nascido na opulência e desconhecido sempre a necessidade, devendo o outro ao seu trabalho os bens que possui?
 
 *— Aquele que conheceu os sofrimentos, porque sabe o que é sofrer. A dor, a que nenhum alívio procura dar, ele a conhece; porém, como frequentemente sucede, já dela se não lembra.*
 
-###### 900 — Aquele que incessantemente acumula haveres, sem fazer o bem a quem quer que seja, achará desculpa válida na ideia de acumular com o fito de maior soma legar aos seus herdeiros?
+### 900 — Aquele que incessantemente acumula haveres, sem fazer o bem a quem quer que seja, achará desculpa válida na ideia de acumular com o fito de maior soma legar aos seus herdeiros?
 
 *— É um pacto com a consciência má.*
 
-###### 901 — Figuremos dois avarentos, um dos quais nega a si mesmo o necessário e morre de miséria sobre o seu tesouro, ao passo que o segundo só o é para os outros, mostrando-se pródigo para consigo mesmo; enquanto recua ante o mais ligeiro sacrifício para prestar um serviço ou fazer qualquer coisa útil, nunca julga demasiado o que despenda para satisfazer aos seus gostos ou às suas paixões. Peças-lhe um obséquio e estará sempre em dificuldade para fazê-lo; imagine, porém, realizar uma fantasia e terá sempre o bastante para isso. Qual o mais culpado e qual o que se achará em pior situação no mundo dos Espíritos?
+### 901 — Figuremos dois avarentos, um dos quais nega a si mesmo o necessário e morre de miséria sobre o seu tesouro, ao passo que o segundo só o é para os outros, mostrando-se pródigo para consigo mesmo; enquanto recua ante o mais ligeiro sacrifício para prestar um serviço ou fazer qualquer coisa útil, nunca julga demasiado o que despenda para satisfazer aos seus gostos ou às suas paixões. Peças-lhe um obséquio e estará sempre em dificuldade para fazê-lo; imagine, porém, realizar uma fantasia e terá sempre o bastante para isso. Qual o mais culpado e qual o que se achará em pior situação no mundo dos Espíritos?
 
 *— O que goza, porque é mais egoísta do que avarento. O outro já recebeu parte do seu castigo.*
 
-###### 902 — Será reprovável que cobicemos a riqueza, quando nos anime o desejo de fazer o bem?
+### 902 — Será reprovável que cobicemos a riqueza, quando nos anime o desejo de fazer o bem?
 
 *— Tal sentimento é, não há dúvida, louvável, quando puro. Mas será sempre bastante desinteressado esse desejo? Não ocultará nenhum intuito de ordem pessoal? Não será de fazer o bem a si mesmo em primeiro lugar que cogita, muitas vezes, aquele em quem tal desejo se manifesta?*
 
-###### 903 — Incorre em culpa o homem por estudar os defeitos alheios?
+### 903 — Incorre em culpa o homem por estudar os defeitos alheios?
 
 *— Incorrerá em grande culpa, se o fizer para os criticar e divulgar, porque será faltar com a caridade. Se o fizer para sua instrução pessoal e para evitá-los em si próprio, tal estudo poderá algumas vezes ser-lhe útil. Importa, porém, não esquecer que a indulgência para com os defeitos de outrem é uma das virtudes contidas na caridade. Antes de censurardes as imperfeições dos outros, vede se de vós não poderão dizer o mesmo. Tratai, pois, de possuir as qualidades opostas aos defeitos que criticais no vosso semelhante. Esse o meio de vos tornardes superiores a ele. Se lhe censurais o ser avaro, sede generosos; se o ser orgulhoso, sede humildes e modestos; se o ser áspero, sede brandos; se o proceder com pequenez, sede grandes em todas as vossas ações. Numa palavra, fazei por maneira que se não vos possam aplicar estas palavras de Jesus: Vê o argueiro no olho do seu vizinho e não vê a trave no seu próprio.*
 
-###### 904 — Incorrerá em culpa aquele que sonda as chagas da sociedade e as expõe em público?
+### 904 — Incorrerá em culpa aquele que sonda as chagas da sociedade e as expõe em público?
 
 *— Depende do sentimento que o mova. Se o escritor apenas visa produzir escândalo, não faz mais do que proporcionar a si mesmo um gozo pessoal, apresentando quadros que constituem antes mau do que bom exemplo. O Espírito aprecia isso, mas pode vir a ser punido por essa espécie de prazer que encontra em revelar o mal.*
 
@@ -68,21 +70,21 @@ title: 'Capítulo 12 - Perfeição moral'
 
 *— Nem sempre há nisso utilidade. Se ele escrever boas coisas, aproveitai-as. Se proceder mal, é uma questão de consciência que lhe diz respeito, exclusivamente. Ademais, se o escritor tem empenho em provar a sua sinceridade, apoie o que disser nos exemplos que dê.*
 
-###### 905 — Alguns autores têm publicado belíssimas obras de grande moral, que auxiliam o progresso da humanidade, das quais, porém, nenhum proveito tiraram para a própria conduta. Ser-lhes-á levado em conta, como Espíritos, o bem a que suas obras hajam dado lugar?
+### 905 — Alguns autores têm publicado belíssimas obras de grande moral, que auxiliam o progresso da humanidade, das quais, porém, nenhum proveito tiraram para a própria conduta. Ser-lhes-á levado em conta, como Espíritos, o bem a que suas obras hajam dado lugar?
 
 *— A moral sem as ações é o mesmo que a semente sem o trabalho. De que vos serve a semente, se não a fazeis dar frutos que vos alimentem? Grave é a culpa desses homens, porque dispunham de inteligência para compreender. Não praticando as máximas que ofereciam aos outros, renunciaram a colher-lhes os frutos.*
 
-###### 906 — Será passível de censura o homem por ter consciência do bem que faz e por confessá-lo a si mesmo?
+### 906 — Será passível de censura o homem por ter consciência do bem que faz e por confessá-lo a si mesmo?
 
 *— Pois que pode ter consciência do mal que pratica, do bem igualmente deve tê-la, a fim de saber se andou bem ou mal. Pesando todos os seus atos na balança da lei de Deus e, sobretudo, na lei de justiça, amor e caridade, é que poderá dizer a si mesmo se suas obras são boas ou más, que as poderá aprovar ou desaprovar. Não se lhe pode, portanto, censurar que reconheça haver triunfado dos maus pendores e que se sinta satisfeito, desde que de tal não se envaideça, porque então cairia noutra falta (919).*
 
 
-##### As paixões
-###### 907 — Será intrinsecamente mau o princípio originário das paixões, embora esteja na natureza?
+## As paixões
+### 907 — Será intrinsecamente mau o princípio originário das paixões, embora esteja na natureza?
 
 *— Não; a paixão está no excesso de que se acresceu a vontade, visto que o princípio que lhe dá origem foi posto no homem para o bem, tanto que as paixões podem levá-lo à realização de grandes coisas. O abuso que delas se faz é que causa o mal.*
 
-###### 908 — Como se poderá determinar o limite onde as paixões deixam de ser boas para se tornarem más?
+### 908 — Como se poderá determinar o limite onde as paixões deixam de ser boas para se tornarem más?
 
 *— As paixões são como um corcel, que só tem utilidade quando governado, e que se torna perigoso quando passa a governar. Uma paixão se torna perigosa a partir do momento em que deixais de poder governá-la, e que dá em resultado um prejuízo qualquer para vós mesmos ou para outrem.*
 
@@ -94,40 +96,40 @@ Toda paixão que aproxima o homem da natureza animal afasta-o da natureza espiri
 
 Todo sentimento que eleva o homem acima da natureza animal denota predominância do espírito sobre a matéria e o aproxima da perfeição.
 
-###### 909 — Poderia sempre o homem, pelos seus esforços, vencer as suas más inclinações?
+### 909 — Poderia sempre o homem, pelos seus esforços, vencer as suas más inclinações?
 
 *— Sim, e por vezes fazendo esforços bem pequenos. O que lhe falta é a vontade. Ah! Quão poucos dentre vós fazem esforços!*
 
-###### 910 — Pode o homem achar nos Espíritos eficaz assistência para triunfar de suas paixões?
+### 910 — Pode o homem achar nos Espíritos eficaz assistência para triunfar de suas paixões?
 
 *— Se o pedir a Deus e ao seu bom gênio, com sinceridade, os Espíritos bons lhe virão certamente em auxílio, porquanto isso é sua missão (459).*
 
-###### 911 — Não haverá paixões tão vivas e irresistíveis que a vontade seja impotente para dominá-las?
+### 911 — Não haverá paixões tão vivas e irresistíveis que a vontade seja impotente para dominá-las?
 
 *— Há muitas pessoas que dizem: Quero, mas a vontade só lhes está nos lábios. Querem, porém muito satisfeitas ficam que não seja como "querem". Quando o homem crê que não pode vencer as suas paixões, é que seu Espírito se compraz nelas, em consequência da sua inferioridade. Compreende a sua natureza espiritual aquele que as procura reprimir. Vencê-las é, para ele, uma vitória do Espírito sobre a matéria.*
 
-###### 912 — Qual o meio mais eficiente de combater-se o predomínio da natureza corpórea?
+### 912 — Qual o meio mais eficiente de combater-se o predomínio da natureza corpórea?
 
 *— Praticar a abnegação.*
 
-##### O egoísmo
-###### 913 — Dentre os vícios, qual o que se pode considerar radical?
+## O egoísmo
+### 913 — Dentre os vícios, qual o que se pode considerar radical?
 
 *— Temo-lo dito muitas vezes: o egoísmo. Daí deriva todo mal. Estudai todos os vícios e vereis que no fundo de todos há egoísmo. Por mais que lhes deis combate, não chegareis a extirpá-los, enquanto não atacardes o mal pela raiz, enquanto não lhe houverdes destruído a causa. Tendam, pois, todos os esforços para esse efeito, porquanto aí é que está a verdadeira chaga da sociedade. Quem quiser, desde esta vida, ir aproximando-se da perfeição moral, deve expurgar o seu coração de todo sentimento de egoísmo, visto ser o egoísmo incompatível com a justiça, o amor e a caridade. Ele neutraliza todas as outras qualidades.*
 
-###### 914 — Fundando-se o egoísmo no sentimento do interesse pessoal, bem difícil parece extirpá-lo inteiramente do coração humano. Chegar-se-á a consegui-lo?
+### 914 — Fundando-se o egoísmo no sentimento do interesse pessoal, bem difícil parece extirpá-lo inteiramente do coração humano. Chegar-se-á a consegui-lo?
 
 *— À medida que os homens se instruem acerca das coisas espirituais, menos valor dão às coisas materiais. Depois, necessário é que se reformem as instituições humanas que o entretêm e excitam. Isso depende da educação.*
 
-###### 915 — Por ser inerente à espécie humana, o egoísmo não constituirá sempre um obstáculo ao reinado do bem absoluto na Terra?
+### 915 — Por ser inerente à espécie humana, o egoísmo não constituirá sempre um obstáculo ao reinado do bem absoluto na Terra?
 
 *— É exato que no egoísmo tendes o vosso maior mal; ele se prende, porém, à inferioridade dos Espíritos encarnados na Terra e não à humanidade mesma. Ora, depurando-se por encarnações sucessivas, os Espíritos se despojam do egoísmo, como de suas outras impurezas. Não existirá na Terra nenhum homem isento de egoísmo e praticante da caridade? Há muito mais homens assim do que supondes. Apenas não os conheceis, porque a virtude foge à viva claridade do dia. Desde que haja um, por que não haverá dez? Havendo dez, por que não haverá mil e assim por diante?*
 
-###### 916 — Longe de diminuir, o egoísmo cresce com a civilização, que até mesmo, parece, o excita e mantém. Como poderá a causa destruir o efeito?
+### 916 — Longe de diminuir, o egoísmo cresce com a civilização, que até mesmo, parece, o excita e mantém. Como poderá a causa destruir o efeito?
 
 *— Quanto maior é o mal, mais hediondo se torna. Era preciso que o egoísmo produzisse muito mal, para que compreensível se fizesse a necessidade de extirpá-lo. Quando se houverem despojado do egoísmo que os domina, os homens viverão como irmãos, sem se fazerem mal algum, auxiliando-se reciprocamente, impelidos pelo sentimento mútuo da solidariedade. Então o forte será o amparo e não o opressor do fraco, e não mais serão vistos homens a quem falte o indispensável, porque todos praticarão a lei de justiça. Esse o reinado do bem, que os Espíritos estão incumbidos de preparar (784).*
 
-###### 917 — Qual o meio de destruir-se o egoísmo?
+### 917 — Qual o meio de destruir-se o egoísmo?
 
 *— De todas as imperfeições humanas, o egoísmo é a mais difícil de desenraizar-se, porque deriva da influência da matéria, influência de que o homem, ainda muito próximo de sua origem, não pôde libertar-se, e para cuja manutenção tudo concorre: suas leis, sua organização social, sua educação. O egoísmo se enfraquecerá à proporção que a vida moral for predominando sobre a vida material e, sobretudo, com a compreensão, que o Espiritismo vos faculta, do vosso estado futuro real, e não desfigurado por ficções alegóricas. Quando, bem compreendido, se houver identificado com os costumes e as crenças, o Espiritismo transformará os hábitos, os usos, as relações sociais. O egoísmo assenta na importância da personalidade. Ora, o Espiritismo, bem compreendido, repito, mostra as coisas de tão alto que o sentimento da personalidade desaparece, de certo modo, diante da imensidade. Destruindo essa importância, ou, pelo menos, reduzindo-a às suas legítimas proporções, ele necessariamente combate o egoísmo.*
 
@@ -142,8 +144,8 @@ O homem deseja ser feliz e natural é o sentimento que dá origem a esse desejo.
 O egoísmo é a fonte de todos os vícios, como a caridade o é de todas as virtudes. Destruir um e desenvolver a outra, tal deve ser o alvo de todos os esforços do homem, se quiser assegurar a sua felicidade neste mundo, tanto quanto no futuro.
 
 
-##### Caracteres do homem de bem
-###### 918 — Por que indícios se pode reconhecer em um homem o progresso real que lhe elevará o Espírito na hierarquia espírita?
+## Caracteres do homem de bem
+### 918 — Por que indícios se pode reconhecer em um homem o progresso real que lhe elevará o Espírito na hierarquia espírita?
 
 *— O espírito prova a sua elevação quando todos os atos de sua vida corporal representam a prática da lei de Deus, e quando antecipadamente compreende a vida espiritual.*
 
@@ -164,8 +166,8 @@ Não é vingativo. A exemplo de Jesus, perdoa as ofensas, para só se lembrar do
 Respeita, enfim, em seus semelhantes, todos os direitos que as leis da natureza lhes concedem, como quer que os mesmos direitos lhe sejam respeitados.
 
 
-##### Conhecimento de si mesmo
-###### 919 — Qual o meio prático mais eficaz que tem o homem de se melhorar nesta vida e de resistir à atração do mal?
+## Conhecimento de si mesmo
+### 919 — Qual o meio prático mais eficaz que tem o homem de se melhorar nesta vida e de resistir à atração do mal?
 
 *— Um sábio da antiguidade vo-lo disse: Conhece-te a ti mesmo.*
 

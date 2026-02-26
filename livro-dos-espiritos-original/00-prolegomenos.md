@@ -2,6 +2,8 @@
 title: 'Prolegômenos'
 ---
 
+# Prolegômenos
+
 Fenômenos alheios às leis da ciência ordinária se dão por toda parte, revelando na causa que os produz a ação de uma vontade livre e inteligente.
 
 A razão diz que um efeito inteligente há de ter como causa uma potência inteligente e os fatos provaram que essa potência é capaz de entrar em comunicação com os homens por meio de sinais materiais.

@@ -57,7 +57,7 @@ A harmonia que rege o universo revela organização e propósito, o que indica a
 
 ### 9 — De que maneira a causa primeira revela uma inteligência suprema e superior a todas as outras?
 
-*— Existe um provérbio que diz: pela obra se reconhece o autor. Observem a obra e procurem o autor. O orgulho é o que gera a incredulidade. A pessoa orgulhosa não aceita nada acima de si e, por isso, se considera um espírito forte. Pobre ser, que um simples sopro de Deus pode derrubar.*
+*— Existe um provérbio que diz: pela obra se reconhece o autor. Observem a obra e procurem o autor. O orgulho é o que gera a negação da fé. A pessoa orgulhosa não aceita nada acima de si e, por isso, se considera um espírito forte. Pobre ser, que um simples sopro de Deus pode derrubar.*
 
 A grandeza de uma inteligência se mede por suas obras. Como nenhum ser humano é capaz de criar o que a natureza produz, a causa primeira só pode ser uma inteligência superior à humanidade.
 

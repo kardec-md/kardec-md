@@ -2,12 +2,14 @@
 title: 'Capítulo 3 - Retorno à vida espiritual'
 ---
 
-##### A alma depois da morte
-###### 149 — Que sucede à alma no instante da morte?
+# Capítulo 3 - Retorno à vida espiritual
+
+## A alma depois da morte
+### 149 — Que sucede à alma no instante da morte?
 
 *— Volta a ser Espírito, isto é, volve ao mundo dos Espíritos, donde se apartara momentaneamente.*
 
-###### 150 — A alma, após a morte, conserva a sua individualidade?
+### 150 — A alma, após a morte, conserva a sua individualidade?
 
 *— Sim; jamais a perde. Que seria ela, se não a conservasse?*
 
@@ -19,11 +21,11 @@ title: 'Capítulo 3 - Retorno à vida espiritual'
 
 *— Nada, a não ser a lembrança e o desejo de ir para um mundo melhor, lembrança cheia de doçura ou de amargor, conforme o uso que ela fez da vida. Quanto mais pura for, melhor compreenderá a futilidade do que deixa na Terra.*
 
-###### 151 — Que pensar da opinião dos que dizem que após a morte a alma retorna ao todo universal?
+### 151 — Que pensar da opinião dos que dizem que após a morte a alma retorna ao todo universal?
 
 *— O conjunto dos Espíritos não forma um todo? Não constitui um mundo completo? Quando estás numa assembleia, és parte integrante dela; mas, não obstante, conservas sempre a tua individualidade.*
 
-###### 152 — Que prova podemos ter da individualidade da alma depois da morte?
+### 152 — Que prova podemos ter da individualidade da alma depois da morte?
 
 *— Não tendes essa prova nas comunicações que recebeis? Se não fôsseis cegos, veríeis; se não fôsseis surdos, ouviríeis; pois que muito amiúde uma voz vos fala, reveladora da existência de um ser fora de vós.*
 
@@ -31,7 +33,7 @@ Os que pensam que, pela morte, a alma reingressa no todo universal estão em err
 
 Se as almas se confundissem num amálgama só teriam as qualidades do conjunto, nada as distinguiria umas das outras. Careceriam de inteligência e de qualidades próprias quando, ao contrário, em todas as comunicações, denotam ter consciência do seu eu e uma vontade distinta. A diversidade infinita que apresentam, sob todos os aspectos, é a consequência mesma de constituírem individualidades diversas. Se, após a morte, só houvesse o que se chama o grande Todo, a absorver todas as individualidades, esse Todo seria uniforme e, então, as comunicações que se recebessem do mundo invisível seriam idênticas. Desde que, porém, lá se nos deparam seres bons e maus, sábios e ignorantes, felizes e desgraçados; que lá os há de todos os caracteres: alegres e tristes, levianos e ponderados, etc., patente se faz que eles são seres distintos. A individualidade ainda mais evidente se torna quando esses seres provam a sua identidade por sinais incontestáveis, particularidades pessoais verificáveis, referentes às suas vidas terrestres. Também não pode ser posta em dúvida quando se fazem visíveis nas aparições. A individualidade da alma nos era ensinada em teoria, como artigo de fé. O Espiritismo a torna manifesta e, de certo modo, material.
 
-###### 153 — Em que sentido se deve entender a vida eterna?
+### 153 — Em que sentido se deve entender a vida eterna?
 
 *— A vida do Espírito é que é eterna; a do corpo é transitória e passageira. Quando o corpo morre, a alma retoma a vida eterna.*
 
@@ -40,14 +42,14 @@ Se as almas se confundissem num amálgama só teriam as qualidades do conjunto, 
 *— Essa é antes a felicidade eterna. Mas isto constitui uma questão de palavras. Chamai as coisas como quiserdes, contanto que vos entendais.*
 
 
-##### Separação da alma e do corpo
-###### 154 — É dolorosa a separação da alma e do corpo?
+## Separação da alma e do corpo
+### 154 — É dolorosa a separação da alma e do corpo?
 
 *— Não; o corpo muitas vezes sofre mais durante a vida do que no momento da morte; a alma nenhuma parte toma nisso. Os sofrimentos que algumas vezes se experimentam no instante da morte são um gozo para o Espírito, que vê chegar o termo do seu exílio.*
 
 Na morte natural, a que sobrevém pelo esgotamento dos órgãos, em consequência da idade, o homem deixa a vida sem o perceber: é uma lâmpada que se apaga por falta de óleo.
 
-###### 155 — Como se opera a separação da alma e do corpo?
+### 155 — Como se opera a separação da alma e do corpo?
 
 *— Rotos os laços que a retinham, ela se desprende.*
 
@@ -57,47 +59,47 @@ Na morte natural, a que sobrevém pelo esgotamento dos órgãos, em consequênci
 
 Durante a vida, o Espírito se acha preso ao corpo pelo seu envoltório semimaterial ou perispírito. A morte é a destruição do corpo somente, não a desse outro envoltório, que do corpo se separa quando cessa neste a vida orgânica. A observação demonstra que, no instante da morte, o desprendimento do perispírito não se completa subitamente; que, ao contrário, se opera gradualmente e com uma lentidão muito variável conforme os indivíduos. Em uns é bastante rápido, podendo dizer-se que o momento da morte é mais ou menos o da libertação. Em outros, naqueles sobretudo cuja vida foi toda material e sensual, o desprendimento é muito menos rápido, durando algumas vezes dias, semanas e até meses, o que não implica existir, no corpo, a menor vitalidade, nem a possibilidade de volver à vida, mas uma simples afinidade com o Espírito, afinidade que guarda sempre proporção com a preponderância que, durante a vida, o Espírito deu à matéria. É, com efeito, racional conceber-se que, quanto mais o Espírito se haja identificado com a matéria, tanto mais penoso lhe seja separar-se dela; ao passo que a atividade intelectual e moral, a elevação dos pensamentos operam um começo de desprendimento, mesmo durante a vida do corpo, de modo que, em chegando a morte, ele é quase instantâneo. Tal o resultado dos estudos feitos em todos os indivíduos que se têm podido observar por ocasião da morte. Essas observações ainda provam que a afinidade que, em certos indivíduos, persiste entre a alma e o corpo, é, às vezes, muito penosa, porquanto o Espírito pode experimentar o horror da decomposição. Este caso, porém, é excepcional e peculiar a certos gêneros de vida e a certos gêneros de morte. Verifica-se com alguns suicidas.
 
-###### 156 — A separação definitiva da alma e do corpo pode ocorrer antes da cessação completa da vida orgânica?
+### 156 — A separação definitiva da alma e do corpo pode ocorrer antes da cessação completa da vida orgânica?
 
 *— Na agonia, a alma, algumas vezes, já deixou o corpo; nada mais há que a vida orgânica. O homem já não tem consciência de si mesmo; entretanto, ainda lhe resta um sopro de vida orgânica. O corpo é a máquina que o coração põe em movimento. Existe enquanto o coração faz circular nas veias o sangue, para o que não necessita da alma.*
 
-###### 157 — No momento da morte, a alma sente, alguma vez, qualquer aspiração ou êxtase que lhe faça entrever o mundo onde vai entrar?
+### 157 — No momento da morte, a alma sente, alguma vez, qualquer aspiração ou êxtase que lhe faça entrever o mundo onde vai entrar?
 
 *— Muitas vezes a alma sente que se desfazem os laços que a prendem ao corpo. Emprega então todos os esforços para desfazê-los inteiramente. Já em parte desprendida da matéria, vê o futuro desdobrar-se diante de si e goza, por antecipação, do estado de Espírito.*
 
-###### 158 — O exemplo da lagarta que, primeiro, anda de rastos pela terra, depois se encerra na sua crisálida em estado de morte aparente, para enfim renascer com uma existência brilhante, pode dar-nos ideia da vida terrestre, do túmulo e, finalmente, da nossa nova existência?
+### 158 — O exemplo da lagarta que, primeiro, anda de rastos pela terra, depois se encerra na sua crisálida em estado de morte aparente, para enfim renascer com uma existência brilhante, pode dar-nos ideia da vida terrestre, do túmulo e, finalmente, da nossa nova existência?
 
 *— Uma ideia em ponto menor. A imagem é boa; todavia, cumpre não seja tomada ao pé da letra, como frequentemente vos sucede.*
 
-###### 159 — Que sensação experimenta a alma no momento em que reconhece estar no mundo dos Espíritos?
+### 159 — Que sensação experimenta a alma no momento em que reconhece estar no mundo dos Espíritos?
 
 *— Depende. Se praticaste o mal, impelido pelo desejo de o praticar, no primeiro momento te sentirás envergonhado de o haveres praticado. Com a alma do justo as coisas se passam de modo bem diferente. Ela se sente como que aliviada de grande peso, pois que não teme nenhum olhar perscrutador.*
 
-###### 160 — O Espírito se encontra imediatamente com os que conheceu na Terra e que morreram antes dele?
+### 160 — O Espírito se encontra imediatamente com os que conheceu na Terra e que morreram antes dele?
 
 *— Sim, conforme à afeição que lhes votava e a que eles lhe consagravam. Muitas vezes aqueles seus conhecidos o vêm receber à entrada do mundo dos Espíritos e o ajudam a desligar-se das faixas da matéria. Encontra-se também com muitos dos que conheceu e perdeu de vista durante a sua vida terrena. Vê os que estão na erraticidade, e vai visitar os que se encontram encarnados.*
 
-###### 161 — Em caso de morte violenta e acidental, quando os órgãos ainda se não enfraqueceram em consequência da idade ou das moléstias, a separação da alma e a cessação da vida ocorrem simultaneamente?
+### 161 — Em caso de morte violenta e acidental, quando os órgãos ainda se não enfraqueceram em consequência da idade ou das moléstias, a separação da alma e a cessação da vida ocorrem simultaneamente?
 
 *— Geralmente assim é; mas em todos os casos muito breve é o instante que medeia entre uma e outra.*
 
-###### 162 — Após a decapitação, por exemplo, conserva o homem por alguns instantes a consciência de si mesmo?
+### 162 — Após a decapitação, por exemplo, conserva o homem por alguns instantes a consciência de si mesmo?
 
 *— Não raro a conserva durante alguns minutos, até que a vida orgânica se tenha extinguido completamente. Mas frequentemente a apreensão da morte lhe faz perder aquela consciência antes do momento do suplício.*
 
 Trata-se aqui da consciência que o supliciado pode ter de si mesmo, como homem e por intermédio dos órgãos, e não como Espírito. Se não perdeu essa consciência antes do suplício, pode conservá-la por alguns breves instantes. Ela cessa necessariamente com a vida orgânica do cérebro, o que não quer dizer que o perispírito esteja inteiramente separado do corpo. Ao contrário: em todos os casos de morte violenta, quando a morte não resulta da extinção gradual das forças vitais, mais tenazes são os laços que prendem o corpo ao perispírito e, portanto, mais lento o desprendimento completo.
 
 
-##### Perturbação que se segue à morte
-###### 163 — A alma tem consciência de si mesma imediatamente depois de deixar o corpo?
+## Perturbação que se segue à morte
+### 163 — A alma tem consciência de si mesma imediatamente depois de deixar o corpo?
 
 *— Imediatamente não é bem o termo. A alma passa algum tempo em estado de perturbação.*
 
-###### 164 — A perturbação que se segue à separação da alma e do corpo é do mesmo grau e da mesma duração para todos os Espíritos?
+### 164 — A perturbação que se segue à separação da alma e do corpo é do mesmo grau e da mesma duração para todos os Espíritos?
 
 *— Não; depende da elevação de cada um. Aquele que já está purificado se reconhece quase imediatamente, pois que já se libertou da matéria durante a vida do corpo, enquanto que o homem carnal, aquele cuja consciência ainda não está pura, guarda por muito mais tempo a impressão da matéria.*
 
-###### 165 — O conhecimento do Espiritismo exerce alguma influência sobre a duração, mais ou menos longa, da perturbação?
+### 165 — O conhecimento do Espiritismo exerce alguma influência sobre a duração, mais ou menos longa, da perturbação?
 
 *— Influência muito grande, porque o Espírito já antecipadamente compreendia a sua situação. Mas a prática do bem e a consciência pura são o que maior influência exercem.*
 

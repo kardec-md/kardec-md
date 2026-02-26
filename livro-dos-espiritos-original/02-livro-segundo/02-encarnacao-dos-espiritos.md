@@ -2,14 +2,16 @@
 title: 'Capítulo 2 - Encarnação dos Espíritos'
 ---
 
-##### Objetivo da encarnação
-###### 132 — Qual o objetivo da encarnação dos Espíritos?
+# Capítulo 2 - Encarnação dos Espíritos
+
+## Objetivo da encarnação
+### 132 — Qual o objetivo da encarnação dos Espíritos?
 
 *— Deus lhes impõe a encarnação com o fim de fazê-los chegar à perfeição. Para uns, é expiação; para outros, missão. Mas, para alcançarem essa perfeição, têm que sofrer todas as vicissitudes da existência corporal: nisso é que está a expiação. Visa ainda outro fim a encarnação: o de pôr o Espírito em condições de suportar a parte que lhe toca na obra da criação. Para executá-la é que, em cada mundo, toma o Espírito um instrumento em harmonia com a matéria essencial desse mundo, a fim de aí cumprir, daquele ponto de vista, as ordens de Deus. É assim que, concorrendo para a obra geral, ele próprio se adianta.*
 
 A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém, na sua sabedoria, quis que nessa mesma ação eles encontrassem um meio de progredir e de se aproximar dele. Deste modo, por uma admirável lei da Providência, tudo se encadeia, tudo é solidário na natureza.
 
-###### 133 — Têm necessidade de encarnação os Espíritos que desde o princípio seguiram o caminho do bem?
+### 133 — Têm necessidade de encarnação os Espíritos que desde o princípio seguiram o caminho do bem?
 
 *— Todos são criados simples e ignorantes e se instruem nas lutas e tribulações da vida corporal. Deus, que é justo, não podia fazer felizes a uns, sem fadigas e trabalhos, conseguintemente sem mérito.*
 
@@ -18,8 +20,8 @@ A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém
 *— Chegam mais depressa ao fim. Ademais, as aflições da vida são muitas vezes a consequência da imperfeição do Espírito. Quanto menos imperfeições, tanto menos tormentos. Aquele que não é invejoso, nem ciumento, nem avaro, nem ambicioso, não sofrerá as torturas que se originam desses defeitos.*
 
 
-##### A alma
-###### 134 — Que é a alma?
+## A alma
+### 134 — Que é a alma?
 
 *— Um Espírito encarnado.*
 
@@ -31,7 +33,7 @@ A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém
 
 *— Sim, as almas não são senão os Espíritos. Antes de se unir ao corpo, a alma é um dos seres inteligentes que povoam o mundo invisível, os quais temporariamente revestem um envoltório carnal para se purificarem e esclarecerem.*
 
-###### 135 — Há no homem alguma outra coisa além da alma e do corpo?
+### 135 — Há no homem alguma outra coisa além da alma e do corpo?
 
 *— Há o laço que liga a alma ao corpo.*
 
@@ -47,7 +49,7 @@ O homem é, portanto, formado de três partes essenciais:
 
 3. o princípio intermediário, ou perispírito, substância semimaterial que serve de primeiro envoltório ao Espírito e liga a alma ao corpo. Tais, num fruto, o gérmen, o perisperma e a casca.
 
-###### 136 — A alma independe do princípio vital?
+### 136 — A alma independe do princípio vital?
 
 *— O corpo não é mais do que envoltório, repetimo-lo constantemente.*
 
@@ -59,17 +61,17 @@ O homem é, portanto, formado de três partes essenciais:
 
 *— Simples massa de carne sem inteligência, tudo o que quiserdes, exceto um homem.*
 
-###### 137 — Um Espírito pode encarnar a um tempo em dois corpos diferentes?
+### 137 — Um Espírito pode encarnar a um tempo em dois corpos diferentes?
 
 *— Não, o Espírito é indivisível e não pode animar simultaneamente dois seres distintos.* 
 
 (Ver, em O Livro dos Médiuns, o capítulo VII, Da bicorporeidade e da transfiguração.)
 
-###### 138 — Que se deve pensar da opinião dos que consideram a alma o princípio da vida material?
+### 138 — Que se deve pensar da opinião dos que consideram a alma o princípio da vida material?
 
 *— É uma questão de palavras, com que nada temos. Começai por vos entenderdes mutuamente.*
 
-###### 139 — Alguns Espíritos e, antes deles, alguns filósofos definiram a alma como sendo "uma centelha anímica emanada do grande Todo". Por que essa contradição?
+### 139 — Alguns Espíritos e, antes deles, alguns filósofos definiram a alma como sendo "uma centelha anímica emanada do grande Todo". Por que essa contradição?
 
 *— Não há contradição. Isso depende da acepção das palavras. Por que não tendes uma palavra para cada coisa?*
 
@@ -77,7 +79,7 @@ O vocábulo alma se emprega para exprimir coisas muito diferentes. Uns chamam al
 
 (1) Ver, na Introdução, a explicação sobre o termo alma, § II.
 
-###### 140 — Que se deve pensar da teoria da alma subdividida em tantas partes quantos são os músculos e presidindo assim a cada uma das funções do corpo?
+### 140 — Que se deve pensar da teoria da alma subdividida em tantas partes quantos são os músculos e presidindo assim a cada uma das funções do corpo?
 
 *— Ainda isto depende do sentido que se empreste à palavra alma. Se se entende por alma o fluido vital, essa teoria tem razão de ser; se se entende por alma o Espírito encarnado, é errônea. Já dissemos que o Espírito é indivisível. Ele imprime movimento aos órgãos, servindo-se do fluido intermediário, sem que para isso se divida.*
 
@@ -87,27 +89,27 @@ O vocábulo alma se emprega para exprimir coisas muito diferentes. Uns chamam al
 
 A alma atua por intermédio dos órgãos e os órgãos são animados pelo fluido vital, que por eles se reparte, existindo em maior abundância nos que são centros ou focos de movimento. Esta explicação, porém, não se aplica quando se considera a alma como sendo o Espírito que habita o corpo durante a vida e o deixa por ocasião da morte.
 
-###### 141 — Há alguma coisa de verdadeiro na opinião dos que pretendem que a alma é exterior ao corpo e o circunvolve?
+### 141 — Há alguma coisa de verdadeiro na opinião dos que pretendem que a alma é exterior ao corpo e o circunvolve?
 
 *— A alma não se acha encerrada no corpo, qual pássaro numa gaiola. Irradia e se manifesta exteriormente, como a luz através de um globo de vidro, ou como o som em torno de um centro de sonoridade. Neste sentido se pode dizer que ela é exterior, sem que por isso constitua o envoltório do corpo. A alma tem dois envoltórios. Um, sutil e leve: é o primeiro, ao qual chamas perispírito; outro, grosseiro, material e pesado, o corpo. A alma é o centro de todos esses envoltórios, como o gérmen em um caroço, já o temos dito.*
 
-###### 142 — Que dizeis dessa outra teoria segundo a qual a alma, numa criança, se vai completando a cada período da vida?
+### 142 — Que dizeis dessa outra teoria segundo a qual a alma, numa criança, se vai completando a cada período da vida?
 
 *— O Espírito é uno e está completo na criança, como no adulto. Os órgãos, ou instrumentos das manifestações da alma, é que se desenvolvem e completam. Ainda aí tomam o efeito pela causa.*
 
-###### 143 — Por que todos os Espíritos não definem do mesmo modo a alma?
+### 143 — Por que todos os Espíritos não definem do mesmo modo a alma?
 
 *— Os Espíritos não se acham todos esclarecidos igualmente sobre estes assuntos. Há Espíritos de inteligência ainda limitada, que não compreendem as coisa abstratas. São como as crianças entre vós. Também há Espíritos pseudo-sábios, que fazem alarde de palavras, para se imporem, ainda como sucede entre vós. Depois, os próprios Espíritos esclarecidos podem exprimir-se em termos diferentes, cujo valor, entretanto, é, substancialmente, o mesmo, sobretudo quando se trata de coisas que a vossa linguagem se mostra impotente para traduzir com clareza. Recorrem então a figuras, a comparações, que tomais como realidade.*
 
-###### 144 — Que se deve entender por alma do mundo?
+### 144 — Que se deve entender por alma do mundo?
 
 *— O princípio universal da vida e da inteligência, do qual nascem as individualidades. Mas os que se servem dessa expressão não se compreendem, as mais das vezes, uns aos outros. O termo alma é tão elástico que cada um o interpreta ao sabor de suas fantasias. Também à Terra atribuíram uma alma. Por alma da Terra se deve entender o conjunto dos Espíritos abnegados, que dirigem para o bem as vossas ações, quando os escutais, e que, de certo modo, são os lugar-tenentes de Deus com relação ao vosso planeta.*
 
-###### 145 — Como se explica que tantos filósofos antigos e modernos, durante tão longo tempo, hajam discutido sobre a ciência psicológica e não tenham chegado ao conhecimento da verdade?
+### 145 — Como se explica que tantos filósofos antigos e modernos, durante tão longo tempo, hajam discutido sobre a ciência psicológica e não tenham chegado ao conhecimento da verdade?
 
 *— Esses homens eram precursores da eterna doutrina espírita. Prepararam os caminhos. Eram homens e, como tais, hão podido se enganar, porque tomaram suas próprias ideias pela luz. No entanto, mesmo os seus erros servem para realçar a verdade, mostrando o pró e o contra. Ademais, entre esses erros se encontram grandes verdades que um estudo comparativo torna apreensível.*
 
-###### 146 — A alma tem, no corpo, sede determinada e circunscrita?
+### 146 — A alma tem, no corpo, sede determinada e circunscrita?
 
 *— Não; porém, nos grandes gênios, em todos os que pensam muito, ela está mais particularmente na cabeça; e mais no coração naqueles que muito sentem e cujas ações têm todas um fim humanitário.*
 
@@ -116,12 +118,12 @@ A alma atua por intermédio dos órgãos e os órgãos são animados pelo fluido
 *— Quer isso dizer que o Espírito habita de preferência essa parte do vosso organismo, por ser aí o ponto de convergência de todas as sensações. Os que a situam no que consideram o centro da vitalidade, esses a confundem com o fluido ou princípio vital. Pode, todavia, dizer-se que a sede da alma se encontra especialmente nos órgãos que servem para as manifestações intelectuais e morais.*
 
 
-##### Materialismo
-###### 147 — Por que é que os anatomistas, os fisiologistas e, em geral, os que aprofundam as ciências naturais, são, com tanta frequência, levados ao materialismo?
+## Materialismo
+### 147 — Por que é que os anatomistas, os fisiologistas e, em geral, os que aprofundam as ciências naturais, são, com tanta frequência, levados ao materialismo?
 
 *— O fisiologista refere tudo ao que vê. Orgulho dos homens, que julgam saber tudo e não admitem haja coisa alguma que lhes esteja acima do entendimento. A própria ciência que cultivam os enche de presunção. Pensam que a natureza nada lhes pode conservar oculto.*
 
-###### 148 — Não é de lastimar que o materialismo seja uma consequência de estudos que deveriam, contrariamente, mostrar ao homem a superioridade da inteligência que governa o mundo? Deve-se daí concluir que são perigosos?
+### 148 — Não é de lastimar que o materialismo seja uma consequência de estudos que deveriam, contrariamente, mostrar ao homem a superioridade da inteligência que governa o mundo? Deve-se daí concluir que são perigosos?
 
 *— Não é exato que o materialismo seja uma consequência desses estudos. O homem é que deles tira uma consequência falsa, pela razão de lhe ser dado abusar de tudo, mesmo das melhores coisas. Acresce que o nada os amedronta mais do que eles quereriam que parecesse, e os espíritos fortes, quase sempre, são antes fanfarrões do que bravos. Na sua maioria, só são materialistas porque não têm com que encher o vazio do abismo que diante deles se abre. Mostrai-lhes uma âncora de salvação e a ela se agarrarão pressurosamente.*
 

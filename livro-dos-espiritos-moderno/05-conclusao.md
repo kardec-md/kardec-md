@@ -22,11 +22,21 @@ Nada no Espiritismo escapa às leis da natureza. Ele revela uma força natural a
 
 ### III
 
-Dizeis querer curar o século de uma “mania”. Preferiríeis, então, que ele fosse dominado pela incredulidade? O enfraquecimento dos laços familiares e grande parte das desordens sociais não nascem justamente da ausência de fé no futuro?
+Vocês dizem que querem curar o século de uma suposta mania que ameaça se espalhar pelo mundo. Mas prefeririam que ele fosse dominado pela negação de qualquer fé no futuro, que vocês mesmos ajudam a propagar? De onde vêm o enfraquecimento dos laços familiares e grande parte das desordens que corroem a sociedade, senão da falta de uma crença real em algo além da vida material?
 
-Ao provar a existência e a imortalidade da alma, o Espiritismo reacende a esperança, fortalece os desanimados e ensina a suportar as dificuldades da vida. Duas doutrinas se confrontam: uma nega o futuro; a outra o afirma e o explica. Uma nada esclarece; a outra dá sentido a tudo. Uma alimenta o egoísmo; a outra fundamenta a justiça, a caridade e o amor ao próximo. Qual delas é mais nociva?
+Ao demonstrar a existência e a imortalidade da alma, o Espiritismo reacende a confiança no futuro, fortalece quem está abatido e ajuda a enfrentar as dificuldades com mais equilíbrio. Ele dá sentido às provas da vida. Vocês chamariam isso de mal?
 
-Sem a crença no futuro, conceitos como dever, consciência e fraternidade perdem o sentido. Se tudo acaba com a morte, por que renunciar ao prazer imediato? Daí nascem a ambição, a inveja e o conflito. A lei, sozinha, não basta. Sem base moral, a sociedade se desagrega.
+Duas visões se confrontam: uma afirma que não existe futuro; a outra mostra que ele existe e o explica. Uma não esclarece nada; a outra responde às grandes perguntas e dialoga com a razão. Uma acaba reforçando o egoísmo; a outra sustenta a justiça, a caridade e o amor ao próximo. A primeira prende o homem apenas ao presente e elimina qualquer esperança; a segunda consola e amplia o horizonte. Qual delas é realmente prejudicial?
+
+Alguns, mesmo entre os mais céticos, falam em fraternidade e progresso. Mas fraternidade de verdade exige desapego e controle do próprio ego. Onde existe fraternidade autêntica, o orgulho não tem espaço.
+
+Com que autoridade se exige sacrifício de alguém a quem se diz que, com a morte, tudo termina? Que amanhã ele pode não ser mais do que matéria dispersa? Que motivo teria para abrir mão de algo? Não seria mais lógico tentar aproveitar ao máximo os poucos anos que lhe restam?
+
+Daí nasce o desejo de possuir cada vez mais, para aproveitar melhor. Do desejo surge a inveja; da inveja, o impulso de tomar o que é do outro. O que impede isso? A lei? Mas a lei não alcança tudo. A consciência? O senso de dever? Em que se apoia o dever, se se acredita que tudo acaba na morte?
+
+Quando essa ideia domina, só resta uma regra coerente: cada um por si. Fraternidade, consciência, dever, humanidade e progresso tornam-se apenas palavras bonitas.
+
+Vocês que defendem essas ideias talvez não percebam o tamanho do mal que causam à sociedade, nem o peso das consequências que isso pode gerar. Mas falar em responsabilidade não faz sentido para quem acredita apenas na matéria, pois, para esse, responsabilidade moral não existe.
 
 ### IV
 

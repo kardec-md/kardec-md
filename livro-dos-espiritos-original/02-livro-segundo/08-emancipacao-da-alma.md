@@ -2,18 +2,20 @@
 title: 'Capítulo 8 - Emancipação da alma'
 ---
 
-##### O sono e os sonhos
-###### 400 — O Espírito encarnado permanece de bom grado no seu envoltório corporal?
+# Capítulo 8 - Emancipação da alma
+
+## O sono e os sonhos
+### 400 — O Espírito encarnado permanece de bom grado no seu envoltório corporal?
 
 *— É como se perguntasses se ao encarcerado agrada o cárcere. O Espírito encarnado aspira constantemente à sua libertação, e tanto mais deseja ver-se livre do seu envoltório, quanto mais grosseiro é este.*
 
 
-###### 401 — Durante o sono, a alma repousa como o corpo?
+### 401 — Durante o sono, a alma repousa como o corpo?
 
 *— Não, o Espírito jamais está inativo. Durante o sono, afrouxam-se os laços que o prendem ao corpo e, não precisando este então da sua presença, ele se lança pelo espaço e entra em relação mais direta com os outros Espíritos.*
 
 
-###### 402 — Como podemos julgar da liberdade do Espírito durante o sono?
+### 402 — Como podemos julgar da liberdade do Espírito durante o sono?
 
 *— Pelos sonhos. Quando o corpo repousa, acredita-o, tem o Espírito mais faculdades do que no estado de vigília. Lembra-se do passado e algumas vezes prevê o futuro. Adquire maior potência e pode pôr-se em comunicação com outros Espíritos, quer neste mundo, quer noutro. Dizes frequentemente: Tive um sonho extravagante, um sonho horrível, mas absolutamente inverossímil. Enganas-te. É amiúde uma recordação dos lugares e das coisas que viste ou que verás em outra existência ou em outra ocasião. Estando entorpecido o corpo, o Espírito trata de quebrar seus grilhões e de investigar no passado ou no futuro. Pobres homens, que mal conheceis os mais vulgares fenômenos da vida! Julgais-vos muito sábios e as coisas mais comezinhas vos confundem. Nada sabeis responder a estas perguntas que todas as crianças formulam: Que fazemos quando dormimos? Que são os sonhos?*
 
@@ -34,39 +36,39 @@ Os sonhos são efeito da emancipação da alma, que mais independente se torna p
 A incoerência dos sonhos ainda se explica pelas lacunas que apresenta a recordação incompleta do que nos apareceu quando sonhávamos. É como se a uma narração se truncassem frases ou trechos ao acaso. Reunidos depois, os fragmentos restantes nenhuma significação racional teriam.
 
 
-###### 403 — Por que não nos lembramos sempre dos sonhos?
+### 403 — Por que não nos lembramos sempre dos sonhos?
 
 *— Naquilo que chamas sono, só há o repouso do corpo, visto que o Espírito está constantemente em atividade. Recobra, durante o sono, um pouco da sua liberdade e se corresponde com os que lhe são caros, quer neste mundo, quer em outros. Mas como é pesada e grosseira a matéria que o compõe, o corpo tem dificuldade em conservar as impressões que o Espírito recebeu, porque a este não chegaram por intermédio dos órgãos corporais.*
 
-###### 404 — Que se deve pensar das significações atribuídas aos sonhos?
+### 404 — Que se deve pensar das significações atribuídas aos sonhos?
 
 *— Os sonhos não são verdadeiros como o entendem os ledores de sorte, pois é absurdo crer-se que sonhar com tal coisa anuncia tal outra. São verdadeiros no sentido de que apresentam imagens que para o Espírito têm realidade, porém que, frequentemente, nenhuma relação guardam com o que se passa na vida corporal. Amiúde, são também, como atrás dissemos, uma recordação. Por fim, podem algumas vezes ser um pressentimento do futuro, se Deus o permitir, ou a visão do que no momento ocorre em outro lugar a que a alma se transporta. Não se contam por muitos os casos de pessoas que em sonho aparecem a seus parentes e amigos, a fim de avisá-los do que a elas está acontecendo? Que são essas aparições senão as almas ou Espíritos de tais pessoas a se comunicarem com entes caros? Quando tendes certeza de que o que vistes realmente se deu, não fica provado que a imaginação nenhuma parte tomou na ocorrência, sobretudo se o que observastes não vos passava pela mente quando em vigília?*
 
 
-###### 405 — Acontece com frequência verem-se em sonho coisas que parecem um pressentimento, mas que, afinal, não se confirma. A que se deve atribuir isto?
+### 405 — Acontece com frequência verem-se em sonho coisas que parecem um pressentimento, mas que, afinal, não se confirma. A que se deve atribuir isto?
 
 *— Pode suceder que tais pressentimentos venham a se confirmar apenas na experiência do Espírito, e não na do corpo; isto é, o Espírito vê aquilo que deseja porque vai ao seu encontro. É preciso não esquecer que, durante o sono, a alma sempre está mais ou menos sob a influência da matéria e que, por conseguinte, nunca se liberta completamente de suas ideias terrenas, donde resulta que as preocupações do estado de vigília podem dar ao que se vê a aparência do que se deseja, ou do que se teme. A isto é que, em verdade, cabe chamar-se efeito da imaginação. Sempre que uma ideia nos preocupa fortemente, tudo o que vemos se nos mostra ligado a essa ideia.*
 
-###### 406 — Quando em sonho vemos pessoas vivas, muito nossas conhecidas, a praticarem atos de que absolutamente não cogitam, não é isso puro efeito de imaginação?
+### 406 — Quando em sonho vemos pessoas vivas, muito nossas conhecidas, a praticarem atos de que absolutamente não cogitam, não é isso puro efeito de imaginação?
 
 *— De que absolutamente não cogitam, dizes. Que sabes a tal respeito? Os Espíritos dessas pessoas vêm visitar o teu como o teu os vai visitar, sem que saibas sempre aquilo em que eles pensam. Ademais, não é raro atribuirdes, de acordo com o que desejais, a pessoas que conheceis, o que se deu ou se está dando em outras existências.*
 
-###### 407 — É necessário o sono completo para a emancipação do Espírito?
+### 407 — É necessário o sono completo para a emancipação do Espírito?
 
 *— Não; basta que os sentidos entrem em torpor para que o Espírito recobre a sua liberdade. Para se emancipar, ele se aproveita de todos os instantes de trégua que o corpo lhe concede. Desde que haja prostração das forças vitais, o Espírito se desprende, tornando-se tanto mais livre quanto mais fraco for o corpo.*
 
 Assim é que quando estamos apenas adormecidos, ou em simples modorra, frequentemente vemos imagens idênticas às que se apresentam nos sonhos.
 
 
-###### 408 — Parece-nos algumas vezes ouvirmos em nós mesmos palavras pronunciadas distintamente e que nenhum nexo têm com o que nos preocupa. Qual a razão disso?
+### 408 — Parece-nos algumas vezes ouvirmos em nós mesmos palavras pronunciadas distintamente e que nenhum nexo têm com o que nos preocupa. Qual a razão disso?
 
 *— É fato: ouvis até mesmo frases inteiras, principalmente quando os sentidos começam a entorpecer-se. É, algumas vezes, fraco eco do que diz um Espírito que convosco se quer comunicar.*
 
-###### 409 — Outras vezes, num estado que ainda não é bem o do adormecimento, estando com os olhos fechados, vemos imagens distintas, figuras cujas mínimas particularidades percebemos. Que há aí, efeito de visão ou de imaginação?
+### 409 — Outras vezes, num estado que ainda não é bem o do adormecimento, estando com os olhos fechados, vemos imagens distintas, figuras cujas mínimas particularidades percebemos. Que há aí, efeito de visão ou de imaginação?
 
 *— Estando entorpecido o corpo, o Espírito trata de desprender-se. Transporta-se e vê. Se fosse completo o sono, já seria sonho.*
 
-###### 410 — Dá-se também que, durante o sono, ou quando nos achamos apenas ligeiramente adormecidos, acodem-nos ideias que nos parecem excelentes e que se nos apagam da memória, apesar dos esforços que façamos para retê-las. Donde vêm essas ideias?
+### 410 — Dá-se também que, durante o sono, ou quando nos achamos apenas ligeiramente adormecidos, acodem-nos ideias que nos parecem excelentes e que se nos apagam da memória, apesar dos esforços que façamos para retê-las. Donde vêm essas ideias?
 
 *— Provêm da liberdade do Espírito que se emancipa e que, emancipado, goza de mais faculdades. Também são, frequentemente, conselhos que outros Espíritos dão.*
 
@@ -74,64 +76,64 @@ Assim é que quando estamos apenas adormecidos, ou em simples modorra, frequente
 
 *— Algumas vezes essas ideias mais dizem respeito ao mundo dos Espíritos do que ao mundo corpóreo. Com mais frequência, porém, se o corpo as esquece, o Espírito as retêm, e voltam no momento necessário, como uma inspiração súbita.*
 
-###### 411 — Estando desprendido da matéria e atuando como Espírito, sabe o Espírito encarnado qual será a época de sua morte?
+### 411 — Estando desprendido da matéria e atuando como Espírito, sabe o Espírito encarnado qual será a época de sua morte?
 
 *— Frequentemente acontece pressenti-la. Algumas vezes também sucede ter nítida consciência dessa época, o que dá lugar a que, em estado de vigília, tenha intuição do fato. Por isso é que algumas pessoas preveem com grande exatidão a data em que virão a morrer.*
 
-###### 412 — Pode a atividade do Espírito durante o repouso ou sono corporal fatigar o corpo?
+### 412 — Pode a atividade do Espírito durante o repouso ou sono corporal fatigar o corpo?
 
 *— Pode, pois que o Espírito se acha preso ao corpo qual balão cativo ao poste. Assim como as sacudiduras do balão abalam o poste, a atividade do Espírito reage sobre o corpo e pode fatigá-lo.*
 
 
 
-##### Visitas espíritas entre pessoas vivas
-###### 413 — Do princípio da emancipação da alma parece decorrer que temos duas existências simultâneas: a do corpo, que nos permite a vida de relação ostensiva; e a da alma, que nos proporciona a vida de relação oculta. É assim?
+## Visitas espíritas entre pessoas vivas
+### 413 — Do princípio da emancipação da alma parece decorrer que temos duas existências simultâneas: a do corpo, que nos permite a vida de relação ostensiva; e a da alma, que nos proporciona a vida de relação oculta. É assim?
 
 *— No estado de emancipação, prima a vida da alma. Contudo, não há, verdadeiramente, duas existências. São antes duas fases de uma só existência, porquanto o homem não vive duplamente.*
 
-###### 414 — Podem duas pessoas que se conhecem visitar-se durante o sono?
+### 414 — Podem duas pessoas que se conhecem visitar-se durante o sono?
 
 *— Sim, e muitos que julgam não se conhecerem costumam reunir-se e falar-se. Podes ter, sem que o suspeites, amigos em outro país. É tão habitual o fato de irdes encontrar-vos, durante o sono, com amigos e parentes, com os que conheceis e com pessoas que vos podem ser úteis, que quase todas as noites fazeis essas visitas.*
 
-###### 415 — Que utilidade podem elas ter, se as olvidamos?
+### 415 — Que utilidade podem elas ter, se as olvidamos?
 
 *— De ordinário, ao despertardes, guardais a intuição desse fato, do qual frequentemente se originam certas ideias que vos vêm espontaneamente, sem que possais explicar como vos acudiram. São ideias que adquiristes nessas confabulações.*
 
-###### 416 — Pode o homem, pela sua vontade, provocar as visitas espíritas? Pode, por exemplo, dizer, quando está para dormir: Quero esta noite encontrar-me em Espírito com fulano, quero falar-lhe para dizer isto?
+### 416 — Pode o homem, pela sua vontade, provocar as visitas espíritas? Pode, por exemplo, dizer, quando está para dormir: Quero esta noite encontrar-me em Espírito com fulano, quero falar-lhe para dizer isto?
 
 *— O que se dá é o seguinte: adormecendo o homem, seu Espírito desperta e, muitas vezes, nada disposto se mostra a fazer o que o homem resolvera, porque a vida deste pouco interessa ao seu Espírito, uma vez desprendido da matéria. Isto com relação a homens já bastante elevados espiritualmente. Os outros passam de modo muito diverso a fase espiritual de sua existência terrena; entregam-se às suas paixões, ou se mantêm inativos. Pode, pois, suceder, tais sejam os motivos que a isso o induzem, que o Espírito vá visitar aqueles com quem deseja encontrar-se. Mas não constitui razão, para que semelhante coisa se verifique, o simples fato de ele o querer quando desperto.*
 
-###### 417 — Podem Espíritos encarnados reunir-se em certo número e formar assembleias?
+### 417 — Podem Espíritos encarnados reunir-se em certo número e formar assembleias?
 
 *— Sem dúvida alguma. Os laços, antigos ou recentes, da amizade costumam reunir desse modo diversos Espíritos, que se sentem felizes de estar juntos.*
 
 Pelo termo antigos se devem entender os laços de amizade contraídos em existências anteriores. Ao despertar, guardamos intuição das ideias que haurimos nesses colóquios, mas ficamos na ignorância da fonte donde promanaram.
 
-###### 418 — Uma pessoa que julgasse morto um de seus amigos, sem que tal fosse a realidade, poderia encontrar-se com ele, em Espírito, e verificar que continua vivo? Poderia, neste caso, ter a intuição desse fato ao despertar?
+### 418 — Uma pessoa que julgasse morto um de seus amigos, sem que tal fosse a realidade, poderia encontrar-se com ele, em Espírito, e verificar que continua vivo? Poderia, neste caso, ter a intuição desse fato ao despertar?
 
 *— Como Espírito, a pessoa que figuras pode ver o seu amigo e conhecer-lhe a sorte. Se lhe não houver sido imposto, por prova, crer na morte desse amigo, poderá ter um pressentimento da sua existência, como poderá tê-lo de sua morte.*
 
 
-##### Transmissão oculta do pensamento
-###### 419 — Que é o que dá causa a que uma ideia, a de uma descoberta, por exemplo, surja em muitos pontos ao mesmo tempo?
+## Transmissão oculta do pensamento
+### 419 — Que é o que dá causa a que uma ideia, a de uma descoberta, por exemplo, surja em muitos pontos ao mesmo tempo?
 
 *— Já dissemos que durante o sono os Espíritos se comunicam entre si. Ora, quando se dá o despertar, o Espírito se lembra do que aprendeu e o homem julga ser isso um invento de sua autoria. Assim é que muitos podem simultaneamente descobrir a mesma coisa. Quando dizeis que uma ideia paira no ar, usais de uma figura mais exata do que supondes. Todos, sem o suspeitarem, contribuem para propagá-la.*
 
 Desse modo, o nosso próprio Espírito muitas vezes revela a outros Espíritos, sem que disso nos demos conta, o que constituía objeto de nossas preocupações no estado de vigília.
 
-###### 420 — Podem os Espíritos comunicar-se, estando completamente despertos os corpos?
+### 420 — Podem os Espíritos comunicar-se, estando completamente despertos os corpos?
 
 *— O Espírito não se acha encerrado no corpo como numa caixa; irradia por todos os lados. Segue-se que pode comunicar-se com outros Espíritos, mesmo em estado de vigília, se bem que mais dificilmente.*
 
-###### 421 — Como se explica que duas pessoas perfeitamente acordadas tenham instantaneamente a mesma ideia?
+### 421 — Como se explica que duas pessoas perfeitamente acordadas tenham instantaneamente a mesma ideia?
 
 *— São dois Espíritos simpáticos que se comunicam e veem reciprocamente seus pensamentos respectivos, embora sem estarem adormecidos os corpos.*
 
 Há, entre os Espíritos que se encontram, uma comunicação de pensamento, que dá causa a que duas pessoas se vejam e compreendam, sem precisarem dos sinais ostensivos da linguagem. Poder-se-ia dizer que falam entre si a linguagem dos Espíritos.
 
 
-##### Letargia, catalepsia, mortes aparentes
-###### 422 — Os letárgicos e os catalépticos, em geral, veem e ouvem o que se passa em derredor, sem que possam exprimir que estão vendo e ouvindo. É pelos olhos e pelos ouvidos que têm essas percepções?
+## Letargia, catalepsia, mortes aparentes
+### 422 — Os letárgicos e os catalépticos, em geral, veem e ouvem o que se passa em derredor, sem que possam exprimir que estão vendo e ouvindo. É pelos olhos e pelos ouvidos que têm essas percepções?
 
 *— Não; pelo Espírito. O Espírito tem consciência de si, mas não pode comunicar-se.*
 
@@ -139,123 +141,123 @@ Há, entre os Espíritos que se encontram, uma comunicação de pensamento, que 
 
 *— Porque a isso se opõe o estado do corpo. Esse estado especial dos órgãos vos prova que no homem há alguma coisa mais do que o corpo, pois que, então, o corpo já não funciona e, no entanto, o Espírito continua ativo.*
 
-###### 423 — Na letargia, pode o Espírito separar-se inteiramente do corpo, de modo a imprimir-lhe todas as aparências da morte e voltar depois a habitá-lo?
+### 423 — Na letargia, pode o Espírito separar-se inteiramente do corpo, de modo a imprimir-lhe todas as aparências da morte e voltar depois a habitá-lo?
 
 *— Na letargia, o corpo não está morto, porquanto há funções que continuam a executar-se. Sua vitalidade se encontra em estado latente, como na crisálida, porém não aniquilada. Ora, enquanto o corpo vive, o Espírito se lhe acha ligado. Em se rompendo, por efeito da morte real e pela desagregação dos órgãos, os laços que prendem um ao outro, integral se torna a separação e o Espírito não volta mais ao seu envoltório. Quando um homem aparentemente morto volve à vida, é que não era completa a morte.*
 
-###### 424 — Por meio de cuidados dispensados a tempo, podem reatar-se laços prestes a se desfazerem, restituindo-se à vida um ser que definitivamente morreria se não fosse socorrido?
+### 424 — Por meio de cuidados dispensados a tempo, podem reatar-se laços prestes a se desfazerem, restituindo-se à vida um ser que definitivamente morreria se não fosse socorrido?
 
 *— Sem dúvida e todos os dias tendes a prova disso. O magnetismo, em tais casos, constitui, muitas vezes, poderoso meio de ação, porque restitui ao corpo o fluido vital que lhe falta para manter o funcionamento dos órgãos.*
 
 A letargia e a catalepsia derivam do mesmo princípio, que é a perda temporária da sensibilidade e do movimento, por uma causa fisiológica ainda não explicada. Diferem uma da outra em que, na letargia, a suspensão das forças vitais é geral e dá ao corpo todas as aparências da morte; na catalepsia, fica localizada, podendo atingir uma parte mais ou menos extensa do corpo, de sorte a permitir que a inteligência se manifeste livremente, o que a torna inconfundível com a morte. A letargia é sempre natural; a catalepsia é por vezes espontânea, mas pode ser provocada e anulada artificialmente pela ação magnética.
 
 
-##### Sonambulismo
-###### 425 — O sonambulismo natural tem alguma relação com os sonhos? Como explicá-lo?
+## Sonambulismo
+### 425 — O sonambulismo natural tem alguma relação com os sonhos? Como explicá-lo?
 
 *— É um estado de independência da alma mais completo do que o do sonho. Quando nele, suas faculdades adquirem maior amplitude. A alma tem então percepções de que não dispõe no sonho, que é um estado de sonambulismo imperfeito.*
 
 *No sonambulismo, o Espírito está na posse plena de si mesmo. Os órgãos materiais, achando-se de certa forma em estado de catalepsia, deixam de receber as impressões exteriores. Esse estado se apresenta principalmente durante o sono, ocasião em que o Espírito pode abandonar provisoriamente o corpo, por se encontrar este gozando do repouso indispensável à matéria. Quando se produzem os fatos do sonambulismo, é que o Espírito, preocupado com uma coisa ou outra, se aplica a uma ação qualquer, para cuja prática necessita de utilizar-se do corpo. Serve-se então deste, como se serve de uma mesa ou de outro objeto material no fenômeno das manifestações físicas, ou mesmo como se utiliza da mão do médium nas comunicações escritas. Nos sonhos de que se tem consciência, os órgãos, inclusive os da memória, começam a despertar. Recebem imperfeitamente as impressões produzidas por objetos ou causas externas e as comunicam ao Espírito, que, então, também em repouso, só experimenta, do que lhe é transmitido, sensações confusas e, amiúde, desordenadas, sem nenhuma aparente razão de ser, mescladas que se apresentam de vagas recordações, quer da existência atual, quer de anteriores. Facilmente, portanto, se compreende por que os sonâmbulos nenhuma lembrança guardam do que se passou enquanto estiveram no estado sonambulismo, e por que os sonhos de que se conserva memória as mais das vezes não têm sentido. Digo as mais das vezes, porque também sucede serem a consequência de lembrança exata de acontecimentos de uma vida anterior e até, em certos casos, uma espécie de intuição do futuro.*
 
-###### 426 — O chamado sonambulismo magnético tem alguma relação com o sonambulismo natural?
+### 426 — O chamado sonambulismo magnético tem alguma relação com o sonambulismo natural?
 
 *— É a mesma coisa, com a só diferença de ser provocado.*
-###### 427 — De que natureza é o agente que se chama fluido magnético?
+### 427 — De que natureza é o agente que se chama fluido magnético?
 
 *— Fluido vital, eletricidade animalizada, que são modificações do fluido universal.*
-###### 428 — Qual a causa da clarividência sonambúlica?
+### 428 — Qual a causa da clarividência sonambúlica?
 
 *— Já o dissemos: é a alma que vê.*
-###### 429 — Como pode o sonâmbulo ver através dos corpos opacos?
+### 429 — Como pode o sonâmbulo ver através dos corpos opacos?
 
 *— Não há corpos opacos senão para os vossos grosseiros órgãos. Já precedentemente não dissemos que a matéria nenhum obstáculo oferece ao Espírito, que livremente a atravessa? Frequentemente ouvis o sonâmbulo dizer que vê pela fronte, pelo joelho, etc., porque, achando-vos inteiramente presos à matéria, não compreendeis lhe seja possível ver sem o auxílio dos órgãos. Ele próprio, pelo desejo que manifestais, julga precisar dos órgãos. Se, porém, o deixásseis livre, compreenderia que vê por todas as partes do seu corpo, ou, melhor falando, que vê de fora do seu corpo.*
 
-###### 430 — Pois que a sua clarividência é a de sua alma ou de seu Espírito, por que é que o sonâmbulo não vê tudo e tantas vezes se engana?
+### 430 — Pois que a sua clarividência é a de sua alma ou de seu Espírito, por que é que o sonâmbulo não vê tudo e tantas vezes se engana?
 
 *— Primeiramente, aos Espíritos imperfeitos não é dado verem tudo e tudo saberem. Não ignoras que ainda partilham dos vossos erros e prejuízos. Depois, quando unidos à matéria não gozam de todas as suas faculdades de Espírito. Deus outorgou ao homem a faculdade sonambúlica para fim útil e sério, não para que se informe do que não deva saber. Eis por que os sonâmbulos nem tudo podem dizer.*
 
-###### 431 — Qual a origem das ideias inatas do sonâmbulo, e como pode falar com exatidão de coisas que ignora quando desperto, de coisas que estão mesmo acima de sua capacidade intelectual?
+### 431 — Qual a origem das ideias inatas do sonâmbulo, e como pode falar com exatidão de coisas que ignora quando desperto, de coisas que estão mesmo acima de sua capacidade intelectual?
 
 *— É que o sonâmbulo possui mais conhecimentos do que os que lhe supões. Apenas, tais conhecimentos dormitam, porque, por demasiado imperfeito, seu envoltório corporal não lhe permite rememorá-los. Que é, afinal, um sonâmbulo? Espírito, como nós, e que se encontra encarnado na matéria para cumprir a sua missão, despertando dessa letargia quando cai em estado sonambúlico. Já te temos dito, repetidamente, que renascemos muitas vezes. Essa mudança de condição é que, ao sonâmbulo, como a qualquer Espírito, ocasiona a perda material do que haja aprendido em precedente existência. Entrando no estado a que chamas crise, lembra-se do que sabe, mas sempre de modo incompleto. Sabe, mas não poderia dizer donde lhe vem o que sabe, nem como possui os conhecimentos que revela. Passada a crise, toda recordação se apaga e ele volve à obscuridade.*
 
 Mostra a experiência que os sonâmbulos também recebem comunicações de outros Espíritos, que lhes transmitem o que devam dizer e suprem à incapacidade que denotam. Isto se verifica principalmente nas prescrições médicas. O Espírito do sonâmbulo vê o mal, outro lhe indica o remédio. Essa dupla ação é às vezes patente e se revela, além disso, por estas expressões muito frequentes: dizem-me que diga, ou proíbem-me que diga tal coisa. Neste último caso, há sempre perigo em insistir-se por uma revelação negada, porque se dá azo a que intervenham Espíritos levianos, que falam de tudo sem escrúpulo e sem se importarem com a verdade.
 
-###### 432 — Como se explica a visão à distância em certos sonâmbulos?
+### 432 — Como se explica a visão à distância em certos sonâmbulos?
 
 *— Durante o sono, a alma não se transporta? O mesmo se dá no sonambulismo.*
-###### 433 — O desenvolvimento maior ou menor da clarividência sonambúlica depende da organização física, ou só da natureza do Espírito encarnado?
+### 433 — O desenvolvimento maior ou menor da clarividência sonambúlica depende da organização física, ou só da natureza do Espírito encarnado?
 
 *— De uma e outra. Há disposições físicas que permitem ao Espírito desprender-se mais ou menos facilmente da matéria.*
 
-###### 434 — As faculdades de que goza o sonâmbulo são as que tem o Espírito depois da morte?
+### 434 — As faculdades de que goza o sonâmbulo são as que tem o Espírito depois da morte?
 
 *— Somente até certo ponto, pois cumpre se atenda à influência da matéria a que ainda se acha ligado.*
-###### 435 — Pode o sonâmbulo ver os outros Espíritos?
+### 435 — Pode o sonâmbulo ver os outros Espíritos?
 
 *— A maioria deles os vê muito bem, dependendo do grau e da natureza da lucidez de cada um. Algumas vezes, porém, não percebem no primeiro momento que estão vendo Espíritos, e os tomam por seres corpóreos. Isso acontece principalmente aos que, nada conhecendo do Espiritismo, ainda não compreendem a essência dos Espíritos. O fato os espanta e os faz supor que têm diante da vista seres encarnados.*
 
 O mesmo se dá com os que, tendo morrido, ainda se julgam vivos. Nenhuma alteração notando ao seu derredor e parecendo-lhes que os Espíritos têm corpos semelhantes aos nossos, tomam a aparência de seus próprios corpos por um corpo real.
 
-###### 436 — O sonâmbulo que vê à distância, vê do ponto em que se acha o seu corpo, ou do em que está sua alma?
+### 436 — O sonâmbulo que vê à distância, vê do ponto em que se acha o seu corpo, ou do em que está sua alma?
 
 *— Por que esta pergunta, uma vez que sabes ser a alma que vê, e não o corpo?*
 
-###### 437 — Dado que, nos fenômenos sonambúlicos, é a alma que se transporta, como pode o sonâmbulo experimentar no corpo as sensações do frio e do calor existentes no lugar onde se acha sua alma, muitas vezes bem distante do seu corpo?
+### 437 — Dado que, nos fenômenos sonambúlicos, é a alma que se transporta, como pode o sonâmbulo experimentar no corpo as sensações do frio e do calor existentes no lugar onde se acha sua alma, muitas vezes bem distante do seu corpo?
 
 *— A alma, em tais casos, não deixa inteiramente o corpo; conserva-se-lhe presa pelo laço que os liga e que então desempenha o papel de condutor das sensações. Quando duas pessoas se comunicam de uma cidade para outra, por meio da eletricidade, esta constitui o laço que lhes liga os pensamentos. Daí vem que confabulam como se estivessem ao lado uma da outra.* 
 
 (Ver o n.º 257, "Ensaio teórico da sensação nos Espíritos".)
 
-###### 438 — O uso que um sonâmbulo faz da sua faculdade influi no estado do seu Espírito depois da morte?
+### 438 — O uso que um sonâmbulo faz da sua faculdade influi no estado do seu Espírito depois da morte?
 
 *— Muito, como o bom ou mau uso que o homem faz de todas as faculdades com que Deus o dotou.*
 
-##### Êxtase
-###### 439 — Que diferença há entre o êxtase e o sonambulismo?
+## Êxtase
+### 439 — Que diferença há entre o êxtase e o sonambulismo?
 
 *— O êxtase é um sonambulismo mais apurado. A alma do extático é ainda mais independente.*
-###### 440 — O Espírito do extático penetra realmente nos mundos superiores?
+### 440 — O Espírito do extático penetra realmente nos mundos superiores?
 
 *— Vê esses mundos e compreende a felicidade dos que os habitam, donde lhe nasce o desejo de lá permanecer. Há, porém, mundos inacessíveis aos Espíritos que ainda não estão bastante purificados.*
 
-###### 441 — Quando o extático manifesta o desejo de deixar a Terra, fala sinceramente? Não o retém o instinto de conservação?
+### 441 — Quando o extático manifesta o desejo de deixar a Terra, fala sinceramente? Não o retém o instinto de conservação?
 
 *— Isso depende do grau de purificação do Espírito. Se verifica que a sua futura situação será melhor do que a sua vida presente, esforça-se por desatar os laços que o prendem à Terra.*
 
-###### 442 — Se se deixasse o extático entregue a si mesmo, poderia sua alma abandonar definitivamente o corpo?
+### 442 — Se se deixasse o extático entregue a si mesmo, poderia sua alma abandonar definitivamente o corpo?
 
 *— Perfeitamente, poderia morrer. Por isso é que preciso se torna chamá-lo a voltar, apelando para tudo o que o prende a este mundo, fazendo-lhe sobretudo compreender que a maneira mais certa de não ficar lá, onde vê que seria feliz, consistiria em partir a cadeia que o prende ao planeta terreno.*
 
-###### 443 — Como o extático supõe ver coisas que evidentemente são produto de uma imaginação que as crenças e prejuízos terrestres impressionaram, não será justo concluir-se que nem tudo o que ele vê é real?
+### 443 — Como o extático supõe ver coisas que evidentemente são produto de uma imaginação que as crenças e prejuízos terrestres impressionaram, não será justo concluir-se que nem tudo o que ele vê é real?
 
 *— O que o extático vê é real para ele. Mas como seu Espírito se conserva sempre sob a influência das ideias terrenas, pode acontecer que veja a seu modo, ou melhor, que exprima o que vê numa linguagem moldada pelos preconceitos e ideias de que se acha imbuído, ou, então, pelos vossos preconceitos e ideias, a fim de ser mais bem compreendido. Neste sentido, principalmente, é que lhe sucede errar.*
 
-###### 444 — Que confiança se pode depositar nas revelações dos extáticos?
+### 444 — Que confiança se pode depositar nas revelações dos extáticos?
 
 *— O extático está sujeito a enganar-se muito frequentemente, sobretudo quando pretende penetrar no que deva continuar a ser mistério para o homem, porque, então, se deixa levar pela corrente das suas próprias ideias, ou se torna joguete de Espíritos mistificadores, que se aproveitam de seu entusiasmo para fasciná-lo.*
 
-###### 445 — Que deduções se podem tirar dos fenômenos do sonambulismo e do êxtase? Não constituirão uma espécie de iniciação na vida futura?
+### 445 — Que deduções se podem tirar dos fenômenos do sonambulismo e do êxtase? Não constituirão uma espécie de iniciação na vida futura?
 
 *— A bem dizer, mediante esses fenômenos, o homem entrevê a vida passada e a vida futura. Estude-os e achará o aclaramento de mais de um mistério, que a sua razão inutilmente procura devassar.*
 
-###### 446 — Poderiam tais fenômenos adequar-se às ideias materialistas?
+### 446 — Poderiam tais fenômenos adequar-se às ideias materialistas?
 
 *— Aquele que os estudar de boa-fé e sem prevenções não poderá ser materialista, nem ateu.*
 
-##### Segunda vista
-###### 447 — O fenômeno a que se dá a designação de segunda vista tem alguma relação com o sonho e o sonambulismo?
+## Segunda vista
+### 447 — O fenômeno a que se dá a designação de segunda vista tem alguma relação com o sonho e o sonambulismo?
 
 *— Tudo isso é uma só coisa. O que chamas segunda vista é ainda resultado da libertação do Espírito, sem que o corpo seja adormecido. A segunda vista é a vista da alma.*
 
-###### 448 — É permanente a segunda vista?
+### 448 — É permanente a segunda vista?
 
 *— A faculdade é, o exercício não. Nos mundos menos materiais do que o vosso, os Espíritos se desprendem mais facilmente e se põem em comunicação apenas pelo pensamento, sem que, todavia, fique abolida a linguagem articulada. Por isso mesmo, em tais mundos, a dupla vista é faculdade permanente, para a maioria de seus habitantes, cujo estado normal se pode comparar ao dos vossos sonâmbulos lúcidos. Essa também a razão por que esses Espíritos se manifestam a vós com maior facilidade do que os encarnados em corpos mais grosseiros.*
 
-###### 449 — A segunda vista desenvolve-se espontaneamente ou por efeito da vontade de quem a possui como faculdade?
+### 449 — A segunda vista desenvolve-se espontaneamente ou por efeito da vontade de quem a possui como faculdade?
 
 *— As mais das vezes é espontânea, porém com frequência também a vontade desempenha importante papel no seu desenvolvimento. Toma, para exemplo, de umas dessas pessoas a quem se dá o nome de ledoras de sorte, algumas das quais dispõem desse poder, e verás que é a vontade que as auxilia a entrar no estado de segunda vista e no que chamas visão.*
 
-###### 450 — A segunda vista é suscetível de desenvolver-se pelo exercício?
+### 450 — A segunda vista é suscetível de desenvolver-se pelo exercício?
 
 *— Sim, do trabalho sempre resulta o progresso e a dissipação do véu que encobre as coisas.*
 
@@ -263,21 +265,21 @@ O mesmo se dá com os que, tendo morrido, ainda se julgam vivos. Nenhuma altera�
 
 *— Incontestavelmente, o organismo influi para a sua existência. Há organismos que lhe são refratários.*
 
-###### 451 — Por que é que a segunda vista parece hereditária em algumas famílias?
+### 451 — Por que é que a segunda vista parece hereditária em algumas famílias?
 
 *— Por semelhança do organismo, que se transmite como as outras qualidades físicas. Depois, a faculdade se desenvolve por uma espécie de educação, que também se transmite de um a outro.*
 
-###### 452 — É exato que certas circunstâncias desenvolvem a segunda vista?
+### 452 — É exato que certas circunstâncias desenvolvem a segunda vista?
 
 *— A moléstia, a proximidade do perigo, uma grande comoção podem desenvolvê-la. O corpo, às vezes, vem a achar-se num estado especial que faculta ao Espírito ver o que não podeis ver com os olhos carnais.*
 
 Nas épocas de crises e de calamidades, as grandes emoções, todas as causas, enfim, de superexcitação do moral provocam às vezes o desenvolvimento da segunda vista. Parece que a Providência, quando um perigo nos ameaça, nos dá o meio de conjurá-lo. Todas as seitas e partidos perseguidos oferecem múltiplos exemplos desse fato.
 
-###### 453 — As pessoas dotadas de segunda vista sempre têm consciência de que a possuem?
+### 453 — As pessoas dotadas de segunda vista sempre têm consciência de que a possuem?
 
 *— Nem sempre. Consideram isso coisa perfeitamente natural e muitos creem que, se cada um observasse o que se passa consigo, todos verificariam que são como eles.*
 
-###### 454 — Poder-se-ia atribuir a uma espécie de segunda vista a perspicácia de algumas pessoas que, sem nada apresentarem de extraordinário, apreciam as coisas com mais precisão do que outras?
+### 454 — Poder-se-ia atribuir a uma espécie de segunda vista a perspicácia de algumas pessoas que, sem nada apresentarem de extraordinário, apreciam as coisas com mais precisão do que outras?
 
 *— É sempre a alma a irradiar mais livremente e a apreciar melhor do que sob o véu da matéria.*
 
@@ -286,7 +288,7 @@ Nas épocas de crises e de calamidades, as grandes emoções, todas as causas, e
 *— Pode. Também dá os pressentimentos, pois que muitos são os graus em que ela existe, sendo possível que num mesmo indivíduo exista em todos os graus, ou em alguns somente.*
 
 
-##### 455 - Resumo teórico do sonambulismo, do êxtase e da segunda vista
+## 455 - Resumo teórico do sonambulismo, do êxtase e da segunda vista
 
 Os fenômenos do sonambulismo natural se produzem espontaneamente e independem de qualquer causa exterior conhecida. Mas, em certas pessoas dotadas de especial organização física, podem ser provocados artificialmente, pela ação do agente magnético.
 
