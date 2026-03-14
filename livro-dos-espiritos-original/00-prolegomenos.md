@@ -1,6 +1,4 @@
----
-title: 'Prolegômenos'
----
+# Prolegômenos
 
 Fenômenos alheios às leis da ciência ordinária se dão por toda parte, revelando na causa que os produz a ação de uma vontade livre e inteligente.
 
