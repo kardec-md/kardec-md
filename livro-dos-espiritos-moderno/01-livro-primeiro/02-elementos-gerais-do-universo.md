@@ -1,7 +1,3 @@
----
-title: 'Capítulo 2 - Elementos gerais do Universo'
----
-
 # Capítulo 2 - Elementos gerais do Universo
 
 ## Conhecimento do princípio das coisas

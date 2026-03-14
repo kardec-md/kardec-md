@@ -1,7 +1,3 @@
----
-title: 'Capítulo 4 - Pluralidade das existências'
----
-
 # Capítulo 4 - Pluralidade das existências
 
 ## A reencarnação

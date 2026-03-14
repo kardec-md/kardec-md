@@ -1,7 +1,3 @@
----
-title: 'Capítulo 1 - Deus'
----
-
 # Capítulo 1 - Deus
 
 ## Deus e o infinito

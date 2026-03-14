@@ -1,7 +1,3 @@
----
-title: 'Capítulo 1 - Penas e gozos terrestres'
----
-
 # Capítulo 1 - Penas e gozos terrestres
 
 ## Felicidade e infelicidade relativas

@@ -1,7 +1,3 @@
----
-title: 'Capítulo 8 - Lei do progresso'
----
-
 # Capítulo 8 - Lei do progresso
 
 ## Estado de natureza

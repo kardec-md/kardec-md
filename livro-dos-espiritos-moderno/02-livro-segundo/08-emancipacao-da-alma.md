@@ -1,7 +1,3 @@
----
-title: 'Capítulo 8 - Emancipação da alma'
----
-
 # Capítulo 8 - Emancipação da alma
 
 ## O sono e os sonhos

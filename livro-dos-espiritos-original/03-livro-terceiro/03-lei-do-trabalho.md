@@ -1,7 +1,3 @@
----
-title: 'Capítulo 3 - Lei do trabalho'
----
-
 # Capítulo 3 - Lei do trabalho
 
 ## Necessidade do trabalho

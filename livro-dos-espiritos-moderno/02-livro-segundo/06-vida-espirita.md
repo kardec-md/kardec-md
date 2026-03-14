@@ -1,7 +1,3 @@
----
-title: 'Capítulo 6 - Vida espírita'
----
-
 # Capítulo 6 - Vida espírita
 
 ## Espíritos errantes

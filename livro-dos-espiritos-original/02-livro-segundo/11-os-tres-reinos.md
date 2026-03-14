@@ -1,7 +1,3 @@
----
-title: 'Capítulo 11 - Os três reinos'
----
-
 # Capítulo 11 - Os três reinos
 
 ## Os minerais e as plantas

@@ -1,7 +1,3 @@
----
-title: 'Capítulo 1 - Lei divina ou natural'
----
-
 # Capítulo 1 - Lei divina ou natural
 
 ## Caracteres da lei natural

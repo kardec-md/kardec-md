@@ -1,7 +1,3 @@
----
-title: 'Capítulo 3 - Criação'
----
-
 # Capítulo 3 - Criação
 
 ## Formação dos mundos

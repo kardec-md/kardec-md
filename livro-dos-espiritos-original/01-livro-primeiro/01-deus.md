@@ -1,7 +1,3 @@
----
-title: 'Capítulo 1 - Deus'
----
-
 # Capítulo 1 - Deus
 
 ## Deus e o infinito
@@ -20,8 +16,9 @@ title: 'Capítulo 1 - Deus'
 
 Deus é infinito em suas perfeições, mas o infinito é uma abstração. Dizer que Deus é o infinito é tomar o atributo de uma coisa pela coisa mesma, é definir uma coisa que não é conhecida por uma outra que não o é mais do que a primeira.
 
---- 
-\**As perguntas feitas aos espíritos estão em **negrito**, e as respostas destes em _itálico_. As notas de Allan Kardec constam logo em seguida, sem formatação.
+---
+
+As perguntas feitas aos espíritos estão em **negrito**, e as respostas destes em _itálico_. As notas de Allan Kardec constam logo em seguida, sem formatação.
 
 
 ## Provas da existência de Deus

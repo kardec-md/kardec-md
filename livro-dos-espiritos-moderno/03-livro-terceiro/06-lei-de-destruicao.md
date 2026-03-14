@@ -1,7 +1,3 @@
----
-title: 'Capítulo 6 - Lei de destruição'
----
-
 # Capítulo 6 - Lei de destruição
 
 ## Destruição necessária e destruição abusiva

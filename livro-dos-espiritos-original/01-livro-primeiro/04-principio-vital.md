@@ -1,7 +1,3 @@
----
-title: 'Capítulo 4 - Princípio vital'
----
-
 # Capítulo 4 - Princípio vital
 
 ## Seres orgânicos e inorgânicos

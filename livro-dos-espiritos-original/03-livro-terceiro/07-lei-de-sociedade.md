@@ -1,7 +1,3 @@
----
-title: 'Capítulo 7 - Lei de sociedade'
----
-
 # Capítulo 7 - Lei de sociedade
 
 ## Necessidade da vida social

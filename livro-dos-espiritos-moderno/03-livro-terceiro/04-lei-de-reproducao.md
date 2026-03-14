@@ -1,7 +1,3 @@
----
-title: 'Capítulo 4 - Lei de reprodução'
----
-
 # Capítulo 4 - Lei de reprodução
 
 ## População do globo

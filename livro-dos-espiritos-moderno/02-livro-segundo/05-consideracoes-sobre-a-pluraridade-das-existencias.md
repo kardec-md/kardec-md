@@ -1,7 +1,3 @@
----
-title: 'Capítulo 5 - Sobre a pluralidade das existências'
----
-
 # Capítulo 5 - Sobre a pluralidade das existências
 
 ### 222

@@ -1,7 +1,3 @@
----
-title: 'Capítulo 10 - Ocupações e missões dos Espíritos'
----
-
 # Capítulo 10 - Ocupações e missões dos Espíritos
 
 ### 558 — Alguma outra coisa incumbe aos Espíritos fazer, que não seja melhorarem-se pessoalmente?

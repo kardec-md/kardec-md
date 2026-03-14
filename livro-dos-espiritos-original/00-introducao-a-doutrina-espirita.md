@@ -1,8 +1,4 @@
----
-title: 'Introdução ao estudo da Doutrina Espírita'
----
-
-# Introdução ao estudo da Doutrina Espírita
+# Introdução à Doutrina Espírita
 
 ### I
 

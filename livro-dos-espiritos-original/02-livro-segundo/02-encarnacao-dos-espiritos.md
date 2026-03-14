@@ -1,7 +1,3 @@
----
-title: 'Capítulo 2 - Encarnação dos Espíritos'
----
-
 # Capítulo 2 - Encarnação dos Espíritos
 
 ## Objetivo da encarnação

@@ -1,7 +1,3 @@
----
-title: 'Capítulo 7 - Retorno à vida corporal'
----
-
 # Capítulo 7 - Retorno à vida corporal
 
 ## Prelúdio da volta

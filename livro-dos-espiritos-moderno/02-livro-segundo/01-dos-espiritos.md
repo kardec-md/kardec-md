@@ -1,7 +1,3 @@
----
-title: 'Capítulo 1 - Dos Espíritos'
----
-
 # Capítulo 1 - Dos Espíritos
 
 ## Origem e natureza dos Espíritos

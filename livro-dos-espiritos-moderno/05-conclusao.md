@@ -1,7 +1,3 @@
----
-title: 'Conclusão'
----
-
 # Conclusão
 
 ### I

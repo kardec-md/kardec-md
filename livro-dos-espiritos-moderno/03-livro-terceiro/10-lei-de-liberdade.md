@@ -1,7 +1,3 @@
----
-title: 'Capítulo 10 - Lei de liberdade'
----
-
 # Capítulo 10 - Lei de liberdade
 
 ## Liberdade natural

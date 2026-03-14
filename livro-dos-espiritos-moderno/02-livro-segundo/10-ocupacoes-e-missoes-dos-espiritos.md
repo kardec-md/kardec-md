@@ -1,7 +1,3 @@
----
-title: 'Capítulo 10 - Ocupações e missões dos Espíritos'
----
-
 # Capítulo 10 - Ocupações e missões dos Espíritos
 
 ### 558 — Os Espíritos têm outras ocupações além de se aperfeiçoarem pessoalmente?

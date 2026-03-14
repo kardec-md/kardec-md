@@ -1,7 +1,3 @@
----
-title: 'Capítulo 5 - Lei de conservação'
----
-
 # Capítulo 5 - Lei de conservação
 
 ## Instinto de conservação

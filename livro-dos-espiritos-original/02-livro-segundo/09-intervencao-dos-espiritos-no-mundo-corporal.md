@@ -1,7 +1,3 @@
----
-title: 'Capítulo 9 - Intervenção dos Espíritos no mundo corporal'
----
-
 # Capítulo 9 - Intervenção dos Espíritos no mundo corporal
 
 ## Faculdade, que têm os Espíritos, de penetrar os nossos pensamentos

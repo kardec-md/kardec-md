@@ -1,7 +1,3 @@
----
-title: 'Capítulo 2 - Lei de adoração'
----
-
 # Capítulo 2 - Lei de adoração
 
 ## Objetivo da adoração

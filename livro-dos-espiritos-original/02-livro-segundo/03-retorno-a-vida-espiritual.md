@@ -1,7 +1,3 @@
----
-title: 'Capítulo 3 - Retorno à vida espiritual'
----
-
 # Capítulo 3 - Retorno à vida espiritual
 
 ## A alma depois da morte

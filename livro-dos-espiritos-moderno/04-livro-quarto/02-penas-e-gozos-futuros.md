@@ -1,7 +1,3 @@
----
-title: 'Capítulo 2 - Penas e gozos futuros'
----
-
 # Capítulo 2 - Penas e gozos futuros
 
 ## O Nada. Vida futura

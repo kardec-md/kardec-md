@@ -1,7 +1,3 @@
----
-title: 'Capítulo 12 - Perfeição moral'
----
-
 # Capítulo 12 - Perfeição moral
 
 ## As virtudes e os vícios

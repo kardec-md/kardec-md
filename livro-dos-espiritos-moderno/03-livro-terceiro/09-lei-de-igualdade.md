@@ -1,7 +1,3 @@
----
-title: 'Capítulo 9 - Lei de igualdade'
----
-
 # Capítulo 9 - Lei de igualdade
 
 ## Igualdade natural

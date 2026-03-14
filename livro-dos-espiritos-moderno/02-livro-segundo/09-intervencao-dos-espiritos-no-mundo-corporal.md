@@ -1,7 +1,3 @@
----
-title: 'Capítulo 9 - Intervenção dos Espíritos no mundo corporal'
----
-
 # Capítulo 9 - Intervenção dos Espíritos no mundo corporal
 
 ## Faculdade de penetrar nossos pensamentos
@@ -539,7 +535,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 **— Mas alguns Espíritos não chegam a ditar fórmulas ou sinais estranhos?**
 
-*— Sim, alguns Espíritos indicam palavras estranhas ou gestos simbólicos, sugerindo conjuros. Mas são Espíritos zombeteiros, que se divertem explorando a credulidade humana.*
+*— Sim, alguns Espíritos indicam palavras estranhas ou gestos simbólicos, sugerindo conjuros. Mas são Espíritos zombeteiros, que se divertem explorando a ingenuidade humana.*
 
 ### 554 — A crença na virtude de um talismã não poderia atrair um Espírito, já que o que atua é o pensamento?
 

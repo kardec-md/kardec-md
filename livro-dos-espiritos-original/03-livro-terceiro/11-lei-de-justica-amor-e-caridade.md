@@ -1,7 +1,3 @@
----
-title: 'Capítulo 11 - Lei de justiça, amor e caridade'
----
-
 # Capítulo 11 - Lei de justiça, amor e caridade
 
 ## Justiça e direito natural
