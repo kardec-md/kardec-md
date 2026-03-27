@@ -85,7 +85,7 @@ As limitações das faculdades humanas impedem a compreensão da natureza íntim
 
 \- **É único**. Se existissem vários deuses, não haveria unidade de propósito nem de poder na organização do universo.
 
-\- **É todo-poderoso**. Ele o é porque é único. Se não tivesse poder absoluto, existiria algo tão poderoso quanto ele ou mais poderoso do que ele.
+\- **É todo-poderoso**. Porque é único. Se não tivesse poder absoluto, existiria algo tão poderoso quanto ele ou mais poderoso do que ele.
 
 \- **É soberanamente justo e bom**. A sabedoria das leis divinas se revela tanto nas menores quanto nas maiores coisas, não deixando dúvida quanto à justiça e à bondade de Deus.
 
