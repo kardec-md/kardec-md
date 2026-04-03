@@ -65,8 +65,6 @@ Observou-se também que nem todos conseguiam produzir essas manifestações. Alg
 
 ### V
 
-Com o tempo, percebeu-se que a cesta e a prancheta eram apenas um prolongamento da mão. O médium passou então a segurar o lápis diretamente e a escrever por um impulso involuntário. As comunicações tornaram-se mais rápidas, claras e completas. Esse passou a ser o método mais utilizado, até porque o número de pessoas com essa capacidade crescia continuamente.
-
 A experiência também revelou outras formas de manifestação: comunicações pela fala, pela audição, pela visão, pelo tato e até casos de escrita que surgia sem o movimento consciente da mão do médium.
 
 Restava, porém, uma questão central: qual era o papel do médium nas respostas? Ele seria o autor das mensagens, mesmo sem perceber?
