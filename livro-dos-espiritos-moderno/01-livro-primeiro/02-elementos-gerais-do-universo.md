@@ -52,7 +52,7 @@ Desse ponto de vista, pode-se dizer que a matéria é o agente, o intermediário
 
 *— São distintos um do outro; no entanto, a união entre espírito e matéria é necessária para que a matéria possa expressar inteligência.*
 
-**— Essa união também é necessária para a manifestação do espírito? (Aqui entendemos por espírito o princípio da inteligência, abstraindo as individualidades que recebem esse nome.)**
+**— Essa união também é necessária para a manifestação do espírito?**
 
 *— Para vocês, sim, porque não possuem um organismo capaz de perceber o espírito sem a matéria. Seus sentidos não foram feitos para isso.*
 

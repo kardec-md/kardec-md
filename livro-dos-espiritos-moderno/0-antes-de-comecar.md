@@ -21,7 +21,7 @@ Embora o livro esteja associado ao nome de Allan Kardec, ele não foi elaborado 
 
 Em vez de aceitar qualquer mensagem como verdadeira, ele passou a formular perguntas claras e enviá-las a diferentes grupos e indivíduos, em locais distintos. Essas pessoas, sem contato direto entre si, apresentavam respostas que eram registradas e comparadas. Quando havia concordância consistente entre comunicações obtidas por diversos intermediários, o conteúdo era considerado mais confiável. Quando surgiam divergências ou opiniões isoladas, eram deixadas de lado ou analisadas com maior cautela.
 
-Esse procedimento, que ficou conhecido como o princípio do controle universal dos ensinos dos espíritos, buscava evitar que a obra se apoiasse em revelações individuais ou interpretações pessoais. A intenção era reunir apenas aquilo que apresentasse concordância ampla e coerente.
+Esse procedimento, que ficou conhecido como o Controle Universal do Ensino dos Espíritos (CUEE), buscava evitar que a obra se apoiasse em revelações individuais ou interpretações pessoais. A intenção era reunir apenas aquilo que apresentasse concordância ampla e coerente.
 
 ### IV. O motivo desta adaptação
 

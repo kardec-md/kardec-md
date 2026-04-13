@@ -23,15 +23,11 @@ Essa definição é fundamental porque a doutrina espírita se baseia na existê
 
 ### III
 
-Como toda novidade, a doutrina espírita tem defensores e críticos. Vamos examinar algumas objeções feitas por estes últimos, analisando seus argumentos com serenidade. Não pretendemos convencer a todos, mas dialogar com quem esteja disposto a observar os fatos sem preconceito. Muitas críticas surgiram de análises apressadas ou de observação incompleta.
-
-Antes disso, recordemos brevemente como os fenômenos que deram origem a essa doutrina começaram a chamar atenção.
+Como toda novidade, a doutrina espírita tem defensores e críticos. Vamos examinar algumas objeções feitas por estes últimos, analisando seus argumentos com serenidade. Não pretendemos convencer a todos, mas dialogar com quem esteja disposto a observar os fatos sem preconceito. Muitas críticas surgiram de análises apressadas ou de observação incompleta. Antes disso, recordemos brevemente como os fenômenos que deram origem a essa doutrina começaram a chamar atenção.
 
 Os primeiros relatos falavam da movimentação de objetos, fenômeno que ficou conhecido como mesas girantes. Embora tenha se tornado popular nos Estados Unidos, registros semelhantes existem desde a antiguidade. O que chamou atenção não foi apenas o movimento, mas também ruídos e pancadas sem causa aparente. Em pouco tempo, os relatos se espalharam pela Europa e outras regiões. A princípio houve descrença; depois, a repetição dos fatos tornou difícil negá-los.
 
-Se os fenômenos tivessem se limitado ao simples movimento de objetos, poderiam ser explicados por causas físicas ainda desconhecidas. A própria ciência já demonstrou que forças invisíveis, como a eletricidade, produzem efeitos intensos. Nada impediria que algum agente natural fosse responsável pelos movimentos observados. O fato de que a presença de várias pessoas parecia aumentar a intensidade do fenômeno reforçava essa hipótese.
-
-Mesmo movimentos bruscos, deslocamentos inesperados ou sons estranhos poderiam, em tese, receber explicações físicas. Até esse ponto, tudo ainda podia ser investigado dentro do campo das forças naturais.
+Se os fenômenos tivessem se limitado ao simples movimento de objetos, poderiam ser explicados por causas físicas ainda desconhecidas. A própria ciência já demonstrou que forças invisíveis, como a eletricidade, produzem efeitos intensos. Nada impediria que algum agente natural fosse responsável pelos movimentos observados. O fato de que a presença de várias pessoas parecia aumentar a intensidade do fenômeno reforçava essa hipótese. Mesmo movimentos bruscos, deslocamentos inesperados ou sons estranhos poderiam, em tese, receber explicações físicas. Até esse ponto, tudo ainda podia ser investigado dentro do campo das forças naturais.
 
 O que surpreende é que o assunto não tenha sido estudado com mais profundidade por muitos cientistas da época. Parte da resistência pode ter vindo do tom informal com que o fenômeno foi divulgado. A expressão “dança das mesas” contribuiu para que o tema fosse tratado com ironia, afastando pesquisadores que não quiseram associar seu nome a algo visto como trivial.
 
@@ -65,9 +61,7 @@ Observou-se também que nem todos conseguiam produzir essas manifestações. Alg
 
 ### V
 
-A experiência também revelou outras formas de manifestação: comunicações pela fala, pela audição, pela visão, pelo tato e até casos de escrita que surgia sem o movimento consciente da mão do médium.
-
-Restava, porém, uma questão central: qual era o papel do médium nas respostas? Ele seria o autor das mensagens, mesmo sem perceber?
+A experiência também revelou outras formas de manifestação: comunicações pela fala, pela audição, pela visão, pelo tato e até casos de escrita que surgia sem o movimento consciente da mão do médium. Restava, porém, uma questão central: qual era o papel do médium nas respostas? Ele seria o autor das mensagens, mesmo sem perceber?
 
 Dois pontos chamaram a atenção dos observadores. O primeiro era o modo como o objeto se movia. Bastava que o médium encostasse levemente os dedos para que a cesta se deslocasse. Quando duas ou três pessoas tocavam ao mesmo tempo, seria necessário supor uma coordenação extremamente precisa de movimentos e pensamentos para produzir respostas coerentes. Além disso, a caligrafia variava conforme a identidade atribuída ao Espírito comunicante, repetindo-se o mesmo estilo quando ele voltava a se manifestar. Isso exigiria do médium a capacidade de reproduzir diversas formas de escrita com consistência, o que tornava a hipótese de fraude mais complexa.
 
@@ -75,9 +69,7 @@ O segundo ponto dizia respeito ao conteúdo das mensagens. Muitas respostas trat
 
 Em algumas comunicações apareciam ideias profundas, elevadas e moralmente consistentes. Em outras, surgiam mensagens superficiais ou triviais. Essa diferença de conteúdo indicaria diversidade de inteligências atuando. 
 
-Esses fatos ocorriam de forma aberta, repetidos por milhares de pessoas, e não como experiências isoladas. Se demonstravam intenção e inteligência, já não podiam ser considerados apenas fenômenos físicos.
-
-Diversas teorias foram propostas para explicá-los. Elas serão examinadas adiante. Por ora, consideremos a hipótese apresentada pelas próprias comunicações: a existência de inteligências distintas da humana. A partir dessa possibilidade, analisemos o que essas inteligências afirmam.
+Esses fatos ocorriam de forma aberta, repetidos por milhares de pessoas, e não como experiências isoladas. Se demonstravam intenção e inteligência, já não podiam ser considerados apenas fenômenos físicos. Diversas teorias foram propostas para explicá-los. Elas serão examinadas adiante. Por ora, consideremos a hipótese apresentada pelas próprias comunicações: a existência de inteligências distintas da humana. A partir dessa possibilidade, analisemos o que essas inteligências afirmam.
 
 ### VII
 

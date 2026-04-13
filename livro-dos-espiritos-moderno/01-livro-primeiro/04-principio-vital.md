@@ -2,8 +2,7 @@
 
 ## Seres orgânicos e inorgânicos
 
-Os seres orgânicos são aqueles que possuem em si uma fonte de atividade interna que lhes confere a vida. Nascem, crescem, reproduzem-se por si mesmos e morrem. São dotados de órgãos específicos para a realização dos diversos atos da vida, órgãos esses adequados às necessidades impostas pela própria conservação. Nessa categoria estão incluídos os seres humanos, os animais e as plantas.  
-Os seres inorgânicos são todos aqueles que não possuem vitalidade nem movimento próprio e que se formam apenas pela agregação da matéria. Nessa classe estão os minerais, a água, o ar, entre outros.
+Os seres orgânicos são aqueles que possuem em si uma fonte de atividade interna que lhes confere a vida. Nascem, crescem, reproduzem-se por si mesmos e morrem. São dotados de órgãos específicos para a realização dos diversos atos da vida, órgãos esses adequados às necessidades impostas pela própria conservação. Nessa categoria estão incluídos os seres humanos, os animais e as plantas. Os seres inorgânicos são todos aqueles que não possuem vitalidade nem movimento próprio e que se formam apenas pela agregação da matéria. Nessa classe estão os minerais, a água, o ar, entre outros.
 
 ### 60 — É a mesma a força que une os elementos da matéria nos corpos orgânicos e nos inorgânicos?
 
