@@ -10,9 +10,9 @@ Os seres orgânicos são aqueles que possuem em si uma fonte de atividade intern
 
 ### 61 — Existe diferença entre a matéria dos corpos orgânicos e a dos inorgânicos?
 
-*— A matéria é sempre a mesma; porém, nos corpos orgânicos, ela está vitalizada.*
+*— A matéria é sempre a mesma; porém, nos corpos orgânicos, ela está animalizada.*
 
-### 62 — Qual é a causa dessa vitalização da matéria?
+### 62 — Qual é a causa dessa animalização da matéria?
 
 *— Sua união com o princípio vital.*
 
@@ -24,7 +24,7 @@ Os seres orgânicos são aqueles que possuem em si uma fonte de atividade intern
 
 *— Sim. Ele é um dos elementos necessários à constituição do universo, mas tem sua origem na matéria universal modificada. Para vocês, ele é um elemento, assim como o oxigênio e o hidrogênio, que, no entanto, não são elementos primitivos, pois tudo deriva de um único princípio.*
 
-**— Disso parece resultar que a vitalidade não tem sua origem em um agente primitivo distinto, mas em uma propriedade especial da matéria universal, resultante de certas modificações.**
+**— Disso parece resultar que a vitalidade não tem origem em um agente primitivo distinto, mas em uma propriedade especial da matéria universal, nascida de certas modificações.**
 
 *— Essa é a consequência do que dissemos.*
 
@@ -58,7 +58,7 @@ O conjunto dos órgãos forma uma espécie de mecanismo que recebe impulso da at
 
 ### 69 — Por que uma lesão no coração causa a morte mais rapidamente do que em outros órgãos?
 
-*— O coração é o centro da vida, mas não é o único órgão cuja lesão pode causar a morte. Ele é apenas uma das peças essenciais.*
+*— O coração é a máquina da vida, mas não é o único órgão cuja lesão pode causar a morte. Ele é apenas uma das peças essenciais.*
 
 ### 70 — O que acontece com a matéria e com o princípio vital dos seres orgânicos após a morte?
 
@@ -82,7 +82,7 @@ O fluido vital pode ser transmitido de um indivíduo a outro. Aquele que o possu
 ## Inteligência e instinto
 ### 71 — A inteligência é um atributo do princípio vital?
 
-*— Não. As plantas vivem, mas não pensam; possuem apenas vida orgânica. A inteligência e a matéria são independentes, pois um corpo pode viver sem inteligência. No entanto, a inteligência só pode se manifestar por meio de órgãos materiais. É necessário que o espírito se una à matéria vitalizada para que esta possa expressar inteligência.*
+*— Não. As plantas vivem, mas não pensam; possuem apenas vida orgânica. A inteligência e a matéria são independentes, pois um corpo pode viver sem inteligência. No entanto, a inteligência só pode se manifestar por meio de órgãos materiais. É necessário que o espírito se una à matéria animalizada para que esta possa expressar inteligência.*
 
 A inteligência é uma faculdade particular, própria de certas classes de seres orgânicos. Ela lhes confere, junto com o pensamento, a vontade de agir, a consciência da própria existência e individualidade, bem como os meios de se relacionar com o mundo exterior e atender às suas necessidades.
 
@@ -114,7 +114,7 @@ Podem-se distinguir, assim:
 
 **— Por que, então, a razão nem sempre é um guia seguro?**
 
-*— Porque ela é frequentemente distorcida pela má educação, pelo orgulho e pelo egoísmo. O instinto não raciocina; a razão permite escolher e concede ao ser humano o livre-arbítrio.*
+*— Ela seria, se não fosse distorcida pela má educação, pelo orgulho e pelo egoísmo. O instinto não raciocina; a razão permite escolher e concede ao ser humano o livre-arbítrio.*
 
 O instinto é uma forma rudimentar de inteligência, que se diferencia da inteligência propriamente dita pelo fato de suas manifestações serem quase sempre espontâneas, enquanto as da inteligência resultam de reflexão e decisão consciente.
 

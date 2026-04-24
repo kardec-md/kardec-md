@@ -7,7 +7,7 @@
 
 ### 18 — O ser humano um dia penetrará o mistério das coisas que lhe estão ocultas?
 
-*— O véu se levanta diante de seus olhos à medida que ele se aprimora; mas, para compreender certas coisas, ainda lhe faltam faculdades que não possui.*
+*— O véu se levanta diante de seus olhos à medida que ele se aprimora; mas, para compreender certas coisas, ainda lhe faltam faculdades que ainda não desenvolveu.*
 
 ### 19 — O ser humano não pode, por meio das investigações científicas, penetrar alguns dos segredos da natureza?
 
@@ -106,8 +106,7 @@ A prova disso está no fato de que nem todos percebem as qualidades dos corpos d
 
 O oxigênio, o hidrogênio, o nitrogênio, o carbono e todos os corpos considerados simples são apenas modificações de uma substância primitiva. Como ainda não somos capazes de remontar a essa matéria primária, exceto pelo pensamento, esses corpos são, para nós, verdadeiros elementos e podem ser considerados como tais, até que novos conhecimentos surjam.
 
-Esse princípio explica um fenômeno conhecido dos magnetizadores, que consiste em conferir, pela ação da vontade, a uma substância qualquer — como a água, por exemplo — propriedades muito diferentes, como um sabor específico ou até qualidades ativas de outras substâncias. Se existe apenas um elemento primitivo e se as propriedades dos diferentes corpos são apenas modificações desse elemento, então até a substância mais inofensiva contém o mesmo princípio da mais nociva. Assim, a água, composta por uma parte de oxigênio e duas de hidrogênio, torna-se corrosiva quando se duplica a proporção de oxigênio. Transformação semelhante pode ocorrer por meio da ação magnética dirigida pela vontade.
-
+Esse princípio explica um fenômeno conhecido dos magnetizadores, que consiste em conferir, pela ação da vontade, a uma substância qualquer, como a água, por exemplo, propriedades muito diferentes, como um sabor específico ou até qualidades ativas de outras substâncias. Se existe apenas um elemento primitivo e se as propriedades dos diferentes corpos são apenas modificações desse elemento, então até a substância mais inofensiva contém o mesmo princípio da mais nociva. Assim, a água, composta por uma parte de oxigênio e duas de hidrogênio, torna-se corrosiva quando se duplica a proporção de oxigênio. Transformação semelhante pode ocorrer por meio da ação magnética dirigida pela vontade.
 
 ### 34 — As moléculas têm forma determinada?
 

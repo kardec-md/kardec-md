@@ -35,7 +35,7 @@ Para crer em Deus, basta observar a criação. O universo existe, portanto tem u
 
 ### 6 — O sentimento íntimo que temos da existência de Deus não poderia ser fruto da educação, resultado de ideias aprendidas?
 
-*— Se fosse assim, por que esse sentimento existiria entre povos considerados primitivos?*
+*— Se fosse assim, por que esse sentimento existiria em povos que nunca tiveram acesso a qualquer ensinamento religioso?*
 
 Se a ideia de um ser supremo fosse apenas resultado do ensino, ela não seria universal e existiria apenas entre aqueles que tiveram acesso a esse aprendizado, assim como acontece com os conhecimentos científicos.
 
@@ -53,7 +53,7 @@ A harmonia que rege o universo revela organização e propósito, o que indica a
 
 ### 9 — De que maneira a causa primeira revela uma inteligência suprema e superior a todas as outras?
 
-*— Existe um provérbio que diz: pela obra se reconhece o autor. Observem a obra e procurem o autor. O orgulho é o que gera a negação da fé. A pessoa orgulhosa não aceita nada acima de si e, por isso, se considera um espírito forte. Pobre ser, que um simples sopro de Deus pode derrubar.*
+*— Existe um provérbio que diz: pela obra se reconhece o autor. Observem a obra e procurem o autor. O orgulho é o que gera o ceticismo. A pessoa orgulhosa não aceita nada acima de si e, por isso, se considera um espírito forte. Pobre ser, que um sopro de Deus pode derrubar.*
 
 A grandeza de uma inteligência se mede por suas obras. Como nenhum ser humano é capaz de criar o que a natureza produz, a causa primeira só pode ser uma inteligência superior à humanidade.
 
@@ -65,9 +65,9 @@ A grandeza de uma inteligência se mede por suas obras. Como nenhum ser humano �
 
 ### 11 — Um dia será possível ao ser humano compreender o mistério da Divindade?
 
-*— Quando o espírito não estiver mais limitado pela matéria e, por meio da evolução, tiver se aproximado de Deus, ele o verá e o compreenderá.*
+*— Quando o espírito não estiver mais ofuscado pela matéria e, por meio da própria evolução, tiver se aproximado de Deus, ele o verá e o compreenderá.*
 
-As limitações das faculdades humanas impedem a compreensão da natureza íntima de Deus. Nos primeiros tempos da humanidade, muitas vezes o ser humano o confundia com a criatura, atribuindo-lhe imperfeições humanas. À medida que o senso moral se desenvolve, o pensamento se aprofunda e passa a formar uma ideia mais justa da Divindade, ainda que sempre incompleta, mas mais coerente com a razão.
+As limitações das faculdades humanas impedem a compreensão da natureza íntima de Deus. Nos primeiros tempos da humanidade, muitas vezes o ser humano o confundia com a criatura, atribuindo-lhe imperfeições humanas. À medida que o senso moral se desenvolve, a ideia que se forma da Divindade torna-se mais justa, ainda que sempre incompleta, porém mais coerente com a razão.
 
 ### 12 — Mesmo sem compreender a natureza íntima de Deus, podemos formar uma ideia de algumas de suas perfeições?
 
@@ -75,7 +75,7 @@ As limitações das faculdades humanas impedem a compreensão da natureza íntim
 
 ### 13 — Quando dizemos que Deus é eterno, infinito, imutável, imaterial, único, todo-poderoso, soberanamente justo e bom, temos uma ideia completa de seus atributos?
 
-*— Do ponto de vista de vocês, sim, pois acreditam abranger tudo. No entanto, existem coisas além da inteligência humana, mesmo da mais elevada, que a linguagem, limitada às ideias e sensações humanas, não consegue expressar. A razão mostra que Deus deve possuir essas perfeições em grau máximo, pois, se lhe faltasse alguma, não seria superior a tudo e, portanto, não seria Deus. Para estar acima de todas as coisas, Deus não pode estar sujeito a mudanças nem a imperfeições.*
+*— Do ponto de vista de vocês, sim, pois acreditam abranger tudo. No entanto, existem coisas além da inteligência humana, mesmo da mais elevada, que a linguagem, limitada às ideias e sensações humanas, não consegue expressar. A razão mostra que Deus deve possuir essas perfeições em grau máximo, porque se faltasse alguma, não seria superior a tudo e, portanto, não seria Deus. Para estar acima de todas as coisas, Deus não pode estar sujeito a mudanças nem a imperfeições.*
 
 \- **Deus é eterno**. Se tivesse tido um começo, teria surgido do nada ou teria sido criado por outro ser. Seguindo esse raciocínio, sempre se chegaria ao infinito e à eternidade.
 
@@ -85,9 +85,9 @@ As limitações das faculdades humanas impedem a compreensão da natureza íntim
 
 \- **É único**. Se existissem vários deuses, não haveria unidade de propósito nem de poder na organização do universo.
 
-\- **É todo-poderoso**. Porque é único. Se não tivesse poder absoluto, existiria algo tão poderoso quanto ele ou mais poderoso do que ele.
+\- **É onipotente**. Porque é único. Se não tivesse poder absoluto, existiria algo tão poderoso quanto ele ou mais poderoso do que ele, e o que esse outro poder criasse não seria obra de Deus.
 
-\- **É soberanamente justo e bom**. A sabedoria das leis divinas se revela tanto nas menores quanto nas maiores coisas, não deixando dúvida quanto à justiça e à bondade de Deus.
+\- **É soberanamente justo e bom**. A sabedoria providencial das leis divinas se revela tanto nas menores quanto nas maiores coisas, não deixando dúvida quanto à justiça e à bondade de Deus.
 
 ## Panteísmo
 
