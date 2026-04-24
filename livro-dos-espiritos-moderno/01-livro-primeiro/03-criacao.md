@@ -20,7 +20,7 @@ A razão nos mostra que o universo não pode ter surgido por si mesmo e que, nã
 
 ### 40 — Os cometas são, como se pensa hoje, um início de condensação da matéria, mundos em formação?
 
-*— Isso está correto. O absurdo é acreditar na influência que vulgarmente se lhes atribui, pois todos os corpos celestes exercem algum tipo de influência sobre certos fenômenos físicos.*
+*— Isso está correto. O absurdo é acreditar na influência que popularmente se lhes atribui, pois todos os corpos celestes exercem algum tipo de influência sobre certos fenômenos físicos.*
 
 ### 41 — Um mundo completamente formado pode desaparecer e a matéria que o compõe se dispersar novamente no espaço?
 
@@ -58,11 +58,11 @@ O que ocorre diariamente diante de nossos olhos, por que não poderia ter ocorri
 
 ### 48 — Podemos conhecer a época do aparecimento do homem e dos outros seres vivos na Terra?
 
-*— Não. Todos os cálculos que vocês fazem a esse respeito são suposições.*
+*— Não. Todos os cálculos que vocês fazem a esse respeito são ilusórios.*
 
 ### 49 — Se o germe da espécie humana já existia entre os elementos orgânicos do globo, por que não surgem homens espontaneamente, como no início dos tempos?
 
-*— O princípio das coisas está nos mistérios de Deus. Ainda assim, pode-se dizer que os seres humanos, uma vez espalhados pela Terra, absorveram os elementos necessários à sua própria formação, transmitindo-os segundo as leis da reprodução. O mesmo ocorreu com as demais espécies de seres vivos.*
+*— O princípio das coisas está nos segredos de Deus. Ainda assim, pode-se dizer que os seres humanos, uma vez espalhados pela Terra, absorveram os elementos necessários à sua própria formação, transmitindo-os segundo as leis da reprodução. O mesmo ocorreu com as demais espécies de seres vivos.*
 
 
 ## Povoamento da Terra. Adão
@@ -74,7 +74,7 @@ O que ocorre diariamente diante de nossos olhos, por que não poderia ter ocorri
 
 *— Aproximadamente na época que lhe atribuem: cerca de 4.000 anos antes de Cristo.*
 
-O homem cuja tradição ficou conhecida pelo nome de Adão foi um dos sobreviventes, em determinada região, de alguns grandes cataclismos que, em diferentes épocas, transformaram a superfície do globo. Ele se tornou o tronco de uma das raças que hoje habitam a Terra. As leis da natureza não permitem que os progressos da humanidade, comprovados muito antes de Cristo, tenham ocorrido em apenas alguns séculos, como teria acontecido se o homem só existisse na Terra a partir da época atribuída a Adão. Muitos, com razão, consideram Adão um mito ou uma alegoria que representa as primeiras idades do mundo.
+O homem cuja tradição ficou conhecida pelo nome de Adão foi um dos sobreviventes, em determinada região, de alguns grandes cataclismos que, em diferentes épocas, transformaram a superfície do globo. Ele se tornou o tronco de uma das raças que hoje habitam a Terra. As leis da natureza não permitem que os progressos da humanidade, comprovados muito antes de Cristo, tenham ocorrido em apenas alguns séculos, como teria acontecido se o ser humano só existisse na Terra a partir da época atribuída a Adão. Muitos, com razão, consideram Adão um mito ou uma alegoria que representa as primeiras idades do mundo.
 
 
 ## Diversidade das raças humanas
@@ -84,7 +84,7 @@ O homem cuja tradição ficou conhecida pelo nome de Adão foi um dos sobreviven
 
 ### 53 — O ser humano surgiu em vários pontos do globo?
 
-*— Sim, e em épocas diferentes, o que também explica a diversidade das raças. Depois, com a dispersão pelos diferentes climas e o cruzamento entre grupos distintos, novos tipos se formaram.*
+*— Sim, e em épocas diferentes, o que também explica a diversidade das raças. Depois, com a dispersão pelos diferentes climas e o cruzamento entre elas, novos tipos se formaram.*
 
 **— Essas diferenças constituem espécies distintas?**
 
@@ -119,30 +119,24 @@ As condições de existência dos seres que habitam os diferentes mundos são ad
 
 ### 59 — Considerações e concordâncias bíblicas sobre a criação
 
-Os povos formaram ideias muito diferentes sobre a criação, de acordo com o grau de conhecimento de cada época. Apoiada na ciência, a razão reconheceu a fragilidade de algumas dessas teorias. A explicação apresentada pelos Espíritos confirma uma opinião que há muito tempo já era compartilhada pelos pensadores mais esclarecidos.
+Ao longo da história, os povos formaram ideias muito diferentes sobre como o mundo foi criado, de acordo com o nível de conhecimento de cada época. Com o apoio da ciência, a razão passou a reconhecer que várias dessas teorias não tinham sustentação. A explicação apresentada pelos Espíritos confirma uma opinião que os pensadores mais esclarecidos já partilhavam há muito tempo.
 
-A principal objeção que se pode fazer é a aparente contradição com os textos sagrados. No entanto, um exame atento mostra que essa contradição é mais aparente do que real e decorre da interpretação literal de textos que muitas vezes têm caráter alegórico.
+A principal objeção que se pode fazer é a de que essa explicação contradiz os textos sagrados. Mas um exame cuidadoso mostra que essa contradição é mais aparente do que real, e que ela surge da interpretação literal de textos que muitas vezes têm sentido alegórico.
 
-A questão de Adão ser o primeiro homem e a origem exclusiva da humanidade não é a única que exigiu revisão das crenças religiosas. Houve um tempo em que o movimento da Terra parecia contrariar as Escrituras, e essa ideia serviu de pretexto para perseguições. Ainda assim, a Terra gira, apesar de todas as condenações, e hoje ninguém pode negar esse fato sem negar a própria razão.
+A questão de Adão ter sido o primeiro homem e a origem exclusiva da humanidade não é a única crença religiosa que precisou ser revista. Houve uma época em que o movimento da Terra parecia contrariar as Escrituras, e essa ideia serviu de pretexto para toda sorte de perseguições. Mesmo assim, a Terra gira, apesar de todas as condenações, e hoje ninguém pode negar esse fato sem ir contra a própria razão.
 
-A Bíblia também afirma que o mundo foi criado em seis dias e situa sua criação cerca de quatro mil anos antes da era cristã. Segundo esse entendimento literal, a Terra não existia antes e teria surgido do nada. No entanto, a ciência demonstra o contrário. A história da formação do globo está registrada de forma incontestável no mundo fóssil, mostrando que os seis dias da criação representam períodos — possivelmente de centenas de milhares de anos cada. Isso não é uma teoria isolada, mas um fato tão sólido quanto o movimento da Terra, que a teologia não pode ignorar. Fica claro, assim, o erro de interpretar literalmente uma linguagem essencialmente simbólica.
+A Bíblia afirma que o mundo foi criado em seis dias e situa essa criação por volta de quatro mil anos antes da era cristã. Antes disso, a Terra não existia: teria sido tirada do nada. Eis, porém, que a ciência prova o contrário. A história da formação do globo terrestre está gravada de forma indelével no registro fóssil, e esse registro prova que os seis dias da criação representam períodos, cada um com talvez centenas de milhares de anos. Isso não é uma hipótese isolada: é um fato tão sólido quanto o movimento da Terra, que a teologia não pode ignorar. Fica claro, portanto, o risco de tomar ao pé da letra uma linguagem essencialmente simbólica.
 
 Deve-se concluir, então, que a Bíblia está errada? Não. A conclusão correta é que os seres humanos se enganaram ao interpretá-la.
 
-Ao estudar os registros da Terra, a ciência revelou a ordem de aparecimento dos seres vivos, que concorda com a narrativa da Gênese, com a diferença de que essa obra não se realizou de forma instantânea, mas ao longo de milhões de anos, sempre pela vontade de Deus e segundo as leis da natureza. Isso diminui a grandeza divina? Evidentemente, não. Ao contrário, amplia nossa visão da majestade de Deus, que estabeleceu leis eternas para reger os mundos.
+Ao estudar os registros da Terra, a ciência descobriu a ordem em que os seres vivos apareceram, ordem que está de acordo com o que diz a Gênese. A diferença é que essa obra não foi realizada por Deus em algumas horas, mas ao longo de milhões de anos, sempre pela sua vontade e segundo as leis da natureza. Isso torna Deus menor e menos poderoso? Sua obra perdeu grandiosidade por não ter sido instantânea? Evidentemente, não. Seria preciso ter uma ideia muito mesquinha de Deus para não reconhecer sua onipotência nas leis eternas que Ele estabeleceu para reger os mundos. A ciência, longe de diminuir a obra divina, a mostra ainda mais grandiosa e mais coerente com a majestade de Deus, precisamente porque ela se realizou sem suspender nenhuma das leis da natureza.
 
-Nesse ponto, ciência e Moisés concordam ao colocar o ser humano por último na ordem da criação. Moisés, porém, situa o dilúvio universal no ano 1654 da formação do mundo, enquanto a geologia aponta o grande cataclismo como anterior ao surgimento do homem, já que não se encontram vestígios humanos nas camadas mais antigas. Ainda assim, isso não prova que tal coexistência seja impossível. Novas descobertas podem surgir a qualquer momento.
+Nesse ponto, ciência e Moisés concordam: o ser humano foi o último a aparecer na ordem da criação. Moisés, porém, situa o dilúvio universal no ano 1654 da formação do mundo, enquanto a geologia indica que o grande cataclismo ocorreu antes do aparecimento do homem, já que, nas camadas mais antigas, não se encontrou nenhum vestígio humano. Isso, porém, não prova que tal coexistência seja impossível. Muitas descobertas já lançaram dúvidas sobre isso. Se em algum momento se confirmar que o ser humano existia antes do grande cataclismo, ficará provado: ou que Adão não foi o primeiro homem, ou que sua origem se perde na noite dos tempos. Diante da evidência, não há como resistir, será preciso aceitar o fato, assim como se aceitou o movimento da Terra e os períodos da criação.
 
-Caso se confirme que o ser humano existia antes do grande cataclismo, ficará provado que Adão não foi o primeiro homem ou que sua origem se perde na noite dos tempos. Diante da evidência, não há argumento possível; será preciso aceitar o fato, como já se aceitou o movimento da Terra e os períodos da criação.
+A existência do ser humano antes do dilúvio geológico ainda é hipotética. Mas há argumentos mais sólidos. Se o ser humano surgiu 4.000 anos antes de Cristo e, 1.650 anos depois, toda a humanidade foi destruída exceto uma família, então o repovoamento da Terra começa com Noé, por volta de 2.350 anos antes da nossa era. No entanto, quando os hebreus chegaram ao Egito, no século XVIII a.C., encontraram um país populoso e com civilização já bastante avançada. A história mostra que, nessa mesma época, a Índia e outros países também floresciam. Seria preciso admitir, então, que em apenas 600 anos os descendentes de um único homem teriam povoado todos os imensos países conhecidos e saído da ignorância mais absoluta para alcançar o mais alto grau de desenvolvimento intelectual. Isso contraria tudo o que se sabe sobre o desenvolvimento humano.
 
-A existência humana antes do dilúvio geológico ainda é uma hipótese. No entanto, há fatos menos incertos. Admitindo-se que o homem tenha surgido 4.000 anos antes de Cristo e que, 1.650 anos depois, toda a humanidade tenha sido destruída, exceto uma família, o repovoamento da Terra teria começado com Noé, por volta de 2.350 anos antes da nossa era. No entanto, quando os hebreus chegaram ao Egito, no século XVIII antes de Cristo, encontraram uma civilização antiga, numerosa e avançada. O mesmo ocorria nas Índias e em outros países.
+A diversidade das raças reforça ainda mais esse argumento. O clima e os costumes influenciam o aspecto físico, é verdade, mas a fisiologia mostra, entre certas raças, diferenças que vão muito além do que o ambiente pode explicar. O cruzamento de raças gera tipos intermediários e tende a apagar as características extremas, mas não as cria; apenas produz variedades. Para que houvesse cruzamento, era preciso que já existissem raças distintas. Como explicar a existência dessas raças se todas tivessem uma origem comum tão recente? É tão improvável que, em poucos séculos, os descendentes de Noé tenham dado origem a toda a diversidade humana observada quanto supor uma origem comum para o lobo e o cordeiro, o elefante e o pulgão, o pássaro e o peixe.
 
-Seria necessário, então, admitir que em apenas 600 anos a humanidade tivesse se espalhado por vastas regiões e alcançado alto grau de desenvolvimento intelectual, o que contraria todas as leis conhecidas da antropologia.
+Tudo se esclarece, no entanto, ao admitir: que a existência humana é anterior ao período que se costuma aceitar; que houve diversas origens; que Adão, vivendo há seis mil anos, povoou uma região ainda desabitada; que o dilúvio de Noé foi uma catástrofe parcial, confundida com o cataclismo geológico; e que os textos sagrados de todos os povos usam uma linguagem essencialmente alegórica.
 
-A diversidade das raças reforça essa conclusão. Embora o clima e os costumes influenciem o aspecto físico, a fisiologia mostra diferenças mais profundas entre certas raças do que aquelas explicáveis apenas por fatores ambientais. O cruzamento de raças gera tipos intermediários, apagando características extremas, mas não criando novas. Para que houvesse cruzamento, era necessário que já existissem raças distintas. Como explicar sua existência partindo de uma origem comum tão recente?
-
-É tão improvável que, em poucos séculos, descendentes de Noé tenham dado origem à raça etíope, por exemplo, quanto supor uma origem comum para o lobo e o cordeiro, o elefante e o pulgão, o pássaro e o peixe.
-
-Tudo se esclarece ao admitir que a existência humana é anterior ao período tradicionalmente aceito; que houve diversas origens; que Adão, vivendo há cerca de seis mil anos, povoou apenas uma região ainda desabitada; que o dilúvio de Noé foi uma catástrofe local, posteriormente confundida com o cataclismo geológico; e, por fim, ao reconhecer o caráter alegórico próprio do estilo oriental, presente nos textos sagrados de todos os povos.
-
-Isso mostra como é prudente não rejeitar levianamente doutrinas que podem, mais cedo ou mais tarde, desmentir seus críticos. As ideias religiosas não perdem força ao caminhar junto com a ciência; ao contrário, se fortalecem. Esse é o único caminho para que não ofereçam brechas ao ceticismo.
+Isso mostra o quanto é imprudente taxar de falsas, precipitadamente, as doutrinas que podem, cedo ou tarde, como tantas outras, desmentir quem as combate. As ideias religiosas, longe de perderem algo, se fortalecem ao caminhar junto com a ciência. Esse é o único caminho para que não ofereçam brechas ao ceticismo.
