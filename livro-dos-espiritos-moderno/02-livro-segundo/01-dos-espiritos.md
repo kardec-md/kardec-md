@@ -34,7 +34,7 @@ NOTA: A palavra Espírito é usada aqui para designar as individualidades dos se
 
 Dizemos que os Espíritos são imateriais porque sua essência difere de tudo o que chamamos de matéria. Um povo de cegos não teria palavras para expressar a luz e seus efeitos. Da mesma forma, somos como cegos diante da essência dos seres que estão além de nós. Só conseguimos defini-los por comparações sempre imperfeitas ou por esforço da imaginação.
 
-### 83 — Os Espíritos têm fim? Suas individualidades se dissolvem com o tempo, como acontece com os corpos materiais?
+### 83 — Os Espíritos têm fim? Suas individualidades se dissolvem com o tempo, como acontece com os corpos materiais? É difícil entender como uma coisa que teve começo pode não ter fim.
 
 *— Há muitas coisas que vocês não compreendem porque a inteligência humana é limitada. Isso, porém, não é motivo para rejeitá-las. A existência dos Espíritos não tem fim. É tudo o que podemos dizer, por enquanto.*
 
@@ -49,7 +49,7 @@ Dizemos que os Espíritos são imateriais porque sua essência difere de tudo o 
 
 *— O mundo espírita, que existe antes de tudo e sobrevive a tudo.*
 
-### 86 — O mundo corporal poderia deixar de existir sem que isso afetasse o mundo espírita?
+### 86 — O mundo corporal poderia deixar de existir, ou nunca ter existido, sem que isso afetasse o mundo espírita?
 
 *— Sim. Eles são independentes; no entanto, existe uma relação constante entre ambos, pois um reage continuamente sobre o outro.*
 
@@ -88,13 +88,13 @@ A representação simbólica de gênios com uma chama ou estrela na fronte é um
 
 ### 92 — Os Espíritos possuem o dom da ubiquidade? Um Espírito pode dividir-se ou existir em vários lugares ao mesmo tempo?
 
-*— Um Espírito não pode se dividir, mas cada um é um centro que irradia para vários lados. Isso cria a aparência de estar em muitos lugares ao mesmo tempo. Assim como o Sol, que é um só, mas irradia sua luz em todas as direções.*
+*— Um Espírito não pode se dividir, mas cada um é um centro que irradia para vários lados. Isso cria a aparência de estar em muitos lugares ao mesmo tempo. Veem o Sol? É um só, mas irradia em todas as direções e leva longe os seus raios. Mesmo assim, não se divide.*
 
 **— Todos os Espíritos irradiam com a mesma intensidade?**
 
 *— Não. Essa força depende do grau de pureza de cada um.*
 
-Cada Espírito é indivisível, mas pode projetar seus pensamentos em várias direções sem se fragmentar. É nesse sentido que se entende a ubiquidade atribuída aos Espíritos.
+Cada Espírito é indivisível, mas pode projetar seus pensamentos em várias direções sem se fragmentar. É nesse sentido que se entende a ubiquidade atribuída aos Espíritos. Acontece com eles o mesmo que com uma centelha, que projeta longe a sua claridade e pode ser percebida de todos os pontos do horizonte; ou ainda como uma pessoa que, sem mudar de lugar e sem se fracionar, transmite ordens, sinais e movimento a diferentes pontos.
 
 
 ## Perispírito
@@ -126,7 +126,7 @@ Assim como o germe de um fruto é envolvido por uma película, o Espírito é en
 
 ### 97 — As ordens ou graus de perfeição dos Espíritos são em número fixo?
 
-*— Não. São ilimitadas, pois não há fronteiras rígidas entre elas. Ainda assim, podem ser agrupadas em três grandes categorias: Espíritos puros, Espíritos bons e Espíritos imperfeitos.*
+*— Não. São ilimitadas, pois não há fronteiras rígidas entre elas, e as divisões podem ser ampliadas ou reduzidas livremente. Ainda assim, considerando as características gerais, podem ser agrupadas em três grandes categorias. Na primeira, ficam os que atingiram a perfeição: os Espíritos puros. Na segunda, os que chegaram ao meio da escala e cuja preocupação é o desejo do bem: os Espíritos bons. Na terceira, os que ainda estão na parte inferior da escala: os Espíritos imperfeitos, marcados pela ignorância, pelo desejo do mal e por todas as paixões que retardam seu progresso.*
 
 ### 98 — Os Espíritos da segunda ordem têm poder para praticar o bem?
 
@@ -206,7 +206,7 @@ Em suas comunicações, a linguagem pode ser espirituosa e divertida, mas quase 
 
 Possuem conhecimentos relativamente amplos, mas acreditam saber mais do que realmente sabem. Embora tenham feito algum progresso, sua linguagem aparenta seriedade e pode iludir quanto à profundidade de suas ideias.
 
-Na realidade, suas comunicações refletem preconceitos e sistemas de pensamento que cultivavam na vida material. Misturam algumas verdades com erros graves, permeados por orgulho, presunção, inveja e teimosia, imperfeições das quais ainda não conseguiram se libertar.
+Na realidade, suas comunicações refletem preconceitos e sistemas de pensamento que cultivavam na vida material. Misturam algumas verdades com erros graves, permeados por presunção, orgulho, ciúme e teimosia, imperfeições das quais ainda não conseguiram se libertar.
 
 ### 105 — Sétima classe — ESPÍRITOS NEUTROS
 
@@ -237,7 +237,7 @@ A essa ordem pertencem os Espíritos conhecidos popularmente como bons gênios, 
 
 Podem ser divididos em quatro grupos principais:
 
-### 108 — Quinta classe — ESPÍRITOS BENEVOLENTES
+### 108 — Quinta classe — ESPÍRITOS BENÉVOLOS
 
 A bondade é sua principal característica. Sentem prazer em ajudar e proteger os seres humanos. No entanto, seus conhecimentos ainda são limitados. Avançaram mais no aspecto moral do que no intelectual.
 
@@ -283,13 +283,13 @@ Os seres humanos podem entrar em comunicação com eles, mas seria extrema presu
 
 *— Deus criou todos os Espíritos simples e ignorantes, ou seja, sem conhecimento. A cada um foi dada uma missão, com o objetivo de esclarecê-los e conduzi-los progressivamente à perfeição, por meio do conhecimento da verdade, aproximando-os de Deus. É nessa perfeição que encontram a felicidade pura e eterna. Ao passar pelas provas que Deus lhes propõe, os Espíritos adquirem conhecimento. Alguns aceitam essas provas com humildade e chegam mais rapidamente ao destino final. Outros as enfrentam com revolta e, por isso, permanecem mais tempo afastados da perfeição e da felicidade prometida.*
 
-**— Pelo que dizeis, os Espíritos, em sua origem, seriam como crianças: ignorantes e inexperientes, adquirindo pouco a pouco os conhecimentos de que precisam ao longo das diferentes fases da vida?**
+**— Pelo que dizem, os Espíritos, em sua origem, seriam como crianças: ignorantes e inexperientes, adquirindo pouco a pouco os conhecimentos de que precisam ao longo das diferentes fases da vida?**
 
 *— Sim, a comparação é adequada. A criança rebelde permanece ignorante e imperfeita; seu progresso depende do grau de docilidade. A diferença é que a vida do ser humano tem fim, enquanto a dos Espíritos se estende indefinidamente.*
 
 ### 116 — Existem Espíritos que permanecerão eternamente nas ordens inferiores?
 
-*— Não. Todos alcançarão a perfeição. A mudança ocorre, mas pode ser lenta, pois, como já dissemos, um pai justo e misericordioso não condena seus filhos para sempre. Acreditarias que Deus, tão grande, bom e justo, fosse pior do que os próprios seres humanos?*
+*— Não. Todos alcançarão a perfeição. A mudança ocorre, mas pode ser lenta, pois, como já dissemos, um pai justo e misericordioso não condena seus filhos para sempre. Acreditariam que Deus, tão grande, bom e justo, fosse pior do que vocês mesmos?*
 
 ### 117 — O progresso mais rápido ou mais lento depende do próprio Espírito?
 
@@ -327,7 +327,7 @@ Assim como, na vida social, todos podem aspirar às mais altas funções, pode-s
 
 ### 123 — Por que Deus permite que os Espíritos possam escolher o caminho do mal?
 
-*— Como ousais questionar os atos de Deus? Julgais poder compreender seus desígnios? Pode-se, no entanto, afirmar isto: a sabedoria divina está na liberdade de escolha concedida a cada Espírito, pois assim cada um tem mérito por suas próprias ações.*
+*— Como ousam questionar os atos de Deus? Julgam poder compreender os seus desígnios? Pode-se, no entanto, afirmar isto: a sabedoria divina está na liberdade de escolha concedida a cada Espírito, pois assim cada um tem mérito por suas próprias ações.*
 
 ### 124 — Se alguns Espíritos seguem desde cedo o caminho do bem e outros o do mal, devem existir gradações entre esses dois extremos, não?
 
@@ -335,7 +335,7 @@ Assim como, na vida social, todos podem aspirar às mais altas funções, pode-s
 
 ### 125 — Os Espíritos que seguiram o caminho do mal poderão alcançar o mesmo grau de superioridade que os outros?
 
-*— Sim, mas levarão mais tempo.*
+*— Sim, mas as "eternidades" serão mais longas.*
 
 Aqui, a expressão “eternidades” refere-se à ideia que os Espíritos inferiores fazem da duração de seus sofrimentos, cujo fim ainda não conseguem perceber. Essa impressão retorna sempre que fracassam em uma prova.
 
@@ -365,16 +365,26 @@ A palavra “anjo” costuma evocar a ideia de perfeição moral. No entanto, mu
 
 ### 130 — Se é incorreta a ideia de seres criados perfeitos desde o início, como explicar que essa crença esteja presente na tradição de quase todos os povos?
 
-*— O mundo em que habitais não existe desde sempre. Muito antes de sua formação, já havia Espíritos que haviam alcançado o grau supremo. Os seres humanos acreditaram que eles sempre tivessem sido assim.*
+*— A Terra não existe desde sempre. Muito antes de sua formação, já existiam Espíritos no universo que tinham alcançado o grau supremo. Os seres humanos passaram a acreditar que esses Espíritos sempre haviam existido nesse grau de perfeição.*
 
 ### 131 — Existem demônios, no sentido absoluto da palavra?
 
-*— Se existissem demônios nesse sentido, seriam obra de Deus. Mas seria Deus justo e bom se tivesse criado seres destinados eternamente ao mal e à infelicidade? Se há demônios, eles se encontram no mundo inferior em que viveis e em outros semelhantes. São homens hipócritas que transformam um Deus justo em um Deus vingativo, acreditando agradá-lo por meio das atrocidades que cometem em seu nome.*
+*— Se existissem demônios nesse sentido, seriam obra de Deus. Mas seria Deus justo e bom se tivesse criado seres destinados eternamente ao mal e à infelicidade? Se há demônios, eles se encontram no mundo inferior em que vivem e em outros semelhantes. São homens hipócritas que transformam um Deus justo em um Deus vingativo, acreditando agradá-lo por meio das atrocidades que cometem em seu nome.*
 
-A palavra “demônio”, em sua origem grega "daímōn", significava gênio ou inteligência e se aplicava aos seres incorpóreos, bons ou maus, sem distinção. A ideia moderna associa o termo exclusivamente a seres essencialmente maus.
+A palavra "demônio", em sua origem grega "daímōn", significava gênio ou inteligência e se aplicava aos seres incorpóreos, bons ou maus, sem distinção. A ideia moderna associa o termo exclusivamente a seres essencialmente maus.
 
-Entender demônios como Espíritos eternamente maus é ilógico e contraditório. Deus, sendo soberanamente justo e bom, não poderia criar seres destinados ao mal perpétuo. Os chamados demônios são, na realidade, Espíritos imperfeitos, rebeldes às provas que lhes cabem, e que por isso prolongam seu sofrimento. Esse estado, porém, é transitório, pois todos podem sair dele quando assim o desejarem.
+Entender demônios como seres eternamente maus é ilógico e contraditório. Deus, sendo soberanamente justo e bom, não poderia criar seres destinados ao mal eterno. A primeira condição de qualquer doutrina é ser lógica, e a dos demônios, no sentido absoluto, não tem essa base.
 
-Satanás é a personificação alegórica do mal. Não se pode conceber um ser maligno lutando de igual para igual com a Divindade. Assim como os antigos personificaram o Tempo na figura de um velho com foice e ampulheta, os seres humanos representaram os Espíritos por imagens materiais para torná-los compreensíveis à imaginação.
+Compreende-se que povos atrasados, por desconhecerem os atributos de Deus, admitam divindades maléficas e demônios. Mas é contraditório que quem reconhece a bondade como atributo essencial de Deus suponha que ele tenha criado seres condenados ao mal para sempre, pois isso equivale a negar a sua bondade.
 
-Os anjos foram figurados como seres luminosos, com asas brancas, símbolo de pureza; Satanás, com chifres e garras, simbolizando as paixões inferiores. O povo, tomando essas imagens ao pé da letra, transformou alegorias em personagens reais.
+Os defensores da existência dos demônios apoiam-se em palavras de Cristo. Não se trata de contestar a autoridade de seus ensinamentos, mas de perguntar se o sentido que ele dava ao termo é mesmo o que se atribui hoje. A linguagem alegórica é uma das marcas distintivas de seu modo de falar. O Evangelho deve ser tomado ao pé da letra em tudo? Basta uma passagem para mostrar que não:
+
+"Logo após esses dias de aflição, o Sol escurecerá e a Lua não mais dará sua luz, as estrelas cairão do céu e as potências do céu se abalarão. Em verdade vos digo que esta geração não passará sem que tudo isso se cumpra."
+
+A ciência já mostrou que o texto bíblico, quando lido ao pé da letra, contradiz o que se sabe sobre a criação e o movimento da Terra. O mesmo pode acontecer com algumas figuras usadas por Cristo, que precisava falar conforme o tempo e o lugar. Não é possível que ele tenha dito conscientemente uma falsidade. Logo, se em suas palavras há coisas que parecem chocar a razão, é porque não as compreendemos bem ou as interpretamos mal.
+
+Os seres humanos fizeram com os demônios o mesmo que fizeram com os anjos. Assim como acreditaram em seres perfeitos desde toda a eternidade, tomaram os Espíritos inferiores por seres perpetuamente maus. Os chamados demônios são, na realidade, Espíritos imperfeitos, rebeldes às provas que lhes cabem, e que por isso prolongam seu sofrimento. Esse estado, porém, é transitório: todos podem sair dele quando assim o desejarem. Pode-se aceitar o termo "demônio" com essa restrição, mas no sentido em que é usado hoje, exclusivo, ele induz a erro, fazendo crer em seres especiais criados para o mal.
+
+Satanás é a personificação alegórica do mal. Não se pode conceber um ser maligno lutando de igual para igual com a Divindade, cuja única ocupação seria contrariar seus desígnios. Como o ser humano precisa de figuras e imagens para a imaginação, ele representou os seres incorpóreos sob formas materiais, com atributos que lembram qualidades ou defeitos humanos. Foi assim que os antigos, querendo personificar o Tempo, pintaram-no como um velho com foice e ampulheta. Representá-lo como um jovem seria contrassenso.
+
+Do mesmo modo, os modernos representaram os anjos, ou Espíritos puros, como figuras radiantes, de asas brancas, símbolo da pureza; e Satanás com chifres, garras e atributos animais, símbolo das paixões inferiores. O povo, tomando essas imagens ao pé da letra, viu nelas seres reais, como antes via Saturno na alegoria do Tempo.
