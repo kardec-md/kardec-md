@@ -49,6 +49,8 @@ Admitamos, ao contrário, existências sucessivas. Tudo se esclarece. Cada ser n
 
 Assim, a pluralidade das existências explica de forma simples, lógica e justa o que, sem ela, permanece inexplicável. Ela é profundamente consoladora, perfeitamente compatível com a justiça divina e constitui para o ser humano uma verdadeira âncora de esperança.
 
-As próprias palavras de Jesus confirmam esse princípio, quando afirma que é necessário “nascer de novo” para entrar no reino de Deus, como se lê no Evangelho segundo João, capítulo III.
+As mesmas dificuldades reaparecem se olharmos para o futuro da alma. Se uma única existência decide a sorte eterna, qual será a posição do que viveu como selvagem, sem nunca ter recebido instrução, em comparação com a do que viveu civilizado? Que destino aguarda os que praticaram o mal porque jamais tiveram a chance de aprender o bem? E as milhões de crianças que morrem antes mesmo de poder agir? Sem a reencarnação, qualquer resposta parece arbitrária. Com ela, tudo se ordena: o que não se pôde fazer numa existência se fará em outra, e ninguém é privado do progresso a que todos têm direito.
 
-Reconheçamos, portanto, que somente a doutrina da pluralidade das existências resolve de maneira coerente os grandes problemas morais e filosóficos da humanidade, em perfeita harmonia com a razão, a justiça e a misericórdia divinas.
+As próprias palavras de Jesus confirmam esse princípio. No Evangelho de Mateus (capítulo XVII), os discípulos perguntam por que os escribas dizem que Elias precisa vir antes do Messias. Jesus responde que Elias já veio, mas não foi reconhecido, e em seguida os discípulos compreendem que ele falava de João Batista. Se João Batista foi Elias, então o Espírito de Elias reencarnou no corpo de João Batista. No Evangelho de João (capítulo III), Jesus afirma a Nicodemos que ninguém pode entrar no reino de Deus se não nascer de novo. Diante da estranheza de Nicodemos, Jesus repete: é preciso renascer.
+
+Somente a doutrina da pluralidade das existências resolve de maneira coerente os grandes problemas morais e filosóficos da humanidade, em perfeita harmonia com a razão, a justiça e a misericórdia divinas.
