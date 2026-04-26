@@ -247,7 +247,7 @@ Quem ocupa uma condição infeliz deseja sair dela o mais rápido possível. Aqu
 
 *— O Espírito é tudo; o corpo é apenas uma veste que se desgasta.*
 
-O vinho oferece uma boa analogia: o álcool puro precisa passar por várias destilações para se livrar das impurezas. O corpo é como o alambique onde a alma entra para se purificar. O perispírito também se depura à medida que o Espírito se aproxima da perfeição.
+O suco da uva oferece uma analogia material para os diferentes graus de purificação da alma. Ele contém o licor que se chama, justamente, "espírito" ou álcool, mas enfraquecido por uma quantidade de matérias estranhas que lhe alteram a essência. Esse licor só atinge a pureza absoluta após várias destilações, deixando impurezas a cada uma delas. O corpo é o alambique onde a alma entra para se purificar. As matérias estranhas são como o perispírito, que também se depura à medida que o Espírito se aproxima da perfeição.
 
 
 ## Sorte das crianças após a morte
@@ -357,7 +357,7 @@ Os Espíritos encarnam ora como homens, ora como mulheres, porque não possuem s
 
 ### 215 — De onde vem o caráter particular de cada povo?
 
-*— Os Espíritos também se agrupam por afinidade, formando grandes famílias espirituais. Um povo é o resultado da reunião de Espíritos com inclinações semelhantes. Daí surgem os traços comuns que caracterizam cada coletividade.*
+*— Os Espíritos também se agrupam em famílias, formadas pela semelhança de inclinações, mais ou menos puras conforme a elevação que tenham alcançado. Um povo é uma grande família, composta pela reunião de Espíritos afins. A tendência que esses Espíritos têm de se unirem dá origem à semelhança que existe entre seus membros e constitui o caráter particular de cada coletividade. Acreditam que Espíritos bons e humanitários procurariam encarnar em um povo rude e grosseiro? Não. Os Espíritos têm afinidade com as coletividades, assim como têm com os indivíduos: encontram nelas o ambiente que lhes é próprio.*
 
 ### 216 — O Espírito conserva, em novas existências, traços morais das anteriores?
 
@@ -365,9 +365,9 @@ Os Espíritos encarnam ora como homens, ora como mulheres, porque não possuem s
 
 ### 217 — O Espírito conserva traços físicos de existências anteriores?
 
-*— O corpo atual não tem relação direta com o anterior. No entanto, o Espírito se reflete no corpo, moldando-lhe certos traços, especialmente no rosto. Por isso se diz que os olhos são o espelho da alma.*
+*— O corpo atual não tem relação direta com o anterior. No entanto, o Espírito se reflete no corpo. Embora o corpo seja apenas matéria, ele se molda às qualidades do Espírito, que lhe imprime um certo caráter, sobretudo no rosto. Por isso se diz que os olhos são o espelho da alma: o semblante reflete, de modo particular, aquilo que a alma é. Assim, uma pessoa de aparência pouco atraente, quando habitada por um Espírito bom, ponderado e humanitário, tem algo que agrada; ao passo que rostos belíssimos podem não causar nenhuma impressão, ou até inspirar repulsa. Pode-se imaginar que apenas corpos bem feitos sirvam de envoltório aos Espíritos mais elevados, quando, na verdade, encontramos todos os dias pessoas de bem sob uma aparência ingrata. Sem que haja semelhança física marcante, a afinidade de gostos e inclinações pode dar origem ao chamado "ar de família".*
 
-Não se deve concluir, a partir de semelhanças físicas fortuitas, que se trata do mesmo Espírito em existências sucessivas. Contudo, as qualidades morais frequentemente imprimem um caráter especial ao conjunto da aparência e dos modos, tornando reconhecível a elevação ou a inferioridade espiritual.
+O corpo que a alma assume em uma encarnação não tem relação necessária com aquele que ela usou em existências anteriores, pois pode vir de origem totalmente distinta. Por isso, seria absurdo concluir, a partir de uma semelhança física, que se trata do mesmo Espírito em existências sucessivas. Contudo, as qualidades do Espírito frequentemente modificam os órgãos que lhe servem para se expressar, imprimindo no rosto e até no conjunto dos modos um caráter próprio. É assim que, sob o mais humilde envoltório, se pode encontrar a expressão da grandeza e da dignidade; enquanto, sob trajes nobres, percebe-se muitas vezes a baixeza e a vulgaridade. Há pessoas de origem muito modesta que adotam, sem esforço, os hábitos e maneiras da alta sociedade, como se reencontrassem ali seu próprio elemento. Outras, ao contrário, apesar do nascimento e da educação, parecem sempre deslocadas em tal meio. Como explicar isso, senão como reflexo do que o Espírito foi antes?
 
 ## Ideias inatas
 ### 218 — Quando encarnado, o Espírito conserva algum vestígio das percepções e dos conhecimentos adquiridos em existências anteriores?

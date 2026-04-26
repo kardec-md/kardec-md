@@ -140,7 +140,7 @@ Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espírit
 
 ### 582 — A paternidade pode ser considerada uma missão?
 
-*— Sem dúvida. É uma missão e um dever de enorme responsabilidade. Deus confiou os filhos aos pais para que os conduzam no caminho do bem. Muitos, porém, cuidam mais das plantas do jardim do que da formação moral dos filhos.*
+*— Sem dúvida. É uma missão e um dever de enorme responsabilidade. Deus confiou os filhos aos pais para que os conduzam no caminho do bem, e facilitou essa tarefa dando à criança uma constituição física frágil e delicada, que a torna receptiva a todas as impressões. Muitos, porém, cuidam mais das plantas do jardim do que da formação moral dos filhos.*
 
 Se o filho se perde por negligência dos pais, eles responderão por isso, compartilhando de seus sofrimentos no futuro.
 

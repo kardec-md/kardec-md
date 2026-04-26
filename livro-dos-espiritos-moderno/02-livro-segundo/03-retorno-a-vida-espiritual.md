@@ -20,17 +20,17 @@
 
 ### 151 — O que pensar da ideia de que, após a morte, a alma retorna ao todo universal?
 
-*— O conjunto dos Espíritos forma um todo, mas isso não elimina a individualidade. Assim como em uma assembleia: fazes parte dela, mas continuas sendo tu mesmo.*
+*— Os Espíritos não formam um conjunto? Não constituem um mundo próprio? Quando vocês estão em uma assembleia, fazem parte dela, mas continuam conservando sua individualidade.*
 
 ### 152 — Que prova temos da individualidade da alma depois da morte?
 
-*— Não a tendes nas comunicações que recebeis? Se não fôsseis cegos, veríeis; se não fôsseis surdos, ouviríeis. Muitas vezes uma voz vos fala, revelando a existência de um ser fora de vós.*
+*— Vocês não a têm nas comunicações que recebem? Se não fossem cegos, veriam; se não fossem surdos, ouviriam. Muitas vezes uma voz fala com vocês, revelando a existência de um ser fora de si mesmos.*
 
 Aqueles que acreditam que a alma se dissolve no todo universal estão enganados se imaginam que ela perde sua individualidade, como uma gota d’água no oceano. Estão certos apenas se entendem por todo universal o conjunto dos seres espirituais, do qual cada alma é um elemento distinto.
 
 Se as almas se fundissem em uma massa única, todas teriam as mesmas qualidades e nenhuma se distinguiria das outras. Não haveria consciência individual nem vontade própria. No entanto, todas as comunicações espirituais demonstram exatamente o contrário: os Espíritos têm consciência de si mesmos, vontade própria e caráter distinto.
 
-A diversidade infinita de Espíritos — bons e maus, sábios e ignorantes, felizes e sofredores, alegres e tristes — prova que são individualidades distintas. Essa individualidade se torna ainda mais evidente quando comprovam sua identidade por sinais pessoais, fatos verificáveis de suas vidas passadas, ou quando se manifestam visivelmente.
+A diversidade infinita de Espíritos: bons e maus, sábios e ignorantes, felizes e sofredores, alegres e tristes, prova que são individualidades distintas. Essa individualidade se torna ainda mais evidente quando comprovam sua identidade por sinais pessoais, fatos verificáveis de suas vidas passadas, ou quando se manifestam visivelmente.
 
 Antes, a individualidade da alma era aceita apenas como artigo de fé. O Espiritismo a torna evidente e, de certo modo, perceptível.
 
@@ -40,7 +40,7 @@ Antes, a individualidade da alma era aceita apenas como artigo de fé. O Espirit
 
 **— Não seria mais correto chamar de vida eterna apenas a dos Espíritos puros, que já não precisam passar por provas?**
 
-*— Isso se refere mais propriamente à felicidade eterna. Mas trata-se apenas de uma questão de palavras. Chamai como quiserdes, desde que vos entendais.*
+*— Isso se refere mais propriamente à felicidade eterna. Mas trata-se apenas de uma questão de palavras. Chamem como quiserem, desde que se entendam.*
 
 
 ## Separação da alma e do corpo
@@ -63,7 +63,7 @@ Durante a vida, o Espírito está ligado ao corpo pelo perispírito. A morte des
 
 Isso não significa que haja vida orgânica ou possibilidade de retorno à vida, mas apenas uma afinidade persistente entre o Espírito e a matéria, proporcional ao apego que teve a ela durante a vida. Quanto mais o Espírito se identificou com a matéria, mais difícil é a separação. Já a elevação moral e intelectual facilita esse desprendimento, que pode começar ainda durante a vida corporal.
 
-Em casos excepcionais, como alguns suicídios, essa afinidade pode causar sofrimento intenso, inclusive a sensação da decomposição do corpo.
+Em casos excepcionais, ligados a certos modos de vida e de morte, essa afinidade pode tornar-se muito penosa, levando o Espírito a experimentar o horror da decomposição do próprio corpo. Verifica-se isso, por exemplo, em alguns suicidas.
 
 ### 156 — A separação definitiva da alma e do corpo pode ocorrer antes do fim completo da vida orgânica?
 
@@ -114,9 +114,11 @@ Após a morte, tudo é confuso no início. A alma precisa de um tempo para se re
 
 A duração dessa perturbação varia enormemente: pode durar horas, meses ou até anos. Aqueles que, ainda em vida, se prepararam para o estado futuro são os que menos a experimentam.
 
-Nos casos de morte violenta — suicídio, suplício, acidentes — o Espírito frequentemente não acredita que morreu. Vê o próprio corpo, reconhece-o, mas não compreende a separação. Fala com os vivos e não entende por que não é ouvido. Essa ilusão persiste até o completo desprendimento do perispírito.
+Em casos de morte violenta, como suicídio, acidentes ou ferimentos graves, o Espírito muitas vezes não percebe que morreu. Ele vê o próprio corpo, o reconhece, mas não entende o que aconteceu. Aproxima-se das pessoas que ama, tenta falar com elas e não compreende por que não é ouvido. Essa confusão pode continuar até que o desprendimento do perispírito se complete. Só então ele se dá conta da própria condição e entende que já não faz parte do mundo dos vivos.
 
-Esse fenômeno é semelhante ao que ocorre com sonâmbulos que não acreditam estar dormindo, porque pensam e veem. Alguns Espíritos mantêm essa ilusão mesmo quando a morte não foi inesperada, especialmente aqueles que estavam doentes, mas não acreditavam que morreriam.
+A explicação é simples: pego de surpresa, o Espírito fica desorientado com a mudança brusca. Ainda associa a morte ao fim de tudo, ao desaparecimento. Mas, como continua pensando, vendo e ouvindo, tem a sensação de que continua vivo. A confusão aumenta porque ele se percebe com um corpo parecido com o anterior, cuja natureza mais sutil ainda não reconhece. Para ele, esse corpo parece tão sólido quanto o físico, e quando tenta interagir com o mundo material e não consegue, se surpreende.
+
+Em alguns casos, essa ilusão pode persistir mesmo quando a morte não foi repentina, especialmente entre aqueles que estavam doentes, mas não imaginavam que iriam morrer.
 
 Há casos em que o Espírito assiste ao próprio enterro como se fosse o de outra pessoa, até que compreenda a realidade.
 
@@ -124,4 +126,4 @@ Para o homem de bem, a perturbação é calma, semelhante a um despertar tranqui
 
 Em mortes coletivas, observa-se que os Espíritos que faleceram ao mesmo tempo nem sempre se reencontram de imediato, pois cada um segue para onde o atraem seus vínculos.
 
-Na morte natural, a perturbação começa antes do fim da vida orgânica, e o Espírito não percebe o último suspiro. As convulsões da agonia são efeitos nervosos que quase nunca o afetam, exceto em casos específicos em que o sofrimento pode ter caráter expiatório.
+Na morte natural, a perturbação começa antes do fim da vida orgânica. O Espírito perde toda consciência de si no momento da morte e por isso jamais testemunha o último suspiro. As convulsões da agonia são efeitos nervosos que quase nunca o afetam, exceto em casos específicos em que o sofrimento pode ter caráter expiatório.

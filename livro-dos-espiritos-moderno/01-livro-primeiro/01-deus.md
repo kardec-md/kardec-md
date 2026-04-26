@@ -2,7 +2,7 @@
 
 ## Deus e o infinito
 
-### 1 — O que é Deus?
+### 1 — Que é Deus?
 
 *— Deus é a inteligência suprema, a causa primeira de todas as coisas.*
 

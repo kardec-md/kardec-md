@@ -188,7 +188,7 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 ### 251 — Os Espíritos são sensíveis à música?
 
-*— A música de vocês é insignificante comparada à harmonia espiritual. Ainda assim, Espíritos menos elevados podem sentir prazer com a música terrestre. A música espiritual é de uma beleza que a imaginação humana não consegue conceber.*
+*— A música de vocês é o quê comparada à música celeste? Uma está para a outra como o canto rude para uma melodia delicada. Ainda assim, Espíritos menos elevados podem sentir certo prazer ao ouvir a música de vocês, por ainda não estarem em condição de compreender outra mais sublime. A música celeste encanta os Espíritos que tem as qualidades sensitivas mais desenvolvidas.*
 
 ### 252 — Os Espíritos apreciam as belezas naturais?
 
@@ -208,7 +208,7 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 ### 256 — Por que alguns Espíritos afirmam sentir frio ou calor?
 
-*— São reminiscências da vida corporal. Muitas vezes, trata-se apenas de uma forma simbólica de expressar seu estado moral.*
+*— É uma lembrança do que viveram e sofreram, muitas vezes tão intensa quanto a própria realidade. Em outros casos, é apenas uma comparação usada por falta de algo melhor para descrever o que sentem. Ao se lembrarem do corpo que tiveram, experimentam algo semelhante ao que acontece quando alguém tira um casaco e, por um tempo, ainda sente como se ele estivesse sobre os ombros.*
 
 ## Ensaio teórico da sensação dos Espíritos
 
@@ -312,7 +312,9 @@ Assim, pode escolher provas duras e uma existência difícil, esperando alcança
 
 Quando se compreende que os Espíritos, livres da matéria, avaliam a vida de modo diferente, a escolha de provas difíceis deixa de parecer estranha. Após cada existência, o Espírito vê o quanto avançou e o quanto ainda precisa progredir. Por isso, aceita voluntariamente as dificuldades que podem levá-lo mais rápido à meta.
 
-A vida humana reflete, em pequena escala, a vida espiritual. Assim como na Terra escolhemos esforços e sacrifícios para alcançar posições melhores, o Espírito, que vê mais longe e sabe que a vida corporal é breve, pode escolher uma existência árdua se isso o conduzir à felicidade duradoura.
+Não vemos exemplos disso todos os dias? Quem passa parte da vida trabalhando sem trégua para garantir o próprio bem-estar não está, na verdade, cumprindo uma tarefa que se impôs em vista de um futuro melhor? O militar que se oferece para uma missão arriscada, o navegante que enfrenta perigos por amor à ciência ou ao próprio progresso, o que fazem senão se submeter a provas voluntárias, na esperança de honra e proveito? E os concursos não são também provas voluntárias a que as pessoas se sujeitam para avançar na carreira? Ninguém alcança posição nas ciências, nas artes ou na indústria sem passar por uma série de provas inferiores. A vida humana é, portanto, uma cópia em miniatura da vida espiritual. Ora, se na Terra muitas vezes escolhemos provas duras visando uma posição mais elevada, por que o Espírito, que enxerga mais longe e sabe que a vida corporal é apenas um breve incidente, não escolheria uma existência árdua se ela o conduzir à felicidade duradoura? Aqueles que dizem que pediriam para ser príncipes ou milionários, caso pudessem escolher sua existência, são como míopes que só veem o que tocam, ou como crianças gulosas que, quando perguntadas o que querem ser, respondem que querem ser confeiteiros.
+
+O viajante que atravessa um vale profundo coberto por densa neblina não consegue avistar a extensão da estrada, nem para onde ela leva. Mas, ao chegar ao alto da montanha, abrange com o olhar todo o caminho percorrido e o que ainda lhe resta percorrer. Vê o destino, percebe os obstáculos e calcula os meios mais seguros de superá-los. Enquanto encarnado, o Espírito é como um viajante no pé da montanha, vendo apenas uma parte do caminho. Quando se liberta dos vínculos terrenos, passa a enxergar com amplitude, como quem chega ao topo. Para o viajante, o objetivo é descansar após o esforço; para o Espírito, é alcançar a felicidade suprema depois das provas.
 
 ### 267 — O Espírito pode escolher suas provas enquanto ainda está encarnado?
 
@@ -377,7 +379,9 @@ Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o l
 
 ### 278 — Os Espíritos de diferentes ordens convivem entre si?
 
-*— Sim e não. Eles se veem, mas se distinguem. Aproximam-se ou se afastam conforme a afinidade, como acontece entre vocês.*
+*— Sim e não. Eles se veem, mas se distinguem uns dos outros. Aproximam-se ou se afastam conforme a simpatia ou a antipatia que despertam entre si, como acontece entre vocês. Formam um mundo do qual o de vocês é apenas um pálido reflexo. Os da mesma categoria se reúnem por uma espécie de afinidade e formam grupos ou famílias, unidos pela simpatia e pelos objetivos que perseguem: os bons, pelo desejo de fazer o bem; os maus, pelo desejo de fazer o mal, pela vergonha das próprias faltas e pela necessidade de estar entre semelhantes.*
+
+É como uma grande cidade, em que pessoas de todas as classes e condições se cruzam sem se confundir; em que as sociedades se formam pela afinidade de gostos; em que a virtude e o vício se afastam, sem trocar palavra.
 
 ### 279 — Todos os Espíritos têm acesso a todos os grupos?
 
@@ -389,11 +393,11 @@ Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o l
 
 ### 281 — Por que Espíritos inferiores gostam de induzir os humanos ao mal?
 
-*— Por ressentimento. Desejam impedir que outros alcancem o bem que eles próprios ainda não conquistaram.*
+*— Por ressentimento de ainda não merecerem estar entre os bons. Querem impedir, na medida do possível, que Espíritos ainda inexperientes alcancem o bem supremo. Querem que os outros experimentem o que eles mesmos experimentam. Isso não acontece também entre vocês?*
 
 ### 282 — Como os Espíritos se comunicam entre si?
 
-*— Eles se veem e se compreendem diretamente. A palavra é material; o pensamento se transmite por meio do fluido universal, que funciona como um meio de comunicação, assim como o ar transmite o som entre vocês.*
+*— Eles se veem e se compreendem diretamente. A palavra é material. O pensamento se transmite por meio do fluido universal, que funciona como um meio de comunicação, assim como o ar transmite o som entre vocês.*
 
 ### 283 — Os Espíritos podem esconder seus pensamentos uns dos outros?
 
@@ -405,11 +409,11 @@ Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o l
 
 ### 285 — Espíritos que conviveram na Terra se reconhecem após a morte?
 
-*— Sim, perfeitamente.*
+*— Sim, perfeitamente, e assim de geração em geração.*
 
 **— Como ocorre esse reconhecimento?**
 
-*— Pela recordação da vida passada, que se apresenta como um livro aberto.*
+*— Vemos nossa vida passada e a lemos como em um livro. Vendo a de nossos amigos e de nossos inimigos, vemos também a passagem deles da vida corporal para a outra.*
 
 Os Espíritos também podem, quando necessário, se reconhecer pela aparência que tinham quando vivos. Ao Espírito que acaba de chegar, e ainda pouco familiarizado com seu novo estado, os Espíritos que o vêm receber apresentam-se sob uma forma que lhe permite reconhecê-los.
 
@@ -427,7 +431,7 @@ Os Espíritos também podem, quando necessário, se reconhecer pela aparência q
 
 ### 289 — Parentes e amigos vêm ao nosso encontro após a morte?
 
-*— Sim. Aqueles que nos amam vêm nos receber, ajudam no desligamento do corpo e celebram o retorno, como quem volta de uma viagem difícil. Isso é uma recompensa para os Espíritos bons; o isolamento, para os maus, é uma forma de punição.*
+*— Sim. Os Espíritos vão ao encontro de quem amam e a recebem como alguém que volta de uma viagem cheia de perigos. Ajudam nesse momento de separação do corpo. Para os bons, é um acolhimento cheio de graça. Já quem ainda carrega imperfeições fica isolado, ou entre Espíritos iguais a ele, e isso acaba sendo uma forma de punição.*
 
 ### 290 — Parentes e amigos permanecem sempre juntos após a morte?
 
@@ -572,7 +576,7 @@ Assim como o adulto não sente falta dos brinquedos da infância.
 
 *— Para os Espíritos elevados, a pátria é o universo. Na Terra, sentem-se ligados aos lugares onde estão os Espíritos com os quais têm maior afinidade.*
 
-Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que estejam em missão. Os Espíritos intermediários ainda frequentam este mundo com certa regularidade. Já os Espíritos comuns formam a maior parte da população espiritual terrestre, conservando gostos, hábitos e inclinações semelhantes aos que tinham quando encarnados. Muitos participam indiretamente das atividades humanas, incentivando paixões ou observando para aprender.
+Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que estejam em missão. Os Espíritos intermediários ainda frequentam este mundo com certa regularidade. Já os Espíritos comuns formam a maior parte da população espiritual terrestre, conservando gostos, hábitos e inclinações semelhantes aos que tinham quando encarnados. Muitos participam indiretamente das atividades humanas, incentivando paixões ou observando para aprender
 
 ### 318 — As ideias do Espírito se modificam durante a erraticidade?
 
