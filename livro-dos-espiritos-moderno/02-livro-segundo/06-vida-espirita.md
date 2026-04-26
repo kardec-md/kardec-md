@@ -397,7 +397,7 @@ Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o l
 
 ### 282 — Como os Espíritos se comunicam entre si?
 
-*— Eles se veem e se compreendem diretamente. A palavra é material; o pensamento se transmite por meio do fluido universal, que funciona como um meio de comunicação, assim como o ar transmite o som entre vocês.*
+*— Eles se veem e se compreendem diretamente. A palavra é material. O pensamento se transmite por meio do fluido universal, que funciona como um meio de comunicação, assim como o ar transmite o som entre vocês.*
 
 ### 283 — Os Espíritos podem esconder seus pensamentos uns dos outros?
 

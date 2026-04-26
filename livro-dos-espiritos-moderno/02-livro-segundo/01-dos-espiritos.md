@@ -14,7 +14,7 @@ NOTA: A palavra Espírito é usada aqui para designar as individualidades dos se
 
 ### 78 — Os Espíritos tiveram um princípio ou existem, como Deus, desde toda a eternidade?
 
-*— Se não tivessem tido um princípio, seriam iguais a Deus. No entanto, são criação dele e estão submetidos à sua vontade. Deus existe desde sempre, isso é incontestável. Quanto à forma e ao momento em que fomos criados, nada sabemos. Pode-se dizer que não tivemos princípio apenas no sentido de que, sendo Deus eterno, ele sempre criou sem cessar. Mas quando e como cada um de nós surgiu, isso ninguém sabe: aí está o mistério.*
+*— Se não tivessem tido um princípio, seriam iguais a Deus. No entanto, são criação dele e estão submetidos à sua vontade. Deus existe desde sempre, isso é incontestável. Quanto à forma e ao momento em que fomos criados, nada sabemos.*
 
 ### 79 — Considerando que existem dois elementos gerais no universo — o elemento inteligente e o elemento material — pode-se dizer que os Espíritos são formados do elemento inteligente, assim como os corpos inertes o são do elemento material?
 
