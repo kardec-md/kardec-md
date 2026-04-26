@@ -304,14 +304,19 @@ A observação confirma isso: os sonhos infantis têm caráter simples e pueril,
 
 *— O Espírito retoma sua natureza própria e se mostra como realmente é.*
 
-A inocência da criança oculta o que ela foi e o que será. Deus concede às crianças a aparência de inocência para que não se possa acusá-lo de severidade excessiva. Mesmo quando se trata de Espíritos com más inclinações, suas ações ficam encobertas pela inconsciência da infância. Essa inocência não é superioridade real, mas a imagem do que deveriam ser.
+*Vocês não conhecem o que a inocência das crianças oculta. Não sabem o que elas são, nem o que foram, nem o que serão. E, no entanto, sentem afeto por elas, acariciam-nas como se fossem parte de vocês mesmos, a ponto de se considerar o amor de mãe pelos filhos como o maior amor que um ser pode dedicar a outro. De onde nasce essa ternura, essa benevolência que até mesmo estranhos sentem por uma criança? Sabem? Não. É o que vou explicar.*
 
-Essa aparência de inocência também é concedida em benefício dos pais, pois o amor necessário à fragilidade infantil se enfraqueceria se o caráter real se manifestasse desde cedo. Quando, porém, cessada a necessidade dessa proteção, o caráter verdadeiro surge, com as nuances que a infância ocultava.
+*As crianças são Espíritos enviados por Deus a novas existências. Para que não se atribua a Ele severidade excessiva, elas recebem a aparência de inocência. Mesmo quando trazem más tendências, suas faltas ficam encobertas pela inconsciência própria da infância. Essa inocência não indica superioridade em relação ao que eram antes; é um reflexo do que deveriam ser. Se não o forem, a responsabilidade recairá sobre elas.*
 
-A infância é, portanto, um estado necessário e providencial. Espíritos vindos de mundos diversos, com hábitos e tendências diferentes, só podem conviver harmoniosamente passando por esse período de nivelamento inicial. A infância permite que os Espíritos sejam educados, que seus caracteres sejam moldados e que más tendências sejam contidas. Essa é uma missão sagrada confiada aos pais, da qual prestarão contas.
+*Esse aspecto de inocência não existe apenas por causa das crianças, mas também pelos pais. O amor deles sustenta a fragilidade dos filhos e dificilmente resistiria a um temperamento duro desde o início. Ao vê-los como bons e dóceis, os pais oferecem afeto e cuidado. Quando essa proteção já não é necessária, o caráter real aparece, com nuances antes ocultas. Permanecem bons se já o eram em essência.*
 
-Assim, a infância é não apenas útil, mas indispensável, sendo consequência natural das leis divinas que regem o universo.
+*Os caminhos de Deus são sempre os melhores, e um coração sincero pode compreendê-los.*
 
+*Pensem: em seus lares podem nascer crianças cujos Espíritos vêm de mundos com hábitos diferentes. Como conviveriam trazendo inclinações opostas? É pela infância que se tornam capazes de se adaptar. Nela, pensamentos e tendências se misturam. E vocês mesmos, ao morrer, poderão se encontrar em situação semelhante, como iniciantes em um novo meio.*
+
+*A infância tem ainda outro papel: é o momento em que o Espírito pode ser educado. Nessa fase, é mais acessível à orientação e à experiência. Cabe aos pais ajudá-lo a desenvolver o bem e corrigir más inclinações, uma missão séria pela qual responderão.*
+
+*Assim, a infância não é apenas útil, mas necessária. Ela faz parte das leis que regem a vida.*
 
 ## Simpatias e antipatias terrenas
 ### 386 — Dois seres que se conheceram e se amaram podem reencontrar-se em outra existência corporal e reconhecer-se?
@@ -347,15 +352,19 @@ Assim, a infância é não apenas útil, mas indispensável, sendo consequência
 
 *— Porque o ser humano não pode, nem deve, saber tudo. Deus assim o quer em sua sabedoria. Sem o véu que oculta certas coisas, ele ficaria ofuscado, como alguém que sai bruscamente da escuridão para a luz. Esquecendo o passado, ele é mais plenamente ele mesmo.*
 
-### 393 — Como pode o ser humano ser responsável por atos e reparar faltas de que não se lembra?
+### 393 — Como pode o ser humano ser responsável por atos e reparar faltas de que não se lembra? Como pode aproveitar a experiência de vidas que esqueceu? Pensamos que as provas da vida lhe serviriam de lição se ele se lembrasse do que as causou. Como, porém, não se lembra, cada existência é, para ele, como se fosse a primeira, e ele está sempre recomeçando. Como conciliar isso com a justiça de Deus?
 
-*— Em cada nova existência, ele dispõe de mais inteligência e distingue melhor o bem do mal. Onde estaria seu mérito se se lembrasse de tudo? Ao retornar à vida espiritual, o Espírito revê toda a sua vida passada, reconhece suas faltas e compreende a justiça das provas que enfrenta. Escolhe então novas experiências para reparar o que fez e pede auxílio a Espíritos superiores. Essa intuição se manifesta, na vida corporal, como a voz da consciência, que o adverte para não reincidir nos mesmos erros.*
+*— Em cada nova existência, o ser humano dispõe de mais inteligência e distingue melhor o bem do mal. Onde estaria seu mérito se se lembrasse de todo o passado? Quando o Espírito retorna à vida primitiva (a vida espiritual), toda a sua vida passada se desdobra diante dele. Vê as faltas que cometeu, as causas de seu sofrimento e o modo como teria podido evitá-las. Reconhece a justiça da sua situação e busca uma existência capaz de reparar a anterior. Pede provas análogas àquelas de que não soube aproveitar, ou as lutas que considera adequadas ao seu progresso, e recorre a Espíritos superiores para que o auxiliem nessa nova empreitada, sabendo que o Espírito que lhe servirá de guia se esforçará para conduzi-lo a reparar as faltas, dando-lhe uma espécie de intuição daquelas em que incorreu. Essa intuição é o pensamento, o desejo criminoso que muitas vezes assalta vocês, e ao qual instintivamente resistem, atribuindo, na maioria das vezes, essa resistência aos princípios recebidos dos pais, quando, na verdade, é a voz da consciência que fala. Essa voz, que é a lembrança do passado, adverte para não recair nas faltas já cometidas. Se na nova existência o Espírito enfrenta as provas com coragem e resiste, ele se eleva e ascende na hierarquia dos Espíritos, ao retornar para o meio deles.*
+
+Durante a vida corporal, não temos lembrança exata do que fomos nem do que fizemos em existências anteriores. Ainda assim, guardamos uma intuição disso: nossas tendências instintivas refletem o passado, e a consciência, ao nos alertar para não repetir erros, nos ajuda a resistir a esses impulsos.
 
 ### 394 — Nos mundos mais elevados que a Terra, os habitantes se consideram mais felizes do que nós?
 
-*— Há mundos cujos habitantes conservam lembrança clara de suas existências passadas e, por isso, sabem apreciar a felicidade que desfrutam. Em outros, embora vivam em condições melhores que as vossas, não se consideram plenamente felizes, pois não se recordam de estados mais infelizes. Ainda assim, apreciam sua condição como Espíritos.*
+*— Há mundos cujos habitantes conservam lembrança clara de suas existências passadas e, por isso, sabem apreciar a felicidade que desfrutam. Em outros, embora vivam em condições melhores que a de vocês, não se consideram plenamente felizes, pois não se recordam de estados mais infelizes. Ainda assim, apreciam sua condição como Espíritos.*
 
-O esquecimento do passado doloroso revela a sabedoria divina. Nos mundos inferiores, a lembrança constante de sofrimentos agravaria as dificuldades presentes. Tudo o que Deus fez é perfeito, e não cabe ao ser humano julgar ou corrigir suas obras.
+O esquecimento das existências anteriores, sobretudo quando foram dolorosas, tem algo de providencial e revela sabedoria divina. É nos mundos superiores, onde essa lembrança já não passa de um pesadelo distante, que as vidas infelizes podem voltar à memória. Nos mundos inferiores, recordar tudo o que se sofreu só agravaria as dificuldades presentes. Concluímos, então, que tudo o que Deus fez é perfeito e que não cabe ao ser humano criticar suas obras nem tentar ensinar como Ele deveria reger o universo.
+
+Lembrar-se de existências anteriores teria sérios inconvenientes. Em certos casos, nos humilharia profundamente; em outros, alimentaria o orgulho, comprometendo o livre-arbítrio. Para nos melhorarmos, Deus nos dá exatamente o que basta: a voz da consciência e as tendências instintivas. Priva-nos do que poderia nos prejudicar. Além disso, se nos lembrássemos dos nossos atos passados, lembraríamos também os dos outros, com efeitos talvez desastrosos nas relações sociais. Como nem sempre podemos nos orgulhar do nosso passado, é melhor que sobre ele se lance um véu. Isso concorda com o ensinamento sobre os mundos superiores à Terra: ali, onde só reina o bem, a recordação do passado nada tem de penoso, e por isso seus habitantes se lembram da existência anterior como nos lembramos do que fizemos na véspera. Quanto a uma eventual passagem por mundos inferiores, ela não passa, então, de um mau sonho.
 
 ### 395 — Podemos ter revelações sobre nossas vidas anteriores?
 
@@ -379,6 +388,20 @@ O esquecimento do passado doloroso revela a sabedoria divina. Nos mundos inferio
 
 ### 399 — As vicissitudes da vida corporal permitem deduzir como foi a existência anterior?
 
-*— Muitas vezes, sim. Cada um é frequentemente punido naquilo em que errou. Contudo, não se deve estabelecer regra absoluta. As tendências instintivas são indícios mais seguros.*
+*— Muitas vezes, sim, pois cada um é punido naquilo em que pecou. Contudo, não se deve tirar daí uma regra absoluta. As tendências instintivas são indícios mais seguros, já que as provas pelas quais o Espírito passa são determinadas tanto pelo passado quanto pelo futuro.*
 
-As provas da vida corporal são, ao mesmo tempo, expiação do passado e preparação para o futuro. Se o Espírito triunfa nelas, eleva-se; se falha, precisa recomeçar. O livre-arbítrio permanece sempre, e o esquecimento do passado não impede o progresso, pois a consciência e as tendências instintivas funcionam como guia interior.
+Chegado ao fim da vida na erraticidade, o próprio Espírito escolhe as provas a que deseja submeter-se para acelerar o progresso, isto é, escolhe o tipo de existência que considera mais adequado para fornecer-lhe os meios de avançar; e essas provas estão sempre relacionadas com as faltas que precisa expiar. Se delas triunfa, eleva-se; se sucumbe, precisa recomeçar.
+
+O Espírito tem sempre o livre-arbítrio. É em virtude dessa liberdade que escolhe, quando desencarnado, as provas da vida corporal e, quando encarnado, decide praticar ou não certos atos, escolhendo entre o bem e o mal. Negar ao ser humano o livre-arbítrio seria reduzi-lo à condição de máquina.
+
+Ao mergulhar na vida corpórea, o Espírito perde momentaneamente a lembrança das existências anteriores, como se um véu as cobrisse. Conserva, porém, vaga consciência delas, que pode lhe ser revelada em certas circunstâncias. Tal revelação, no entanto, só é feita pelos Espíritos superiores, espontaneamente e com finalidade útil, nunca para satisfazer vã curiosidade.
+
+As existências futuras não podem, em nenhum caso, ser reveladas, pois dependem do modo como o Espírito conduzirá a existência atual e das escolhas que vier a fazer.
+
+O esquecimento das faltas cometidas não impede o progresso, pois, ainda que o Espírito não se lembre delas com precisão, o fato de tê-las conhecido na erraticidade e desejado repará-las o guia por intuição e lhe dá a ideia de resistir ao mal. Essa ideia é a voz da consciência, secundada pelos Espíritos superiores que o assistem, se ele atende às boas inspirações.
+
+O ser humano não se lembra dos atos que praticou em existências anteriores, mas pode reconhecer o tipo de faltas que cometeu e o traço dominante de seu caráter. Para isso, basta observar a si mesmo: é possível entender o passado não apenas pelo que se é hoje, mas pelas próprias tendências.
+
+As dificuldades da vida corporal funcionam como reparação do passado e, ao mesmo tempo, como provas para o futuro. Elas contribuem para o nosso crescimento, desde que sejam enfrentadas com equilíbrio, sem revolta.
+
+A própria natureza dessas experiências pode indicar o que fomos e fizemos, assim como, neste mundo, julgamos alguém pelas consequências de seus atos. O orgulho pode levar à humilhação; a avareza, à escassez; a crueldade, ao sofrimento; a tirania, à submissão; a ingratidão, ao abandono; e a negligência, a condições mais difíceis de trabalho.

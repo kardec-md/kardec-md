@@ -212,11 +212,11 @@ Esses fenômenos dependem de causas físicas e da ação de certos Espíritos. A
 
 *Aos que consideram impossível que Espíritos elevados se dediquem a uma tarefa tão constante e exigente, respondemos que influenciamos suas almas mesmo estando a milhões de léguas de distância. Para nós, o espaço não é obstáculo. Ainda que vivamos em outro mundo, mantemos laços com vocês. Possuímos qualidades que vocês ainda não compreendem, mas tenham certeza de que Deus não nos impôs tarefas acima de nossas forças e não deixou vocês sozinhos na Terra, sem amigos ou amparo. Cada anjo guardião tem alguém sob sua proteção, como um pai cuida de um filho. Alegra-se ao vê-lo no caminho certo e sofre quando seus conselhos são desprezados.*
 
-*Não tenham receio de nos cansar com suas perguntas. Ao contrário, procurem manter contato conosco. Assim, serão mais fortes e mais felizes. Essas comunicações entre cada pessoa e seu Espírito familiar fazem com que, de certo modo, todos sejam médiuns — ainda que hoje inconscientes disso. No futuro, essa faculdade se manifestará amplamente, espalhando-se como um oceano sem limites, varrendo o ceticismo e a ignorância. Homens instruídos, ensinem seus semelhantes; homens de talento, eduquem seus irmãos. Vocês não imaginam a obra que realizam assim: a obra do Cristo, aquela que Deus lhes confiou. Para que Deus lhes deu inteligência e conhecimento, senão para compartilhá-los, ajudando seus irmãos a avançar no caminho que leva à felicidade verdadeira?*
+*Não tenham receio de nos cansar com suas perguntas. Ao contrário, procurem manter contato conosco. Assim, serão mais fortes e mais felizes. Essas comunicações entre cada pessoa e seu Espírito familiar fazem com que, de certo modo, todos sejam médiuns, ainda que hoje inconscientes disso. No futuro, essa faculdade se manifestará amplamente, espalhando-se como um oceano sem limites, varrendo o ceticismo e a ignorância. Homens instruídos, ensinem seus semelhantes; homens de talento, eduquem seus irmãos. Vocês não imaginam a obra que realizam assim: a obra do Cristo, aquela que Deus lhes confiou. Para que Deus lhes deu inteligência e conhecimento, senão para compartilhá-los, ajudando seus irmãos a avançar no caminho que leva à felicidade verdadeira?*
 
 São Luís, Santo Agostinho.
 
-Nada há de surpreendente na doutrina dos anjos guardiães, que velam por aqueles que protegem, apesar da distância entre os mundos. Pelo contrário, ela é grandiosa e sublime. Não vemos, na Terra, um pai cuidar do filho mesmo à distância, ajudando-o com conselhos? Por que então seria estranho que os Espíritos, de outro mundo, possam guiar aqueles que tomaram sob sua proteção, se para eles a distância entre os mundos é menor do que a que separa continentes na Terra? Além disso, eles dispõem do fluido universal, que liga todos os mundos, tornando-os solidários — um imenso veículo de transmissão do pensamento, assim como o ar é, para nós, o meio da transmissão do som.
+Nada há de surpreendente na doutrina dos anjos guardiães, que velam por aqueles que protegem, apesar da distância entre os mundos. Pelo contrário, ela é grandiosa e sublime. Não vemos, na Terra, um pai cuidar do filho mesmo à distância, ajudando-o com conselhos? Por que então seria estranho que os Espíritos, de outro mundo, possam guiar aqueles que tomaram sob sua proteção, se para eles a distância entre os mundos é menor do que a que separa continentes na Terra? Além disso, eles dispõem do fluido universal, que liga todos os mundos, tornando-os solidários. É um imenso veículo de transmissão do pensamento, assim como o ar é, para nós, o meio da transmissão do som.
 
 ### 496 — O Espírito que se afasta de seu protegido, deixando de ajudá-lo, pode prejudicá-lo?
 
@@ -260,7 +260,7 @@ Nada há de surpreendente na doutrina dos anjos guardiães, que velam por aquele
 
 **— Como invocá-lo, então, se não sabemos seu nome?**
 
-*— Dêem-lhe o nome que quiserem, de um Espírito elevado que lhes inspire respeito ou carinho. O protetor atenderá, pois todos os Espíritos bons são irmãos e se auxiliam.*
+*— Deem-lhe o nome que quiserem, de um Espírito elevado que lhes inspire respeito ou carinho. O protetor atenderá, pois todos os Espíritos bons são irmãos e se auxiliam.*
 
 ### 505 — Os Espíritos protetores que se apresentam com nomes conhecidos são realmente aqueles que tiveram esses nomes?
 
@@ -414,6 +414,8 @@ Costumamos imaginar que os Espíritos só atuam por meio de fenômenos extraordi
 
 *— Sim. Orando por eles e respondendo ao mal com o bem. Assim, acabam compreendendo o erro. Além disso, quando vocês se colocam acima dessas influências, eles desistem por não obter vantagem.*
 
+A experiência mostra que alguns Espíritos continuam, em outra existência, a exercer as vinganças que vinham praticando. Cedo ou tarde, cada pessoa acaba respondendo pelo mal que fez a outra.
+
 ### 532 — Os Espíritos podem afastar males ou favorecer alguém com prosperidade?
 
 *— Não completamente, pois há sofrimentos previstos pela Providência. Eles, porém, aliviam as dores, inspirando paciência e resignação. Muitas vezes, depende de vocês evitar ou suavizar esses males.*
@@ -440,6 +442,10 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 *— O mesmo que acontece aos ingratos.*
 
+**— Mas existem pessoas que não pedem nem agradecem, e tudo lhes corre bem.**
+
+*— É verdade, mas é preciso esperar o desfecho. Pagarão caro essa felicidade que não merecem, pois quanto mais receberam, mais terão de prestar contas.*
+
 ### 536 — Os grandes fenômenos da natureza são fruto do acaso ou têm finalidade providencial?
 
 *— Tudo tem uma razão de ser e nada acontece sem a permissão de Deus.*
@@ -447,6 +453,10 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 **— Esses fenômenos têm sempre o ser humano como objetivo?**
 
 *— Às vezes sim, mas muitas vezes servem apenas para manter o equilíbrio e a harmonia das forças naturais.*
+
+**— Sabendo que os Espíritos atuam sobre a matéria e são agentes da vontade de Deus, alguns deles conseguem influenciar os elementos, como provocar, acalmar ou direcionar fenômenos?**
+
+*— Sem dúvida. Não poderia ser de outro modo. Deus não age diretamente sobre a matéria. Ele encontra agentes dedicados em todos os graus da escala dos mundos.*
 
 ### 537 — As antigas mitologias, que atribuíam fenômenos naturais a deuses, tinham fundamento?
 
@@ -499,7 +509,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 **— Eles ainda ouvem os sons da batalha?**
 
-*— Sim. Perfeitamente.
+*— Sim. Perfeitamente.*
 
 ### 548 — Como o Espírito percebe a separação da alma e do corpo em uma morte violenta?
 
@@ -545,7 +555,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 *— O que vocês chamam de feiticeiros são, muitas vezes, pessoas que possuem certas faculdades naturais, como o magnetismo ou a segunda vista, e que, agindo de boa-fé, produzem efeitos que os ignorantes não compreendem. Por isso, são tidas como dotadas de poderes sobrenaturais. Quantas vezes cientistas também não foram considerados feiticeiros pelos ignorantes?*
 
-*O Espiritismo e o magnetismo explicam inúmeros fenômenos que a ignorância transformou em lendas exageradas. O conhecimento claro dessas duas áreas — que, no fundo, formam uma só — é o melhor antídoto contra a superstição, pois mostra o que é possível, o que é natural e o que não passa de fantasia.*
+*O Espiritismo e o magnetismo explicam inúmeros fenômenos que a ignorância transformou em lendas exageradas. O conhecimento claro dessas duas áreas, que no fundo formam uma só, é o melhor antídoto contra a superstição, pois mostra o que é possível, o que é natural e o que não passa de fantasia.*
 
 ### 556 — Algumas pessoas realmente têm o poder de curar pelo simples contato?
 
@@ -555,6 +565,6 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 ## Bênçãos e maldições
 ### 557 — A bênção ou a maldição podem realmente atrair o bem ou o mal para alguém?
 
-*— Deus não atende a uma maldição injusta, e quem a profere se torna responsável por isso. Como existem influências opostas — o bem e o mal —, uma maldição pode exercer influência momentânea, até mesmo sobre a matéria, mas apenas se Deus permitir, como prova para quem a recebe. Em geral, os maus são amaldiçoados e os bons são abençoados.*
+*— Deus não atende a uma maldição injusta, e quem a profere se torna responsável por isso. Como existem influências opostas, o bem e o mal, uma maldição pode exercer influência momentânea, até mesmo sobre a matéria, mas apenas se Deus permitir, como prova para quem a recebe. Em geral, os maus são amaldiçoados e os bons são abençoados.*
 
 *A bênção ou a maldição jamais desviam a Providência do caminho da justiça. Deus só permite que o mal atinja quem pratica o mal e só concede proteção a quem a merece.*
