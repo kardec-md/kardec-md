@@ -25,7 +25,7 @@ As perguntas feitas aos espíritos estão em **negrito**, e as respostas deles e
 
 ### 4 — Onde se pode encontrar a prova da existência de Deus?
 
-*— Em um princípio que vocês aplicam às ciências: não existe efeito sem causa. Busquem a causa de tudo o que não foi feito pelo ser humano, e a razão de vocês dará a resposta.*
+*— Em um princípio que vocês aplicam às ciências: não existe efeito sem causa. Busquem a causa de tudo o que não foi feito pelo ser humano, e a sua razão lhe dará a resposta.*
 
 Para crer em Deus, basta observar a criação. O universo existe, portanto tem uma causa. Duvidar da existência de Deus é negar que todo efeito tenha uma causa e afirmar que o nada pode produzir alguma coisa.
 
@@ -53,7 +53,7 @@ A harmonia que rege o universo revela organização e propósito, o que indica a
 
 ### 9 — De que maneira a causa primeira revela uma inteligência suprema e superior a todas as outras?
 
-*— Existe um provérbio que diz: pela obra se reconhece o autor. Observem a obra e procurem o autor. O orgulho é o que gera o ceticismo. A pessoa orgulhosa não aceita nada acima de si e, por isso, se considera um espírito forte. Pobre ser, que um sopro de Deus pode derrubar.*
+*— Existe um provérbio que diz: pela obra se reconhece o autor. Observem a obra e procurem o autor. O orgulho é o que gera o ceticismo. A pessoa orgulhosa não aceita nada acima de si e, por isso, se considera um espírito forte. Pobre ser, que um simples sopro de Deus pode derrubar.*
 
 A grandeza de uma inteligência se mede por suas obras. Como nenhum ser humano é capaz de criar o que a natureza produz, a causa primeira só pode ser uma inteligência superior à humanidade.
 
