@@ -9,11 +9,11 @@
 
 *— Já explicamos: antes de encarnar, o Espírito conhecia essas realidades, e a alma conserva uma lembrança vaga do que sabia e do que viu no estado espiritual (393).*
 
-Desde todos os tempos, o ser humano se preocupa com o que existe além da morte — e isso é perfeitamente natural. Por mais importância que atribua à vida presente, ele percebe que ela é curta e frágil, sujeita a terminar a qualquer instante, sem garantia sequer do dia seguinte. O que acontece depois do momento final? Essa pergunta é profunda, porque não envolve apenas alguns anos, mas a eternidade.
+Desde todos os tempos, o ser humano se preocupa com o que existe além da morte, e isso é perfeitamente natural. Por mais importância que atribua à vida presente, ele percebe que ela é curta e frágil, sujeita a terminar a qualquer instante, sem garantia sequer do dia seguinte. O que acontece depois do momento final? Essa pergunta é profunda, porque não envolve apenas alguns anos, mas a eternidade.
 
 Quem vai viver muito tempo em um país distante se preocupa com as condições que encontrará lá. Como, então, não nos preocuparíamos com a situação em que estaremos ao deixar este mundo, sabendo que essa passagem é definitiva?
 
-A ideia do nada causa repulsa à razão. Mesmo aquele que vive despreocupado acaba, no instante derradeiro, perguntando a si mesmo o que será dele — e, quase sem perceber, se agarra à esperança.
+A ideia do nada causa repulsa à razão. Mesmo aquele que vive despreocupado acaba, no instante derradeiro, perguntando a si mesmo o que será dele e, quase sem perceber, se agarra à esperança.
 
 Crer em Deus sem admitir a vida futura é uma contradição. O sentimento de uma existência melhor está no íntimo de todos os seres humanos, e não faria sentido que Deus o tivesse colocado ali sem propósito.
 
@@ -51,17 +51,17 @@ Todas as nossas ações estão submetidas às leis divinas. Nenhuma é tão pequ
 
 Essa verdade fica clara com a seguinte comparação:
 
-“Um pai educa o filho e lhe dá instrução, ou seja, os meios para se orientar. Entrega-lhe um campo para cultivar e diz: ‘Aqui está a regra que deves seguir e os instrumentos necessários para tornar esse campo produtivo e garantir teu sustento. Dei-te conhecimento para compreender essa regra. Se a seguires, o campo dará frutos e te assegurará tranquilidade na velhice. Se a ignorares, nada produzirá e passarás necessidade.’ Depois disso, deixa o filho agir livremente.”
+“Um pai educa o filho e lhe dá instrução, ou seja, os meios para se orientar. Entrega-lhe um campo para cultivar e diz: ‘Aqui está a regra que você deve seguir e os instrumentos necessários para tornar esse campo produtivo e garantir seu sustento. Dei a você o conhecimento para compreender essa regra. Se a seguir, o campo dará frutos e lhe assegurará tranquilidade na velhice. Se a ignorar, nada produzirá e você passará necessidade.’ Depois disso, deixa o filho agir livremente.”
 
 Não é evidente que o campo produzirá conforme o cuidado que receber, e que toda negligência resultará em prejuízo? Na velhice, o filho será feliz ou infeliz conforme tenha seguido ou não a regra do pai.
 
-Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consciência, quando fazemos o bem ou o mal. Envia Espíritos para nos inspirar, mas muitas vezes não os escutamos. Há ainda uma diferença fundamental: Deus sempre concede novas oportunidades, novas existências, para que possamos reparar erros do passado — algo que o filho do exemplo não teve quando desperdiçou seu tempo.
+Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consciência, quando fazemos o bem ou o mal. Envia Espíritos para nos inspirar, mas muitas vezes não os escutamos. Há ainda uma diferença fundamental: Deus sempre concede novas oportunidades, novas existências, para que possamos reparar erros do passado, algo que o filho do exemplo não teve quando desperdiçou seu tempo.
 
 
 ## Natureza das penas e gozos futuros
 ### 965 — As penas e as alegrias da alma, depois da morte, têm algo de material?
 
-*— Não podem ser materiais, como indica o bom senso, pois a alma não é matéria. Não há nada de físico nessas penas e alegrias; ainda assim, elas são muito mais intensas do que as que experimentais na Terra, porque o Espírito, uma vez liberto, torna-se mais sensível. A matéria já não lhe amortece as percepções (237–257).*
+*— Não podem ser materiais, como indica o bom senso, pois a alma não é matéria. Não há nada de físico nessas penas e alegrias; ainda assim, elas são muito mais intensas do que as que vocês experimentam na Terra, porque o Espírito, uma vez liberto, torna-se mais sensível. A matéria já não lhe amortece as percepções (237–257).*
 
 ### 966 — Por que o ser humano faz, tantas vezes, uma ideia tão grosseira e absurda das penas e alegrias da vida futura?
 
@@ -75,15 +75,15 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 *A felicidade dos Espíritos, porém, é proporcional ao grau de elevação de cada um. Somente os Espíritos puros desfrutam da felicidade plena, mas isso não significa que todos os demais sejam infelizes. Entre os maus e os perfeitos há inúmeros graus, nos quais as alegrias variam conforme o estado moral. Os que já avançaram bastante compreendem a felicidade dos que os antecederam e desejam alcançá-la. Esse desejo não gera inveja, mas estímulo. Sabem que depende deles mesmos chegar lá e trabalham para isso com serenidade de consciência, sentindo-se felizes por não sofrerem mais como sofrem os Espíritos inferiores.*
 
-### 968 — Mencionais a ausência de necessidades materiais como condição da felicidade dos Espíritos bons. Mas a satisfação dessas necessidades não é, para o homem, uma fonte de prazer?
+### 968 — Vocês mencionam a ausência de necessidades materiais como condição da felicidade dos Espíritos bons. Mas a satisfação dessas necessidades não é, para o homem, uma fonte de prazer?
 
-*— Sim, é o prazer do animal. Quando não consegues satisfazê-las, sofres.*
+*— Sim, é o prazer do animal. Quando não consegue satisfazê-las, sofre.*
 
 ### 969 — O que significa dizer que os Espíritos puros estão reunidos no seio de Deus e ocupados em lhe entoar louvores?
 
 *— Trata-se de uma alegoria, que indica o grau de compreensão que eles têm das perfeições divinas, pois veem e entendem Deus. Não deve ser tomada ao pé da letra. Tudo na natureza, desde um grão de areia, proclama o poder, a sabedoria e a bondade de Deus.*
 
-*Não penses, porém, que os Espíritos felizes passam a eternidade em contemplação passiva. Isso seria uma felicidade vazia e monótona, própria do egoísmo. Eles estão livres das tribulações da vida material, o que já é um grande gozo. Além disso, utilizam a inteligência que adquiriram para auxiliar o progresso dos outros Espíritos. Essa é sua ocupação — e, ao mesmo tempo, sua alegria.*
+*Não pensem, porém, que os Espíritos felizes passam a eternidade em contemplação passiva. Isso seria uma felicidade vazia e monótona, própria do egoísmo. Eles estão livres das tribulações da vida material, o que já é um grande gozo. Além disso, utilizam a inteligência que adquiriram para auxiliar o progresso dos outros Espíritos. Essa é sua ocupação e, ao mesmo tempo, sua alegria.*
 
 ### 970 — Em que consistem os sofrimentos dos Espíritos inferiores?
 
@@ -109,9 +109,9 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 *— Não há palavras capazes de descrever plenamente as torturas morais que punem certos crimes. Mesmo o Espírito que as sofre teria dificuldade em explicá-las. Mas a mais terrível delas é a certeza de estar condenado sem possibilidade imediata de reparação.*
 
-A ideia que o ser humano faz das penas e alegrias após a morte depende do seu grau de entendimento. Quanto mais se desenvolve intelectualmente, mais essa ideia se depura e se afasta das imagens materiais. Passa a compreender de forma mais racional, sem tomar ao pé da letra figuras simbólicas. Sabendo que a alma é espiritual, a razão entende que ela não pode sofrer como o corpo sofre — mas isso não significa que esteja isenta de dor ou de punição (237).
+A ideia que o ser humano faz das penas e alegrias após a morte depende do seu grau de entendimento. Quanto mais se desenvolve intelectualmente, mais essa ideia se depura e se afasta das imagens materiais. Passa a compreender de forma mais racional, sem tomar ao pé da letra figuras simbólicas. Sabendo que a alma é espiritual, a razão entende que ela não pode sofrer como o corpo sofre, mas isso não significa que esteja isenta de dor ou de punição (237).
 
-As comunicações espíritas mostram o estado futuro da alma não como teoria, mas como realidade. Revelam as experiências da vida além da morte como consequências diretas e lógicas da vida terrena. Mesmo sem os exageros fantasiosos da imaginação humana, essas consequências continuam sendo dolorosas para quem fez mau uso de suas faculdades. Em síntese: cada um é punido pelo tipo de falta que cometeu. Uns sofrem ao ver continuamente o mal que causaram; outros, pelo remorso, pela vergonha, pelo medo, pela solidão, pelas trevas interiores, pela separação dos entes queridos, e assim por diante.*
+As comunicações espíritas mostram o estado futuro da alma não como teoria, mas como realidade. Revelam as experiências da vida além da morte como consequências diretas e lógicas da vida terrena. Mesmo sem os exageros fantasiosos da imaginação humana, essas consequências continuam sendo dolorosas para quem fez mau uso de suas faculdades. Em síntese: cada um é punido pelo tipo de falta que cometeu. Uns sofrem ao ver continuamente o mal que causaram; outros, pelo remorso, pela vergonha, pelo medo, pela solidão, pelas trevas interiores, pela separação dos entes queridos, e assim por diante.
 
 ### 974 — De onde vem a doutrina do fogo eterno?
 
@@ -119,27 +119,25 @@ As comunicações espíritas mostram o estado futuro da alma não como teoria, m
 
 **— Mas o medo desse fogo não produz bons efeitos?**
 
-*— Observai se ele realmente funciona como freio, inclusive entre os que o ensinam. Quando se ensinam ideias que a razão acaba rejeitando, o efeito não é duradouro nem saudável.*
+*— Observem se ele realmente funciona como freio, inclusive entre os que o ensinam. Quando se ensinam ideias que a razão acaba rejeitando, o efeito não é duradouro nem saudável.*
 
 Incapaz de definir a natureza desses sofrimentos, o ser humano recorreu à imagem mais forte que conhecia: o fogo, símbolo da dor extrema e da ação intensa. Por isso, a ideia do fogo eterno vem das mais antigas tradições e foi herdada pelos povos modernos. É o mesmo princípio das expressões figuradas: “fogo das paixões”, “arder de amor”, “queimar de ciúme”.
 
 ### 975 — Os Espíritos inferiores compreendem a felicidade dos justos?
 
-*— Sim, e isso é para eles um suplício, pois sabem que estão privados dessa felicidade por culpa própria. Por isso, o Espírito liberto da matéria aspira a uma nova encarnação, já que cada existência bem aproveitada reduz a duração do sofrimento. Assim, escolhe provas que lhe permitam reparar suas faltas.*
+*— Sim, e isso é para eles um suplício, pois compreendem que estão privados dessa felicidade por culpa própria. Daí resulta que o Espírito, liberto da matéria, aspira a uma nova vida corporal, pois cada existência, quando bem aproveitada, abrevia um tanto a duração desse suplício. É então que procede à escolha das provas pelas quais possa expiar suas faltas. Porque, saibam, o Espírito sofre por todo o mal que praticou ou de que foi causa voluntária, por todo o bem que poderia ter feito e não fez, e por todo o mal que resulta de não ter feito o bem.*
 
-*O Espírito sofre por todo o mal que praticou ou causou voluntariamente, pelo bem que poderia ter feito e não fez, e pelo mal que resultou da omissão do bem.*
+*Para o Espírito errante já não há véus. Ele se sente como quem saiu de um nevoeiro e vê o que o distancia da felicidade. Sofre mais então, porque compreende quanto foi culpado. Não tem mais ilusões: vê as coisas na sua realidade.*
 
-*Na erraticidade, o Espírito já não se engana: vê claramente o que o separa da felicidade. Seu sofrimento aumenta porque reconhece sua própria responsabilidade. Não há mais ilusões.*
-
-*Ele revê suas existências passadas e, ao mesmo tempo, percebe o futuro que o aguarda, compreendendo o que ainda lhe falta para alcançá-lo. É como o viajante que chega ao topo de uma montanha: vê o caminho percorrido e o que ainda precisa percorrer para concluir a jornada.*
+Na erraticidade, o Espírito passa a perceber com mais clareza sua própria trajetória: olha para trás e reconhece suas existências passadas; olha adiante e compreende o futuro que o aguarda, percebendo o quanto ainda precisa evoluir. É como um viajante que alcança um ponto alto da estrada: dali, ele consegue ver o caminho que já percorreu e também o que ainda precisa percorrer até chegar ao destino. 
 
 ### 976 — Ver o sofrimento dos Espíritos inferiores não perturba a felicidade dos bons?
 
-*— Não, porque sabem que o mal tem fim. Eles ajudam os outros a se melhorarem e lhes estendem a mão. Essa é sua ocupação — e essa ocupação lhes traz alegria quando conseguem êxito.*
+*— Não, porque sabem que o mal tem fim. Eles ajudam os outros a se melhorarem e lhes estendem a mão. Essa é sua ocupação, e essa ocupação lhes traz alegria quando conseguem êxito.*
 
 **— E quando se trata de Espíritos que amaram na Terra? O sofrimento deles não os afeta?**
 
-*— Se não percebessem esses sofrimentos, seriam estranhos a vós após a morte. Mas eles os veem sob outro ponto de vista. Sabem que as dores são úteis ao progresso, se suportadas com resignação. Sofrem mais ao ver a falta de coragem que atrasa esse progresso do que com o sofrimento em si, que é passageiro.*
+*— Se não percebessem esses sofrimentos, seriam estranhos a vocês após a morte. Mas eles veem o sofrimento sob outro ponto de vista. Sabem que as dores são úteis ao progresso, se suportadas com resignação. Sofrem mais ao ver a falta de coragem que atrasa esse progresso do que com o sofrimento em si, que é passageiro.*
 
 ### 977 — Como os Espíritos não ocultam seus pensamentos, o culpado permanece sempre diante de sua vítima?
 
@@ -183,7 +181,7 @@ A crença no Espiritismo ajuda o ser humano a se melhorar, esclarecendo ideias s
 
 *— Quando a alma está reencarnada, os sofrimentos da vida atingem o Espírito, mas quem sofre materialmente é o corpo.*
 
-*Costumais dizer que quem morreu não sofre mais, mas isso nem sempre é verdade. Como Espírito, ele não sente dor física; porém, conforme as faltas cometidas, pode sofrer dores morais muito mais intensas e até enfrentar uma nova existência mais difícil. O rico egoísta pode renascer na miséria; o orgulhoso, em condições humilhantes; aquele que abusou da autoridade pode se ver obrigado a obedecer a alguém mais duro do que ele próprio foi. Todas as dores e dificuldades da vida são expiação de faltas passadas ou consequência das atuais. Quando deixardes este mundo, compreendereis isso claramente (273, 393 e 399).*
+*Costumam dizer que quem morreu não sofre mais, mas isso nem sempre é verdade. Como Espírito, ele não sente dor física; porém, conforme as faltas cometidas, pode sofrer dores morais muito mais intensas e até enfrentar uma nova existência mais difícil. O rico egoísta pode renascer na miséria; o orgulhoso, em condições humilhantes; aquele que abusou da autoridade pode se ver obrigado a obedecer a alguém mais duro do que ele próprio foi. Todas as dores e dificuldades da vida são expiação de faltas passadas ou consequência das atuais. Quando deixarem este mundo, compreenderão isso claramente (273, 393 e 399).*
 
 *Quem se julga feliz na Terra apenas por satisfazer seus desejos é, em geral, quem menos se esforça para se melhorar. Muitas vezes, começa a expiar esses prazeres ainda nesta vida, mas certamente continuará a fazê-lo em outra existência igualmente material.*
 
@@ -207,7 +205,7 @@ Nesses mundos mais evoluídos, as necessidades materiais são menores e os sofri
 
 ### 988 — Uma vida tranquila, sem grandes dificuldades, prova que a pessoa não tem nada a expiar?
 
-*— Enganas-te se pensas que isso seja comum. Muitas vezes essa tranquilidade é apenas aparente. Há Espíritos que escolhem uma vida assim, mas ao deixá-la percebem que não progrediram. Lamentam, então, o tempo perdido. O Espírito só evolui pela ação. A indolência não conduz a lugar algum.*
+*— Engana-se quem pensa que isso seja comum. Muitas vezes essa tranquilidade é apenas aparente. Há Espíritos que escolhem uma vida assim, mas ao deixá-la percebem que não progrediram. Lamentam, então, o tempo perdido. O Espírito só evolui pela ação. A indolência não conduz a lugar algum.*
 
 *Quem desperdiça voluntariamente a própria existência terá de responder por isso. A felicidade futura é proporcional ao bem realizado; a infelicidade, ao mal praticado e ao sofrimento causado aos outros.*
 
@@ -234,7 +232,7 @@ Nesses mundos mais evoluídos, as necessidades materiais são menores e os sofri
 
 ### 994 — O Espírito que não reconheceu suas faltas em vida sempre as reconhece após a morte?
 
-*— Sim, e então sofre mais, porque percebe todo o mal que causou. Contudo, o arrependimento nem sempre é imediato. Alguns Espíritos persistem no erro por um tempo, mas mais cedo ou mais tarde reconhecem o caminho equivocado. Os Espíritos bons trabalham para esclarecê-los, e vós também podeis ajudar.*
+*— Sim, e então sofre mais, porque percebe todo o mal que causou. Contudo, o arrependimento nem sempre é imediato. Alguns Espíritos persistem no erro por um tempo, mas mais cedo ou mais tarde reconhecem o caminho equivocado. Os Espíritos bons trabalham para esclarecê-los, e vocês também podem ajudar.*
 
 ### 995 — Há Espíritos que não são maus, mas se mantêm indiferentes ao próprio destino?
 
@@ -242,7 +240,7 @@ Nesses mundos mais evoluídos, as necessidades materiais são menores e os sofri
 
 **— Esses Espíritos não desejam acabar logo com esse sofrimento?**
 
-*— Desejam, mas lhes falta energia para agir. Muitos preferem sofrer a fazer o esforço necessário para melhorar — como tantos encarnados que preferem a miséria ao trabalho.*
+*— Desejam, mas lhes falta energia para agir. Muitos preferem sofrer a fazer o esforço necessário para melhorar, como tantos encarnados que preferem a miséria ao trabalho.*
 
 ### 996 — Se os Espíritos percebem as consequências do mal, por que alguns continuam a agir mal e a piorar sua situação?
 
@@ -268,7 +266,7 @@ O Espírito não se transforma instantaneamente após a morte. Se viveu mal, con
 
 ### 1000 — Podemos reparar nossas faltas ainda nesta vida?
 
-*— Sim, reparando o mal que causamos. Mas não penseis que isso se faz com privações inúteis ou esmolas tardias. Deus não valoriza um arrependimento vazio. Uma pequena renúncia feita em benefício real de alguém vale mais do que grandes sacrifícios feitos apenas por vaidade pessoal (726).*
+*— Sim, reparando o mal que causamos. Mas não pensem que isso se faz com privações inúteis ou esmolas tardias. Deus não valoriza um arrependimento vazio. Uma pequena renúncia feita em benefício real de alguém vale mais do que grandes sacrifícios feitos apenas por vaidade pessoal (726).*
 
 *O mal só se repara com o bem. Não há mérito se a reparação não atinge o orgulho ou os interesses pessoais.*
 
@@ -282,7 +280,7 @@ O Espírito não se transforma instantaneamente após a morte. Se viveu mal, con
 
 *— Há algum valor, mas pouco. Quem só doa depois de morrer geralmente quer o mérito sem o esforço. Quem doa em vida tem dois ganhos: o mérito do sacrifício e a alegria de ver o bem que fez.*
 
-O egoísmo costuma dizer: “Se doares, perderás teus prazeres”. E como ele fala alto, muitos guardam o que têm, justificando-se com falsas necessidades. Infeliz daquele que nunca sentiu a alegria de dar: ele se priva de um dos prazeres mais puros. A riqueza é uma prova perigosa, mas Deus oferece, como compensação, a felicidade da generosidade, já possível nesta vida (814).
+*O egoísmo costuma dizer: “Se você doar, perderá seus prazeres”. E como ele fala alto, muitos guardam o que têm, se justificando com falsas necessidades. Infeliz daquele que nunca sentiu a alegria de dar: ele se priva de um dos prazeres mais puros. A riqueza é uma prova perigosa, mas Deus oferece, como compensação, a felicidade da generosidade, já possível nesta vida (814).*
 
 ### 1002 — E quem, ao morrer, reconhece suas faltas, mas já não pode repará-las?
 
@@ -324,7 +322,7 @@ SÃO LUÍS.
 
 ### 1009 — As penas impostas podem ser eternas?
 
-*— Consultai a vossa razão. Uma condenação sem fim, por erros cometidos em um tempo limitado, não seria a negação da bondade de Deus? O que representa uma vida de cem anos diante da eternidade? Sofrimentos sem fim, sem esperança, por faltas temporárias — essa ideia não repugna ao bom senso?*
+*— Consultem a sua razão. Uma condenação sem fim, por erros cometidos em um tempo limitado, não seria a negação da bondade de Deus? O que representa uma vida de cem anos diante da eternidade? Sofrimentos sem fim, sem esperança, por faltas temporárias: essa ideia não repugna ao bom senso?*
 
 *A ignorância dos povos antigos explica que tenham concebido Deus como severo e vingativo, atribuindo-lhe paixões humanas. Mas esse não é o Deus ensinado pelo Cristo, cujo fundamento é o amor, a misericórdia e o perdão. Poderia Deus exigir virtudes que Ele próprio não tivesse? Poderia ser infinitamente bom e infinitamente vingativo ao mesmo tempo?*
 
@@ -334,15 +332,15 @@ SANTO AGOSTINHO.
 
 ***
 
-*— Empenhai-vos em destruir a ideia da eternidade absoluta das penas — ideia que blasfema contra a justiça e a bondade de Deus e que tem sido uma das maiores fontes do materialismo, do ceticismo e da indiferença moral. A razão humana, ao se esclarecer, percebe essa injustiça e, rejeitando-a, muitas vezes rejeita também Deus.*
+*— Empenhem-se em destruir a ideia da eternidade absoluta das penas, ideia que vai contra a justiça e a bondade de Deus e que tem sido uma das maiores fontes do materialismo, do ceticismo e da indiferença moral. A razão humana, ao se esclarecer, percebe essa injustiça e, rejeitando-a, muitas vezes rejeita também Deus.*
 
-*Pobres almas desgarradas, olhai o bom Pastor que vem ao vosso encontro, não para vos excluir para sempre, mas para vos reconduzir ao caminho. Filhos pródigos, abandonai o exílio voluntário: o Pai vos espera de braços abertos.*
+*Pobres almas desgarradas, olhem para o bom Pastor que vem ao encontro de vocês, não para os excluir para sempre, mas para reconduzi-los ao caminho. Filhos pródigos, abandonem o exílio voluntário: o Pai os espera de braços abertos.*
 
 LAMENNAIS.
 
 ***
 
-*— Guerras de palavras! Ainda não bastou o sangue derramado? Discutis sobre a eternidade das penas sem perceber que os antigos não entendiam eternidade como vós entendeis hoje. A eternidade dos castigos significa a permanência do mal enquanto o mal existir. Quando o arrependimento for geral, cessarão as penas.*
+*— Guerras de palavras! Ainda não bastou o sangue derramado? Vocês discutem sobre a eternidade das penas sem perceber que os antigos não entendiam eternidade como vocês entendem hoje. A eternidade dos castigos significa a permanência do mal enquanto o mal existir. Quando o arrependimento for geral, cessarão as penas.*
 
 *Somente Deus é eterno. Admitir um mal eterno seria negar o seu poder soberano. Humanidade, não busques nos abismos da Terra o castigo: espera, expia e confia num Deus essencialmente bom, justo e poderoso.*
 
