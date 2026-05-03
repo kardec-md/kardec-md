@@ -97,7 +97,7 @@ A possibilidade de comunicação com os Espíritos é uma grande consolação. P
 
 *— O Espírito sente a lembrança e a saudade, mas uma dor exagerada o entristece, pois nela ele vê falta de fé no futuro e de confiança em Deus. Isso pode dificultar o progresso de quem sofre e até o reencontro entre eles.*
 
-Se o Espírito está mais feliz fora do corpo do que na Terra, lamentar sua partida é lamentar que ele esteja melhor. Imagine dois amigos presos: um é libertado antes do outro. Seria justo que o que ficou triste porque o amigo saiu primeiro? O mesmo acontece com aqueles que se amam. Quem parte antes se liberta primeiro; cabe aos que ficam esperar com paciência.
+Se o Espírito está mais feliz fora do corpo do que na Terra, lamentar sua partida é lamentar que ele esteja melhor. Imagine dois amigos presos: um é libertado antes do outro. Seria justo que o que continuou preso se entristecesse porque o amigo saiu primeiro? O mesmo acontece com aqueles que se amam. Quem parte antes se liberta primeiro, cabe aos que ficam esperar com paciência.
 
 Pense também em um amigo que precisa se afastar para melhorar de saúde ou de vida. A separação é apenas física, e vocês continuam em contato. Você se entristeceria, mesmo sabendo que isso é para o bem dele?
 
@@ -183,7 +183,7 @@ Quem utiliza suas capacidades de forma útil e de acordo com suas aptidões natu
 
 ### 947 — Pode ser considerado suicídio o caso de alguém que, em extrema miséria, se deixa morrer por falta de esperança?
 
-*— É uma forma de suicídio. No entanto, os mais culpados são aqueles que causaram essa situação ou que poderiam tê-la evitado. Ainda assim, essa pessoa não está totalmente isenta de responsabilidade se lhe faltaram esforço e perseverança. Especialmente grave é quando o desespero nasce do orgulho — quando alguém prefere morrer a trabalhar por considerar isso humilhante. Há muito mais dignidade em enfrentar a adversidade do que sacrificar a própria vida pela opinião de um mundo indiferente.*
+*— É uma forma de suicídio. No entanto, os mais culpados são aqueles que causaram essa situação ou que poderiam tê-la evitado. Ainda assim, essa pessoa não está totalmente isenta de responsabilidade se lhe faltaram esforço e perseverança. Especialmente grave é quando o desespero nasce do orgulho, quando alguém prefere morrer a trabalhar por considerar isso humilhante. Há muito mais dignidade em enfrentar a adversidade do que sacrificar a própria vida pela opinião de um mundo indiferente.*
 
 ### 948 — É tão condenável quanto o suicídio por desespero aquele cometido para fugir da vergonha de uma falta?
 

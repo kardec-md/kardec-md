@@ -9,13 +9,14 @@ Espiritualismo é o oposto de materialismo. Todo aquele que acredita que existe 
 Para distinguir essa crença específica, adotamos os termos "espírita" e "espiritismo". Essas palavras indicam com precisão a doutrina que trata das relações entre o mundo material e os Espíritos, ou seres do mundo invisível. Assim, preserva-se o sentido original de espiritualismo e evita-se confusão. Os seguidores dessa doutrina são chamados espíritas, também conhecidos como espiritistas.
 
 ### II
+
 Outra palavra que precisa ser bem definida é alma. Muitas discussões sobre o tema surgem porque cada pessoa entende esse termo de maneira diferente. Para alguns, alma é apenas o princípio da vida biológica. Não teria existência própria e desapareceria com a morte do corpo. Essa é a posição materialista: a alma seria um efeito do organismo, não sua causa.
 
 Outros defendem a ideia de uma alma universal, da qual cada ser receberia uma parte durante a vida. Após a morte, essa parte retornaria à fonte comum, perdendo a individualidade. Embora admita algo além da matéria, essa visão praticamente elimina a consciência pessoal depois da morte.
 
 Por fim, há a concepção mais difundida: a alma como um ser imaterial, individual e independente da matéria, que sobrevive ao corpo. Essa é a visão espiritualista. O problema é que a mesma palavra é usada para ideias diferentes. Para evitar confusão, é preciso definir claramente o sentido adotado. Nesta obra, chamamos alma o ser imaterial e individual que existe em nós e continua a existir após a morte.
 
-Quando nos referimos à força que sustenta a vida biológica, usamos a expressão princípio vital. Trata-se da energia que mantém os seres orgânicos — plantas, animais e seres humanos — independentemente da inteligência ou do pensamento. A vida material é comum a todos os organismos; já a inteligência e o senso moral aparecem em graus diferentes, atingindo no ser humano seu desenvolvimento mais completo.
+Quando nos referimos à força que sustenta a vida biológica, usamos a expressão princípio vital. Trata-se da energia que mantém os seres orgânicos (plantas, animais e seres humanos) independentemente da inteligência ou do pensamento. A vida material é comum a todos os organismos; já a inteligência e o senso moral aparecem em graus diferentes, atingindo no ser humano seu desenvolvimento mais completo.
 
 Muitas divergências ao longo do tempo nasceram apenas do uso impreciso das palavras. Ao esclarecer o sentido de alma desde o início, evitamos mal-entendidos e discussões desnecessárias.
 
@@ -65,27 +66,99 @@ A experiência também revelou outras formas de manifestação: comunicações p
 
 Dois pontos chamaram a atenção dos observadores. O primeiro era o modo como o objeto se movia. Bastava que o médium encostasse levemente os dedos para que a cesta se deslocasse. Quando duas ou três pessoas tocavam ao mesmo tempo, seria necessário supor uma coordenação extremamente precisa de movimentos e pensamentos para produzir respostas coerentes. Além disso, a caligrafia variava conforme a identidade atribuída ao Espírito comunicante, repetindo-se o mesmo estilo quando ele voltava a se manifestar. Isso exigiria do médium a capacidade de reproduzir diversas formas de escrita com consistência, o que tornava a hipótese de fraude mais complexa.
 
-O segundo ponto dizia respeito ao conteúdo das mensagens. Muitas respostas tratavam de temas científicos ou abstratos que ultrapassavam claramente o conhecimento do médium. Em vários casos, ele não tinha consciência do que escrevia, não compreendia a pergunta — às vezes feita mentalmente ou em idioma desconhecido — e ainda assim surgia uma resposta coerente. Também acontecia de a escrita começar espontaneamente, sem pergunta prévia, sobre assuntos inesperados.
+O segundo ponto dizia respeito ao conteúdo das mensagens. Muitas respostas tratavam de temas científicos ou abstratos que ultrapassavam claramente o conhecimento do médium. Em vários casos, ele não tinha consciência do que escrevia, não compreendia a pergunta (às vezes feita mentalmente ou em idioma desconhecido) e ainda assim surgia uma resposta coerente. Também acontecia de a escrita começar espontaneamente, sem pergunta prévia, sobre assuntos inesperados.
 
 Em algumas comunicações apareciam ideias profundas, elevadas e moralmente consistentes. Em outras, surgiam mensagens superficiais ou triviais. Essa diferença de conteúdo indicaria diversidade de inteligências atuando. 
 
 Esses fatos ocorriam de forma aberta, repetidos por milhares de pessoas, e não como experiências isoladas. Se demonstravam intenção e inteligência, já não podiam ser considerados apenas fenômenos físicos. Diversas teorias foram propostas para explicá-los. Elas serão examinadas adiante. Por ora, consideremos a hipótese apresentada pelas próprias comunicações: a existência de inteligências distintas da humana. A partir dessa possibilidade, analisemos o que essas inteligências afirmam.
 
+### VI
+
+Como vimos, os próprios seres que se comunicam designam a si mesmos como Espíritos ou gênios e declaram, ao menos em parte, terem pertencido a homens que viveram na Terra. Eles formam o mundo espiritual, assim como nós constituímos o mundo corporal durante a vida terrena. A seguir, resumimos os pontos principais da doutrina que nos transmitiram, para depois respondermos com mais facilidade a certas objeções.
+
+*Deus é eterno, imutável, imaterial, único, onipotente, soberanamente justo e bom.*
+
+*Deus criou o universo, que abrange todos os seres animados e inanimados, materiais e imateriais.*
+
+*Os seres materiais constituem o mundo visível ou corpóreo; os seres imateriais formam o mundo invisível ou espírita, isto é, o mundo dos Espíritos.*
+
+*O mundo espírita é o mundo normal, primitivo, eterno, anterior e posterior a tudo o mais.*
+
+*O mundo corporal é secundário. Poderia deixar de existir, ou jamais ter existido, sem que isso alterasse a essência do mundo espírita.*
+
+*Os Espíritos vestem temporariamente um corpo material perecível. A morte desfaz esse envoltório e lhes devolve a liberdade.*
+
+*Entre as diferentes espécies de seres corpóreos, Deus escolheu a espécie humana para a encarnação dos Espíritos que atingiram certo grau de desenvolvimento, conferindo-lhe superioridade moral e intelectual sobre as demais.*
+
+*A alma é um Espírito encarnado; o corpo é apenas o seu envoltório.*
+
+*Há no ser humano três elementos: primeiro, o corpo, ser material semelhante ao dos animais e animado pelo mesmo princípio vital; segundo, a alma, ser imaterial, ou seja, o Espírito encarnado no corpo; terceiro, o laço que une a alma ao corpo, princípio intermediário entre a matéria e o Espírito.*
+
+*Assim, o ser humano possui duas naturezas: pelo corpo, participa da natureza dos animais, com os instintos que lhes são próprios; pela alma, participa da natureza dos Espíritos.*
+
+*O laço que une o corpo e o Espírito, chamado perispírito, é uma espécie de envoltório semimaterial. A morte destrói o envoltório mais grosseiro. O Espírito conserva o segundo, que lhe serve como um corpo etéreo, invisível para nós em condições normais, mas que pode tornar-se acidentalmente visível e até tangível, como ocorre nas aparições.*
+
+*O Espírito não é, portanto, um ser abstrato e indefinido, perceptível apenas pelo pensamento. É um ser real, com contornos próprios, que em certos casos pode ser percebido pela visão, pela audição e pelo tato.*
+
+*Os Espíritos pertencem a diferentes classes e não são iguais em poder, inteligência, conhecimento ou moralidade. Os da primeira ordem são os Espíritos superiores, que se distinguem pela perfeição, pelos conhecimentos, pela proximidade de Deus, pela pureza dos sentimentos e pelo amor ao bem: são os anjos ou Espíritos puros. Os das demais classes encontram-se cada vez mais distantes dessa perfeição. Os de categorias inferiores manifestam ainda muitas das paixões humanas: ódio, inveja, ciúme, orgulho. Comprazem-se no mal. Há também os que não são nem muito bons nem muito maus, mais perturbadores e enredadores do que perversos, em quem predominam a malícia e a leviandade. São os Espíritos levianos.*
+
+*Os Espíritos não permanecem indefinidamente na mesma ordem. Todos progridem, atravessando os diferentes graus da hierarquia espiritual. Esse progresso se dá por meio da encarnação, que para uns é expiação e para outros, missão. A vida material é uma prova pela qual precisam passar repetidamente, até alcançarem a perfeição. É como um filtro do qual saem cada vez mais purificados.*
+
+*Ao deixar o corpo, a alma retorna ao mundo dos Espíritos, de onde havia saído, para depois iniciar nova existência material após um período mais ou menos longo, durante o qual permanece em estado de Espírito errante.*
+
+*Como o Espírito passa por muitas encarnações, todos nós já tivemos diversas existências e ainda teremos outras, mais ou menos aperfeiçoadas, na Terra ou em outros mundos.*
+
+*A encarnação dos Espíritos ocorre sempre na espécie humana. Seria erro acreditar que a alma ou o Espírito possa encarnar no corpo de um animal.*
+
+*As diferentes existências corpóreas do Espírito são sempre progressivas, nunca regressivas. A rapidez do progresso depende dos esforços feitos para alcançar a perfeição.*
+
+*As qualidades da alma são as do Espírito que está encarnado em nós. Assim, a pessoa de bem é a encarnação de um Espírito bom; a pessoa perversa, a de um Espírito impuro.*
+
+*A alma já possuía individualidade antes de encarnar e a conserva depois de se separar do corpo.*
+
+*Ao retornar ao mundo dos Espíritos, ela reencontra todos aqueles que conheceu na Terra e todas as suas existências anteriores se reconstituem na memória, com a lembrança de todo o bem e de todo o mal que praticou.*
+
+*O Espírito encarnado está sob a influência da matéria. A pessoa que vence essa influência, pela elevação e depuração da alma, aproxima-se dos Espíritos bons, com os quais um dia conviverá. Já a que se deixa dominar pelas más paixões e coloca toda a sua alegria na satisfação dos apetites grosseiros aproxima-se dos Espíritos impuros, dando preponderância à natureza animal.*
+
+*Os Espíritos encarnados habitam os diferentes mundos do universo.*
+
+*Os Espíritos não encarnados, ou errantes, não ocupam uma região fixa e delimitada. Estão por toda parte no espaço, ao nosso lado, vendo-nos e convivendo conosco a todo instante. É toda uma população invisível, que se move ao nosso redor.*
+
+*Os Espíritos exercem ação contínua sobre o mundo moral e mesmo sobre o mundo físico. Atuam sobre a matéria e sobre o pensamento, e constituem uma das forças da natureza, causa eficiente de muitos fenômenos até hoje sem explicação satisfatória, e que só encontram resposta racional no Espiritismo.*
+
+*A relação dos Espíritos com os seres humanos é constante. Os bons nos atraem para o bem, nos sustentam nas provas da vida e nos ajudam a suportá-las com coragem e resignação. Os maus nos impelem para o mal: têm prazer em ver-nos sucumbir e tornarmo-nos parecidos com eles.*
+
+*As comunicações dos Espíritos com os homens são ocultas ou ostensivas. As ocultas se dão pela influência boa ou má que exercem sobre nós sem que percebamos. Cabe ao nosso discernimento separar as boas das más inspirações. As ostensivas ocorrem por meio da escrita, da fala ou de outras manifestações materiais, quase sempre por intermédio dos médiuns.*
+
+*Os Espíritos manifestam-se espontaneamente ou mediante evocação. Pode-se evocar qualquer Espírito: o de pessoas comuns, o de personagens ilustres, de qualquer época em que tenham vivido, o de parentes, amigos ou inimigos. Por meio de comunicações escritas ou faladas, podemos obter deles conselhos, informações sobre a situação em que se encontram além da vida terrena, sobre o que pensam a nosso respeito, e ainda as revelações que lhes seja permitido nos transmitir.*
+
+*Os Espíritos são atraídos pela afinidade com a natureza moral do ambiente que os evoca. Os Espíritos superiores comparecem nas reuniões sérias, onde predominam o amor ao bem e o desejo sincero de aprendizado e progresso. A presença deles afasta os Espíritos inferiores, que, ao contrário, encontram livre acesso e podem agir à vontade entre pessoas frívolas, movidas apenas pela curiosidade, ou em ambientes onde existam maus instintos. Em vez de bons conselhos ou ensinamentos úteis, dali só se podem esperar futilidades, mentiras, gracejos de mau gosto e mistificações, pois muitas vezes esses Espíritos assumem nomes respeitados para induzir mais facilmente ao erro.*
+
+*Distinguir os bons dos maus Espíritos é simples. Os superiores usam linguagem digna, nobre, marcada por elevada moralidade, sem qualquer vestígio de paixões inferiores. Seus conselhos refletem pura sabedoria e visam sempre o nosso aperfeiçoamento e o bem da humanidade. Já a linguagem dos Espíritos inferiores é incoerente, muitas vezes trivial e até grosseira. Quando dizem algo bom e verdadeiro, dizem muito mais falsidades e absurdos, por malícia ou ignorância. Zombam da credulidade humana, divertem-se às custas de quem os interroga, lisonjeiam vaidades e alimentam desejos com falsas esperanças. Em resumo: comunicações sérias só ocorrem em ambientes igualmente sérios, em que haja sintonia de pensamentos voltados para o bem.*
+
+*A moral dos Espíritos superiores resume-se, como a do Cristo, nesta máxima evangélica: fazer aos outros o que gostaríamos que nos fizessem, isto é, fazer o bem e não o mal. Nesse princípio o ser humano encontra uma regra universal de conduta, válida até para as menores ações.*
+
+*Eles ensinam que o egoísmo, o orgulho e a sensualidade são paixões que nos aproximam da natureza animal e nos prendem à matéria. Aquele que, ainda neste mundo, se desliga da matéria, despreza as futilidades e ama o próximo aproxima-se da natureza espiritual. Cada um deve tornar-se útil, na medida das faculdades e dos meios que Deus lhe colocou nas mãos para experimentá-lo. O forte e o poderoso devem amparo e proteção ao fraco, pois transgride a lei de Deus quem usa a força e o poder para oprimir o semelhante. Ensinam ainda que, no mundo dos Espíritos, nada permanece oculto: o hipócrita será desmascarado e todas as suas torpezas virão à luz. A presença inevitável e contínua daqueles a quem fizemos mal é um dos castigos que nos aguardam. E ao estado de inferioridade ou superioridade dos Espíritos correspondem sofrimentos e alegrias desconhecidos na Terra.*
+
+*Mas ensinam também que não há faltas que não possam ser reparadas. As diferentes existências oferecem ao ser humano os meios de avançar, conforme seus desejos e esforços, no caminho do progresso, rumo à perfeição, que é o seu destino final.*
+
+Esse é o resumo da doutrina espírita conforme os ensinamentos transmitidos pelos Espíritos superiores. Vejamos agora as objeções que se lhe contrapõem.
+
 ### VII
 
-Para muitas pessoas, a oposição das corporações científicas constitui, se não uma prova, ao menos um forte indício contra qualquer nova ideia. Não estamos entre os que atacam os cientistas — longe disso. Temos grande respeito por eles e consideraríamos uma honra sermos contados entre seus membros. Mas suas opiniões não podem, em todas as circunstâncias, ser tomadas como sentença definitiva.
+Para muitas pessoas, a oposição das corporações científicas constitui, se não uma prova, ao menos um forte indício contra qualquer nova ideia. Não estamos entre os que atacam os cientistas; pelo contrário, temos grande respeito por eles e consideraríamos uma honra sermos contados entre seus membros. Mas suas opiniões não podem, em todas as circunstâncias, ser tomadas como sentença definitiva.
 
 Quando a ciência se limita à observação material dos fatos, ela caminha em terreno seguro. Porém, ao interpretar, avaliar e explicar aquilo que observa, entra inevitavelmente no campo das hipóteses. Cada estudioso constrói seu próprio sistema e tende a defendê-lo com convicção. Não vemos com frequência teorias opostas serem alternadamente rejeitadas como absurdas e depois proclamadas como verdades incontestáveis? O verdadeiro critério do juízo são os fatos. Onde os fatos faltam, a dúvida é a postura mais sensata.
 
 Em assuntos já conhecidos e amplamente estudados, a opinião dos cientistas merece confiança, pois possuem conhecimento técnico superior ao do público em geral. Contudo, diante de princípios novos e fenômenos ainda pouco compreendidos, essa opinião costuma ser provisória. Os cientistas, como qualquer ser humano, também estão sujeitos a preconceitos. Muitas vezes, a própria especialização os leva a interpretar tudo a partir do campo em que se aprofundaram: o matemático busca demonstrações numéricas; o químico reduz os fenômenos à ação dos elementos; o físico procura forças e mecanismos. Fora de sua área, podem errar como qualquer outro.
 
-Consultaremos com confiança um químico sobre análise de substâncias, um físico sobre eletricidade, um engenheiro sobre máquinas. Mas isso não nos obriga a aceitar, como decisiva, a opinião negativa que qualquer deles possa emitir sobre o Espiritismo — assim como não recorreríamos a um arquiteto para resolver uma questão de música.
+Consultaremos com confiança um químico sobre análise de substâncias, um físico sobre eletricidade, um engenheiro sobre máquinas. Mas isso não nos obriga a aceitar, como decisiva, a opinião negativa que qualquer deles possa emitir sobre o Espiritismo, assim como não recorreríamos a um arquiteto para resolver uma questão de música.
 
 As ciências tradicionais estudam a matéria, que pode ser manipulada e experimentada livremente. Os fenômenos espíritas, porém, envolvem a ação de inteligências dotadas de vontade própria, que não se submetem aos caprichos dos observadores. Por isso, não podem ser analisados pelos mesmos métodos. Exigir que se ajustem aos processos comuns de laboratório é aplicar uma analogia inadequada.
 
 A ciência, enquanto ciência material, não possui instrumentos para decidir sobre a existência da alma ou sobre seu estado após a morte. O Espiritismo baseia-se justamente nessas questões. Submeter o problema ao julgamento exclusivo de físicos ou astrônomos seria tão incoerente quanto pedir a um matemático que determine, apenas com números, a realidade de um sentimento.
 
-Se as ideias espíritas se difundirem amplamente — e a rapidez com que se propagam indica que isso pode ocorrer — o que sempre aconteceu com as ideias novas voltará a acontecer: a resistência inicial cederá à evidência. Os estudiosos chegarão a suas conclusões individualmente, à medida que os fatos se impuserem. Não é produtivo desviá-los de suas áreas específicas para obrigá-los a estudar um tema que ainda não faz parte de seus programas.
+Se as ideias espíritas se difundirem amplamente, e a rapidez com que se propagam indica que isso pode ocorrer, o que sempre aconteceu com as ideias novas voltará a acontecer: a resistência inicial cederá à evidência. Os estudiosos chegarão a suas conclusões individualmente, à medida que os fatos se impuserem. Não é produtivo desviá-los de suas áreas específicas para obrigá-los a estudar um tema que ainda não faz parte de seus programas.
 
 A história mostra que muitas descobertas hoje celebradas foram inicialmente ridicularizadas. Em 1752, a proposta apresentada por Benjamin Franklin sobre o para-raios foi recebida com riso por uma respeitável assembleia científica. O projeto de navegação a vapor de Robert Fulton foi considerado um sonho irrealizável. Ideias que depois transformaram o mundo foram, em seu início, tratadas como impossíveis.
 
@@ -101,21 +174,21 @@ Dirigimo-nos, portanto, aos que sabem duvidar sem negar precipitadamente; aos qu
 
 ### VIII
 
-Acrescentamos que o estudo do Espiritismo — que nos apresenta uma ordem de ideias tão nova quanto ampla — exige seriedade, perseverança e ausência de preconceitos. Não é matéria para julgamentos apressados nem para análises superficiais. Quem examina sem método, sem continuidade ou apenas para encontrar motivo de ironia dificilmente chegará a qualquer compreensão real. Ninguém é obrigado a aceitar essas ideias, mas é razoável que se respeite a convicção de quem as estuda com sinceridade.
+Acrescentamos que o estudo do Espiritismo, que nos apresenta uma ordem de ideias tão nova quanto ampla, exige seriedade, perseverança e ausência de preconceitos. Não é matéria para julgamentos apressados nem para análises superficiais. Quem examina sem método, sem continuidade ou apenas para encontrar motivo de ironia dificilmente chegará a qualquer compreensão real. Ninguém é obrigado a aceitar essas ideias, mas é razoável que se respeite a convicção de quem as estuda com sinceridade.
 
 Todo estudo sério exige constância. Questões profundas não se esclarecem quando lançadas ao acaso, misturadas a curiosidades vazias ou feitas sem base prévia. Como em qualquer ciência, é preciso começar pelos fundamentos e acompanhar o desenvolvimento das ideias; do contrário, mesmo boas respostas parecerão confusas ou contraditórias. O mesmo princípio vale aqui: aprender requer método, escolha criteriosa das fontes e dedicação contínua.
 
-Além disso, ambientes marcados por descuido ou falta de intenção sincera não favorecem esclarecimentos consistentes. Se se desejam respostas sérias, é preciso criar condições igualmente sérias. Sem disciplina e perseverança, o aprendizado não avança — e até os melhores instrutores se afastam quando não encontram interesse genuíno.
+Além disso, ambientes marcados por descuido ou falta de intenção sincera não favorecem esclarecimentos consistentes. Se se desejam respostas sérias, é preciso criar condições igualmente sérias. Sem disciplina e perseverança, o aprendizado não avança, e até os melhores instrutores se afastam quando não encontram interesse genuíno.
 
 ### IX
 
 O movimento de objetos é um fato amplamente relatado. A questão não é se ocorre, mas se há nele uma manifestação inteligente e, caso haja, qual sua origem.
 
-Não nos limitaremos aqui em manifestações verbais ou em mensagens escritas diretamente pelo médium, pois para quem observa pela primeira vez pode parecer que ainda dependem da vontade ou da habilidade de quem as produz. Consideremos apenas a escrita obtida por meio de um objeto munido de lápis — como cesta ou prancheta — sobre o qual o médium apenas repousa os dedos. A posição das mãos torna difícil supor interferência consciente no traçado das letras. Ainda que se admitisse habilidade extraordinária capaz de enganar o observador mais atento, restaria explicar algo mais complexo: a natureza das respostas.
+Não nos limitaremos aqui em manifestações verbais ou em mensagens escritas diretamente pelo médium, pois para quem observa pela primeira vez pode parecer que ainda dependem da vontade ou da habilidade de quem as produz. Consideremos apenas a escrita obtida por meio de um objeto munido de lápis (como cesta ou prancheta) sobre o qual o médium apenas repousa os dedos. A posição das mãos torna difícil supor interferência consciente no traçado das letras. Ainda que se admitisse habilidade extraordinária capaz de enganar o observador mais atento, restaria explicar algo mais complexo: a natureza das respostas.
 
 Muitas vezes não se trata de palavras isoladas, mas de páginas inteiras escritas com rapidez, espontaneamente ou sobre temas propostos. Surgem textos fora do campo de conhecimento do médium e, ocasionalmente, composições de qualidade literária inesperada. Esses fatos são relatados em diferentes lugares e por inúmeros médiuns. São reais ou não? A resposta proposta é simples: observar com atenção, repetidamente e nas condições adequadas.
 
-Diante disso, os críticos costumam falar em fraude ou ilusão. Quanto à fraude, é preciso notar que nem sempre há interesse financeiro envolvido. Poder-se-ia falar em engano deliberado — mas como explicar a coincidência de fenômenos semelhantes ocorrendo em lugares distintos, com respostas convergentes sobre os mesmos temas, mesmo quando expressas em línguas diferentes? E por que pessoas de reputação respeitável, ou mesmo crianças, se prestariam sistematicamente a tal encenação, muitas vezes sem qualquer benefício?
+Diante disso, os críticos costumam falar em fraude ou ilusão. Quanto à fraude, é preciso notar que nem sempre há interesse financeiro envolvido. Poder-se-ia falar em engano deliberado, mas como explicar a coincidência de fenômenos semelhantes ocorrendo em lugares distintos, com respostas convergentes sobre os mesmos temas, mesmo quando expressas em línguas diferentes? E por que pessoas de reputação respeitável, ou mesmo crianças, se prestariam sistematicamente a tal encenação, muitas vezes sem qualquer benefício?
 
 Resta a hipótese da ilusão. Mas também aqui convém ponderar: a doutrina espírita não é seguida apenas por pessoas sem instrução. Muitos de seus adeptos estudaram, observaram por longo tempo e não tinham interesse em sustentar um erro. Isso não constitui prova definitiva, mas ao menos um indício de que o assunto merece exame sério. O que não parece razoável é presumir que apenas os céticos detenham o monopólio do bom senso, rotulando como incapazes todos os que, após estudo, chegam a conclusão diferente.
 
@@ -127,13 +200,13 @@ A própria doutrina, porém, afirma que não há igualdade entre os Espíritos, 
 
 No mundo espiritual, como no mundo humano, há diferentes níveis. Permanecer apenas nas manifestações mais superficiais e generalizar a partir delas é limitar o próprio campo de observação. Quem amplia o estudo percebe que os fenômenos não se reduzem a expressões grosseiras ou contraditórias.
 
-Outra interpretação atribui todos os fenômenos à ação de uma força exclusivamente maligna, capaz de assumir qualquer forma para enganar. Essa hipótese, além de extrema, pouco se sustenta. Se assim fosse, seria preciso admitir que essa força age, em muitos casos, com coerência moral e bom senso — o que enfraquece a própria acusação.
+Outra interpretação atribui todos os fenômenos à ação de uma força exclusivamente maligna, capaz de assumir qualquer forma para enganar. Essa hipótese, além de extrema, pouco se sustenta. Se assim fosse, seria preciso admitir que essa força age, em muitos casos, com coerência moral e bom senso, o que enfraquece a própria acusação.
 
 Além disso, admitir a intervenção de espíritos malignos já é reconhecer que há manifestações espirituais. Se elas existem, só podem ocorrer com a permissão divina. Seria coerente supor que Deus permita apenas a ação do mal, sem conceder espaço para orientações elevadas? Se não pudesse impedir, não seria soberano; se pudesse e não o fizesse, não seria justo. Ambas as conclusões contradizem noções básicas de razão e de fé.
 
 ### XI
 
-Alguns consideram estranho que, nas comunicações espíritas, se mencionem com frequência nomes de personagens conhecidas e perguntam por que seriam justamente essas a se manifestar. Essa impressão nasce de observação incompleta. Entre as comunicações espontâneas, é muito maior o número das atribuídas a Espíritos desconhecidos do que a figuras ilustres, muitas vezes identificados apenas por nomes simbólicos ou genéricos. Quando há evocação direta, é natural que se recorra a nomes conhecidos — parentes, amigos ou personagens históricos — simplesmente porque são lembrados com mais facilidade e despertam maior interesse.
+Alguns consideram estranho que, nas comunicações espíritas, se mencionem com frequência nomes de personagens conhecidas e perguntam por que seriam justamente essas a se manifestar. Essa impressão nasce de observação incompleta. Entre as comunicações espontâneas, é muito maior o número das atribuídas a Espíritos desconhecidos do que a figuras ilustres, muitas vezes identificados apenas por nomes simbólicos ou genéricos. Quando há evocação direta, é natural que se recorra a nomes conhecidos (parentes, amigos ou personagens históricos), simplesmente porque são lembrados com mais facilidade e despertam maior interesse.
 
 Também se estranha que Espíritos de homens considerados eminentes respondam a chamados comuns e tratem, às vezes, de assuntos simples. Mas essa objeção parte da ideia de que a posição social mantida na Terra se conserva após a morte. Segundo o próprio ensinamento espírita, títulos, autoridade e prestígio não têm valor automático no mundo espiritual. A hierarquia ali não se baseia em poder ou fama, mas em desenvolvimento moral e intelectual.
 
@@ -155,22 +228,21 @@ Além disso, Espíritos de mesma afinidade formam grupos. Nada impede que um Esp
 
 ### XIII
 
-Essas observações nos levam a uma outra dificuldade: a divergência na linguagem dos Espíritos. Como eles variam muito em conhecimento e moralidade, é natural que respondam de modos diferentes — exatamente como aconteceria se você perguntasse a mesma coisa a pessoas muito diferentes: um especialista, um iniciante, alguém sério, alguém que só quer fazer graça. O ponto central é saber com quem se está falando.
+Essas observações nos levam a outra dificuldade: a divergência na linguagem dos Espíritos. Como eles variam muito em conhecimento e moralidade, é natural que respondam de modos diferentes, exatamente como aconteceria se a mesma pergunta fosse dirigida a pessoas muito diferentes entre si: um cientista, um leigo, alguém sério, um zombador de mau gosto. O ponto central é saber a quem se dirige a pergunta.
 
-“Mas por que Espíritos considerados superiores nem sempre concordam entre si?” Primeiro: além das diferenças de nível, existem fatores que influenciam as respostas — e isso só se compreende com estudo mais profundo. Por isso insistimos: o tema pede atenção, observação cuidadosa e continuidade. Leva anos formar um profissional mediano em qualquer área; como imaginar que, em poucas horas, alguém domine um assunto que toca o infinito?
+Mas por que os Espíritos considerados superiores nem sempre concordam entre si? Primeiro: além das diferenças de nível, há outros fatores que influenciam as respostas, e isso só se compreende com estudo mais profundo. Por isso insistimos: o tema pede atenção, observação cuidadosa e continuidade. Leva anos formar um profissional mediano em qualquer área; como imaginar que, em poucas horas, alguém domine um assunto que toca o infinito?
 
-Além disso, muitas vezes a contradição é mais aparente do que real. Em qualquer ciência, pessoas que falam da mesma coisa podem definir de modos diferentes, por palavras diferentes ou por enfoques distintos — mantendo a mesma ideia central. Quantas definições existem para “gramática”? E a forma da resposta depende muitas vezes da forma da pergunta. Seria infantil chamar de contradição o que às vezes é só diferença de termos.
+Além disso, muitas vezes a contradição é mais aparente do que real. Em qualquer ciência, pessoas que tratam da mesma coisa podem defini-la de modos diferentes, por palavras diferentes ou por enfoques distintos, mantendo a mesma ideia central. Quantas definições existem para "gramática"? E a forma da resposta depende muitas vezes da forma da pergunta. Seria pueril chamar de contradição o que às vezes é apenas diferença de termos. Os Espíritos superiores não se prendem à forma; para eles, o fundo do pensamento é tudo.
 
-Espíritos superiores não se fixam em estilo. Para eles, a ideia vale mais do que a embalagem.
+Tomemos, por exemplo, a palavra "alma". Como o termo carece de sentido invariável, é natural que a definição varie: um pode chamá-la de "princípio da vida", outro de "centelha anímica", outro dizer que é interna, outro que é externa, e cada um pode estar falando de um aspecto sem deixar de ter razão a partir do seu ponto de vista. O mesmo acontece com a linguagem sobre Deus: "princípio de todas as coisas", "criador do universo", "inteligência suprema", "infinito", "grande Espírito". No fim, todos apontam para Deus.
 
-Pegue, por exemplo, a palavra “alma”. Como o termo muda de sentido conforme a tradição e o uso, é natural que a definição varie: um pode chamar de “princípio da vida”, outro de “centelha”, outro dizer que é “interior”, outro que é “externa” — e cada um pode estar falando de um aspecto. O mesmo acontece com a linguagem sobre Deus: “princípio de tudo”, “criador”, “inteligência suprema”, “infinito”, “grande Espírito” — no fim, todos apontam para Deus.
+Também vale para classificações. A sequência dos Espíritos é contínua, do mais baixo ao mais elevado, e qualquer classificação em três, cinco ou dez classes é, em parte, convenção. Isso ocorre em toda ciência: o sistema muda, mas o objeto estudado permanece o mesmo. Pode-se estudar botânica por classificações diferentes e, ainda assim, aprender botânica. Convém, portanto, não dar a coisas de pura convenção mais importância do que merecem, mantendo o foco no que é essencial. Muitas vezes, uma reflexão mais calma revela harmonia onde parecia haver conflito.
 
-Também vale para classificações. A sequência dos Espíritos é contínua, do mais baixo ao mais elevado. Qualquer classificação em “três”, “cinco”, “dez” classes é, em parte, convenção. Isso ocorre em toda ciência: o sistema muda, mas o objeto estudado não muda. Você pode estudar botânica com classificações diferentes e, ainda assim, aprender botânica. Então, melhor não perder energia com convenções e manter o foco no que é essencial. Muitas vezes, uma reflexão mais calma revela harmonia onde parecia haver conflito.
+### XIV
 
-### XIV 
 Alguns céticos apontam os erros de ortografia presentes em certas comunicações dos Espíritos como motivo de crítica. À primeira vista, pode parecer um argumento forte: se os Espíritos sabem tudo, deveriam escrever sem erros. No entanto, essa objeção pouco prova. Mesmo entre os cientistas da Terra não faltam falhas desse tipo, e isso não diminui seu valor.
 
-A questão principal é outra. Para os Espíritos — sobretudo os mais elevados — a ideia é o essencial; a forma tem pouca importância. Livres da matéria, eles se comunicam entre si de modo direto, quase instantâneo, como pensamento que alcança pensamento. Quando precisam usar a linguagem humana, encontram nela um instrumento lento e limitado para expressar o que pensam.
+A questão principal é outra. Para os Espíritos, sobretudo os mais elevados, a ideia é o essencial; a forma tem pouca importância. Livres da matéria, eles se comunicam entre si de modo direto, quase instantâneo, como pensamento que alcança pensamento. Quando precisam usar a linguagem humana, encontram nela um instrumento lento e limitado para expressar o que pensam.
 
 Eles próprios afirmam que a linguagem terrestre é insuficiente para traduzir plenamente suas ideias. Por isso, muitas vezes recorrem a diferentes meios para contornar essa limitação. Algo semelhante aconteceria conosco se tivéssemos de nos expressar em um idioma mais pobre e menos preciso que o nosso. É a mesma impaciência que sente o homem de grande pensamento quando sua escrita não consegue acompanhar a rapidez de suas ideias.
 
@@ -184,9 +256,9 @@ Há pessoas que veem perigo em tudo o que não conhecem. Por isso, quando alguns
 
 Em qualquer trabalho existe risco de desgaste. Nos trabalhos físicos, podem se ferir os braços ou as pernas, instrumentos da ação material. Nos trabalhos intelectuais, pode-se sobrecarregar o cérebro, instrumento do pensamento. Mas o fato de o instrumento falhar não significa que o espírito esteja comprometido. Este permanece intacto e, quando se liberta da matéria, recupera plenamente suas capacidades. Nesse sentido, quem sucumbe ao excesso de esforço intelectual é, de certo modo, um mártir do próprio trabalho.
 
-Na realidade, qualquer preocupação intensa pode contribuir para o desequilíbrio mental: as ciências, as artes e até a religião já produziram casos desse tipo. A causa principal costuma estar numa predisposição orgânica do cérebro, que o torna mais sensível a certas impressões. Quando essa predisposição existe, a ideia dominante da pessoa pode transformar-se em obsessão. Para alguns será a religião, para outros a busca por riqueza, poder, uma teoria política, uma arte ou qualquer outra fixação. Assim, alguém inclinado à loucura religiosa poderia igualmente desenvolver uma loucura espírita se essa fosse sua principal preocupação — do mesmo modo que poderia manifestá-la sob qualquer outra forma.
+Na realidade, qualquer preocupação intensa pode contribuir para o desequilíbrio mental: as ciências, as artes e até a religião já produziram casos desse tipo. A causa principal costuma estar numa predisposição orgânica do cérebro, que o torna mais sensível a certas impressões. Quando essa predisposição existe, a ideia dominante da pessoa pode transformar-se em obsessão. Para alguns será a religião, para outros a busca por riqueza, poder, uma teoria política, uma arte ou qualquer outra fixação. Assim, alguém inclinado à loucura religiosa poderia igualmente desenvolver uma loucura espírita se essa fosse sua principal preocupação, do mesmo modo que poderia manifestá-la sob qualquer outra forma.
 
-Portanto, o Espiritismo não tem privilégio algum nesse assunto. Pode-se até dizer o contrário: quando bem compreendido, ele tende a atuar como proteção contra o desespero. Muitas perturbações mentais surgem de decepções profundas, sofrimentos intensos ou afetos frustrados — causas que também estão entre as mais frequentes do suicídio. O espírita, porém, aprende a olhar a vida de uma perspectiva mais ampla. Diante do futuro que o aguarda, as dificuldades do presente parecem menores. A existência terrena lhe surge como breve etapa de uma jornada maior, na qual as provações são experiências de aprendizado.
+Portanto, o Espiritismo não tem privilégio algum nesse assunto. Pode-se até dizer o contrário: quando bem compreendido, ele tende a atuar como proteção contra o desespero. Muitas perturbações mentais surgem de decepções profundas, sofrimentos intensos ou afetos frustrados, causas que também estão entre as mais frequentes do suicídio. O espírita, porém, aprende a olhar a vida de uma perspectiva mais ampla. Diante do futuro que o aguarda, as dificuldades do presente parecem menores. A existência terrena lhe surge como breve etapa de uma jornada maior, na qual as provações são experiências de aprendizado.
 
 Essa visão favorece a resignação e reduz o desespero. Sabendo que as dificuldades podem contribuir para seu progresso e que a coragem diante delas será recompensada, ele encontra motivos para suportá-las com mais serenidade. Além disso, pelas comunicações com os Espíritos, conhece o destino infeliz daqueles que interrompem voluntariamente a própria vida, o que muitas vezes leva à reflexão e afasta decisões precipitadas. Não são poucos os que afirmam ter sido detidos nesse caminho graças a essas ideias. Esse é um dos efeitos práticos do Espiritismo.
 
