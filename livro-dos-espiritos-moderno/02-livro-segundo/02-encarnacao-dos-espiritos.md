@@ -97,7 +97,7 @@ A alma atua por intermédio dos órgãos, e os órgãos são animados pelo fluid
 
 ### 144 — O que se deve entender por “alma do mundo”?
 
-*— O princípio universal da vida e da inteligência, do qual nascem as individualidades. Aqueles que usam essa expressão, porém, muitas vezes não se entendem entre si. O termo alma é tão amplo que cada um o interpreta conforme suas próprias ideias. Também já se atribuiu uma alma à Terra. Nesse caso, por alma da Terra deve-se entender o conjunto dos Espíritos abnegados que orientam suas ações para o bem, quando vocês os escutam, e que, de certo modo, são representantes de Deus em relação ao planeta.*
+*— O princípio universal da vida e da inteligência, do qual nascem as individualidades. Aqueles que usam essa expressão, porém, muitas vezes não se entendem entre si. O termo alma é tão amplo que cada um o interpreta conforme suas próprias ideias. Também já se atribuiu uma alma à Terra. Nesse caso, por alma da Terra deve-se entender o conjunto dos Espíritos altruístas que orientam suas ações para o bem, quando vocês os escutam, e que, de certo modo, são representantes de Deus em relação ao planeta.*
 
 ### 145 — Como explicar que tantos filósofos antigos e modernos tenham discutido por tanto tempo a psicologia sem chegar ao conhecimento da verdade?
 
