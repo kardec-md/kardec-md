@@ -69,7 +69,7 @@ Se fosse possível contemplar toda a humanidade de uma só vez, esses acontecime
 
 ### 740 — Os flagelos também funcionam como provas morais?
 
-*— Sim. Eles dão ao homem a oportunidade de exercitar a inteligência, a paciência e a resignação diante da vontade de Deus, além de permitir que demonstre abnegação, solidariedade e amor ao próximo, se não estiver dominado pelo egoísmo.*
+*— Sim. Eles dão ao homem a oportunidade de exercitar a inteligência, a paciência e a resignação diante da vontade de Deus, além de permitir que demonstre altruísmo, solidariedade e amor ao próximo, se não estiver dominado pelo egoísmo.*
 
 ### 741 — O homem pode evitar os flagelos que o afligem?
 

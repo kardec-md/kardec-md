@@ -103,7 +103,7 @@ Toda paixão que aproxima o homem do instinto animal o afasta da espiritualidade
 
 ### 912 — Qual é o meio mais eficaz de combater o domínio da natureza material?
 
-*— Praticar a abnegação.*
+*— Praticar a abnegação. Ou seja, aprender a colocar o bem e o próximo acima dos próprios interesses e do apego excessivo às coisas materiais.*
 
 ## O egoísmo
 ### 913 — Dentre os vícios, qual pode ser considerado o mais fundamental?
