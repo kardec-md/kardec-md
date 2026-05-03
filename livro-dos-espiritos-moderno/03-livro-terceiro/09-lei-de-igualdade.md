@@ -3,7 +3,7 @@
 ## Igualdade natural
 ### 803 — Perante Deus, todos os homens são iguais?
 
-*— Sim. Todos caminham para o mesmo fim, e Deus criou suas leis para todos. Costumais dizer: “O Sol nasce para todos”, e com isso expressais uma verdade muito maior e mais profunda do que imaginais.*
+*— Sim. Todos caminham para o mesmo fim, e Deus criou suas leis para todos. Costumam dizer: “O Sol nasce para todos”, e com isso expressam uma verdade muito maior e mais profunda do que imaginam.*
 
 Todos os homens estão submetidos às mesmas leis da natureza. Todos nascem igualmente frágeis, estão sujeitos às mesmas dores, e o corpo do rico se desfaz como o do pobre. Deus não concedeu a ninguém superioridade natural, nem pelo nascimento nem pela morte: todos são iguais aos seus olhos.
 
@@ -13,7 +13,7 @@ Todos os homens estão submetidos às mesmas leis da natureza. Todos nascem igua
 
 *— Deus criou todos os Espíritos iguais, mas cada um vive há mais ou menos tempo e, por isso, adquiriu mais ou menos experiência. As diferenças surgem do grau de vivência acumulada e da forma como cada um usa a própria vontade, isto é, o livre-arbítrio. Assim, alguns se aperfeiçoam mais rapidamente do que outros, o que explica a diversidade de aptidões.*
 
-Essa variedade é necessária para que cada um possa contribuir, dentro de suas capacidades físicas e intelectuais, para a realização dos desígnios da Providência. O que um não faz, outro fará; todos têm um papel útil. Além disso, como os mundos são solidários entre si, os Espíritos mais adiantados, em sua maioria criados antes do vosso, vêm habitar mundos menos evoluídos para servir de exemplo e impulso ao progresso (361).
+Essa variedade é necessária para que cada um possa contribuir, dentro de suas capacidades físicas e intelectuais, para a realização dos desígnios da Providência. O que um não faz, outro fará; todos têm um papel útil. Além disso, como os mundos são solidários entre si, os Espíritos mais adiantados, em sua maioria criados antes deste mundo, vêm habitar mundos menos evoluídos para servir de exemplo e impulso ao progresso (361).
 
 ### 805 — Ao passar de um mundo mais evoluído para outro menos evoluído, o Espírito conserva as faculdades que já adquiriu?
 
@@ -29,7 +29,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 
 **— Essa desigualdade desaparecerá algum dia?**
 
-*— Eternas são apenas as leis de Deus. Não vedes que, pouco a pouco, ela já começa a diminuir? Desaparecerá quando o egoísmo e o orgulho deixarem de dominar. Restará apenas a desigualdade do merecimento. Chegará o dia em que os membros da grande família dos filhos de Deus deixarão de se considerar superiores ou inferiores pelo sangue. Só o Espírito será mais ou menos puro, e isso nada tem a ver com posição social.*
+*— Eternas são apenas as leis de Deus. Vocês não veem que, pouco a pouco, ela já começa a diminuir? Desaparecerá quando o egoísmo e o orgulho deixarem de dominar. Restará apenas a desigualdade do merecimento. Chegará o dia em que os membros da grande família dos filhos de Deus deixarão de se considerar superiores ou inferiores pelo sangue. Só o Espírito será mais ou menos puro, e isso nada tem a ver com posição social.*
 
 ### 807 — O que pensar daqueles que abusam de sua posição social para oprimir os mais fracos?
 
@@ -41,9 +41,9 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 
 *— Sim e não. E a fraude e o roubo, onde entram nisso?*
 
-**— Mas a riqueza herdada não é fruto de más paixões.**
+**— Mas a riqueza herdada não é fruto desses maus.**
 
-*— Tens certeza? Investiga a origem dessas riquezas e verás que nem sempre são limpas. Sabes se não começaram com uma injustiça ou uma espoliação? E mesmo quando a origem é honesta, acreditas que a ânsia de enriquecer rapidamente seja um sentimento nobre? É isso que Deus julga — e seu julgamento é mais rigoroso que o dos homens.*
+*— Tem certeza? Investigue a origem dessas riquezas e verá que nem sempre são limpas. Sabe se não começaram com uma injustiça ou uma espoliação? E mesmo quando a origem é honesta, acredita que a ânsia de enriquecer rapidamente seja um sentimento nobre? É isso que Deus julga, e seu julgamento é mais rigoroso que o dos homens.*
 
 ### 809 — Quem herda uma riqueza originalmente mal adquirida tem responsabilidade por isso?
 
@@ -72,6 +72,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 ### 813 — Há pessoas que, por culpa própria, caem na miséria e na privação. A sociedade não tem nenhuma responsabilidade nisso?
 
 *— Tem, sim, e muitas vezes é a principal responsável. Não cabe à sociedade zelar pela educação moral de seus membros? Com frequência, uma educação deficiente distorce o julgamento das pessoas, em vez de corrigir suas más inclinações (685).*
+
 
 ## As provas da riqueza e da miséria
 ### 814 — Por que Deus concede a uns a riqueza e o poder, e a outros a miséria?
@@ -116,7 +117,7 @@ Deus adaptou o corpo de cada ser às funções que lhe cabem. Ao dar à mulher m
 
 ### 822 — Sendo iguais perante a lei de Deus, devem homens e mulheres ser iguais também perante as leis humanas?
 
-*— O princípio fundamental da justiça é este: não façais aos outros o que não gostaríeis que vos fizessem.*
+*— O princípio fundamental da justiça é este: não façam aos outros o que não gostariam que fizessem com vocês.*
 
 **— Nesse caso, uma legislação justa deve garantir igualdade de direitos entre homem e mulher?**
 

@@ -29,17 +29,13 @@
 
 ### 654 — Deus prefere uma forma específica de adoração?
 
-*— Deus prefere quem o adora com sinceridade, fazendo o bem e evitando o mal, àqueles que acreditam honrá-lo por meio de cerimônias que não os tornam melhores com os outros.*
+*— Deus prefere quem o adora com sinceridade, fazendo o bem e evitando o mal, àqueles que acreditam honrá-lo por meio de cerimônias que não os tornam melhores que os outros. Todos os homens são irmãos e filhos de Deus. Ele acolhe todos os que obedecem às suas leis, qualquer que seja a forma como as expressem.*
 
-*Todos os homens são irmãos e filhos de Deus. Ele acolhe todos os que obedecem às suas leis, independentemente da forma como as expressem.*
+*É hipócrita aquele cuja piedade se limita a gestos externos. Dá mau exemplo quem aparenta devoção, mas a desmente com sua conduta.*
 
-*É hipócrita quem limita sua fé a gestos externos. Também dá mau exemplo quem aparenta devoção, mas age de forma contrária a ela.*
+*Está apenas nos lábios, e não na alma, a religião daquele que diz seguir o Cristo, mas é orgulhoso, invejoso, ciumento, duro, implacável ou apegado aos bens deste mundo. Deus, que tudo vê, dirá: aquele que conhece a verdade é cem vezes mais culpado pelo mal que pratica do que o ignorante que vive isolado no deserto. E como tal será tratado no dia da justiça. Se um cego, ao passar, derruba você, você o perdoa; mas se for alguém que enxerga perfeitamente, sua queixa é justa.*
 
-*A religião está apenas nos lábios, e não no coração, daquele que diz seguir o Cristo, mas é orgulhoso, invejoso, ciumento, duro, implacável ou excessivamente apegado aos bens materiais. Deus, que tudo vê, dirá: aquele que conhece a verdade é muito mais culpado pelo mal que pratica do que o ignorante que vive isolado no deserto.*
-
-*Se um cego esbarrar em você, você o perdoa; se for alguém que enxerga perfeitamente, a reclamação é justa.*
-
-*Portanto, não pergunte qual forma de adoração agrada mais a Deus. Isso seria o mesmo que perguntar se ele prefere ser adorado em um idioma ou em outro. Os cânticos só chegam até ele quando passam pelo coração.*
+*Portanto, não pergunte qual forma de adoração agrada mais a Deus. Isso seria o mesmo que perguntar se ele prefere ser adorado em um idioma ou em outro. Repito: as preces só chegam até ele quando passam pela porta do coração.*
 
 ### 655 — Merece censura quem pratica uma religião em que não acredita profundamente, apenas por respeito social ou para não causar escândalo?
 
@@ -85,15 +81,15 @@ O pensamento e a vontade são forças que atuam além dos limites do corpo físi
 
 ### 663 — As preces que fazemos por nós mesmos podem mudar nossas provas ou evitar sofrimentos?
 
-*— As provas estão nas mãos de Deus, e algumas precisam ser enfrentadas até o fim. No entanto, Deus sempre leva em conta a forma como elas são aceitas. A prece aproxima bons Espíritos, que dão força para suportá-las com coragem, tornando-as menos difíceis. A prece nunca é inútil quando feita corretamente, pois fortalece quem ora. Além disso, Deus não altera as leis da natureza conforme os desejos individuais. Muitas vezes, aquilo que parece um grande mal do ponto de vista humano é um bem dentro da ordem geral. Grande parte dos sofrimentos também nasce da imprudência ou dos próprios erros do homem. Ainda assim, pedidos justos são atendidos com mais frequência do que se imagina. Muitas vezes, a ajuda vem por meios naturais, que parecem acaso, ou por ideias que surgem e permitem resolver a dificuldade com esforço próprio.*
+*— As provas estão nas mãos de Deus, e algumas precisam ser enfrentadas até o fim. No entanto, Deus sempre leva em conta a forma como elas são aceitas. A prece aproxima bons Espíritos, que dão força para suportá-las com coragem, tornando-as menos difíceis. A prece nunca é inútil quando feita corretamente, pois fortalece quem ora. Ajude-se a si mesmo e o céu o ajudará. Além disso, Deus não altera as leis da natureza conforme os desejos individuais. Muitas vezes, aquilo que parece um grande mal do ponto de vista humano é um bem dentro da ordem geral. Grande parte dos sofrimentos também nasce da imprudência ou dos próprios erros do homem. Ainda assim, pedidos justos são atendidos com mais frequência do que se imagina. Muitas vezes, a ajuda vem por meios naturais, que parecem acaso, ou por ideias que surgem e permitem resolver a dificuldade com esforço próprio.*
 
-### 664 — É útil orar pelos mortos e pelos Espíritos sofredores? Essas preces aliviam seus sofrimentos?
+### 664 — É útil orar pelos mortos e pelos Espíritos que sofrem? Nossas preces aliviam seus sofrimentos? Elas podem abrandar a justiça de Deus?
 
-*— A prece não muda a justiça de Deus, mas leva alívio ao Espírito por quem se ora, pois ele sente que é lembrado com carinho. Esse sentimento traz consolo. Além disso, a prece pode despertar nele o arrependimento e o desejo de melhorar. Nesse sentido, o sofrimento pode ser abreviado, desde que o próprio Espírito colabore com boa vontade. A prece sincera atrai Espíritos melhores, que ajudam, esclarecem e trazem esperança. Jesus orava pelos que se afastavam do caminho, mostrando que também somos responsáveis por orar por aqueles que mais precisam.*
+*— A prece não muda a justiça de Deus, mas alivia o Espírito por quem se ora. Ele se sente lembrado e amparado, e isso já é um grande consolo. A prece também desperta nele o arrependimento e a vontade de melhorar. Quando ele colabora com boa vontade, o sofrimento pode ser abreviado: esse esforço atrai Espíritos mais elevados, que vêm esclarecê-lo, consolá-lo e trazer-lhe esperança. Jesus orava pelos que se afastavam do caminho, mostrando que somos igualmente responsáveis por orar pelos que mais precisam.*
 
 ### 665 — O que pensar dos que rejeitam a prece pelos mortos por ela não estar explícita no Evangelho?
 
-*— Cristo ensinou: amai-vos uns aos outros. Esse ensinamento inclui todas as formas possíveis de demonstrar afeto e solidariedade. A prece por alguém querido é um sinal de lembrança e carinho, que naturalmente traz alívio e consolo. Quando o Espírito demonstra arrependimento, ele é auxiliado. Além disso, saber que alguém se importa gera gratidão e fortalece os laços de afeto. Assim, ambos cumprem a lei do amor e da união entre os seres, que conduz à verdadeira unidade espiritual.*
+*— Cristo ensinou: amai-vos uns aos outros. Esse mandamento abrange todas as formas de demonstrar afeto, sem entrar em detalhes sobre como fazê-lo. A justiça de Deus é perfeita e nada altera isso, mas a prece dirigida a alguém querido é um testemunho de lembrança que naturalmente alivia seu sofrimento e o consola. Quando esse Espírito manifesta o menor arrependimento, e só então, ele é socorrido. Ainda assim, nunca deixa de saber que uma alma amiga se ocupou dele e fica na convicção reconfortante de que essa intercessão lhe foi útil. Disso nasce um sentimento de gratidão e afeto por quem ofereceu essa prova de amizade. Assim, em ambos cresce o amor que Cristo recomendou aos homens. Os dois cumprem a lei divina de amor e união entre todos os seres, lei que conduz à unidade, finalidade última do Espírito.*
 
 Resposta atribuída ao Espírito Monod, pastor protestante em Paris, desencarnado em abril de 1856. A resposta anterior, nº 664, é do Espírito São Luís.
 
@@ -111,9 +107,9 @@ Resposta atribuída ao Espírito Monod, pastor protestante em Paris, desencarnad
 
 *— Sim. Chamando de deuses tudo o que era considerado sobre-humano, os homens passaram a tratar os Espíritos como divindades. Pessoas que se destacavam por inteligência, poder ou feitos extraordinários eram vistas como deuses, e após a morte recebiam culto (603).*
 
-Entre os antigos, a palavra “deus” tinha um sentido muito amplo. Designava qualquer ser fora da condição humana comum. As manifestações espíritas revelaram a existência de seres incorpóreos atuando na natureza, e por isso foram chamados de deuses, assim como hoje os chamamos de Espíritos. A diferença é que, por ignorância — muitas vezes mantida de propósito —, criaram-se templos e cultos lucrativos, enquanto hoje entendemos que são apenas seres como nós, em diferentes graus de evolução.
+Entre os antigos, a palavra "deus" tinha um sentido amplo. Não significava, como hoje, uma personificação do Senhor da natureza, mas designava qualquer ser fora da condição humana comum. Como as manifestações espíritas revelavam a existência de seres incorpóreos atuando na natureza, eles os chamavam de deuses, do mesmo modo que hoje os chamamos de Espíritos. É apenas uma diferença de palavras. A questão é que, por ignorância (muitas vezes alimentada de propósito por quem lucrava com isso), construíram-se templos e cultos a essas figuras. Hoje sabemos que são apenas criaturas como nós, em diferentes graus de evolução, que já deixaram o corpo terrestre.
 
-O Cristianismo não destruiu o que faz parte da natureza, mas direcionou a adoração ao verdadeiro Deus. A lembrança dos Espíritos permaneceu sob diferentes nomes, e suas manifestações continuaram sendo interpretadas de formas variadas. Hoje, com um estudo mais sério, o Espiritismo esclarece esses fenômenos, libertando-os das superstições e revelando princípios fundamentais da natureza espiritual.
+O Cristianismo não eliminou o que pertence à natureza: apenas redirecionou a adoração para aquele a quem ela é devida. A lembrança dos Espíritos permaneceu sob nomes diferentes em vários povos, e suas manifestações continuaram acontecendo, sendo interpretadas de muitas formas. A religião as via como milagres; os céticos, como fraudes. Hoje, com estudo sério, o Espiritismo se libertou dessas superstições e revela um dos maiores e mais sublimes princípios da natureza.
 
 
 ## Sacrifícios
@@ -133,14 +129,14 @@ O Cristianismo não destruiu o que faz parte da natureza, mas direcionou a adora
 
 *— Nunca. Deus julga a intenção, não o ato em si. Pela ignorância, os homens acreditavam agir corretamente, e Deus considerava apenas a intenção. Com o progresso moral, o erro foi reconhecido e essas práticas passaram a ser condenadas. Mesmo assim, muitos continuaram por apego às próprias paixões.*
 
-### 671 — O que pensar das chamadas guerras santas?
+### 671 — O que pensar das chamadas guerras santas? O fanatismo que leva certos povos a exterminar os que não compartilham de sua fé, acreditando agradar a Deus, tem a mesma origem dos antigos sacrifícios humanos?
 
-*— Elas são inspiradas por maus Espíritos. Fazer guerra aos semelhantes vai contra a vontade de Deus, que ensina o amor ao próximo. Todos adoram o mesmo Deus, apenas com nomes diferentes. Não se pode impor uma crença pela violência. A verdadeira doutrina deve ser ensinada com persuasão e exemplo, nunca com armas.*
+*— Sim. Essas guerras são inspiradas por Espíritos maus. Fazer guerra ao semelhante contraria a vontade de Deus, que ordena amar o próximo como a si mesmo. Todos os povos adoram o mesmo Deus, sob nomes diferentes. Por que, então, exterminar uns aos outros apenas por diferenças religiosas, ou porque um povo ainda não alcançou o mesmo grau de progresso? Os que não creram naquele que era animado pelo espírito de Deus, sobretudo os que não testemunharam seus atos, têm desculpa. Mas como esperar que aceitem uma palavra de paz quando ela é imposta pela espada? É preciso esclarecê-los, sim, mas com persuasão e bondade, nunca com ferro e fogo. Vocês mesmos, em sua maioria, não acreditam nas comunicações que temos com certos mortais. Como esperar, então, que estranhos acreditem na palavra de quem desmente, com os próprios atos, a doutrina que prega?*
 
 ### 672 — A oferta de frutos da terra agradava mais a Deus do que o sacrifício de animais?
 
 *— Deus julga pela intenção, não pela forma. Oferecer frutos era mais agradável do que derramar sangue, mas o mais importante sempre foi a intenção. Uma prece sincera vale mais do que qualquer oferenda material.*
 
-### 673 — Oferecer bens para aliviar o sofrimento dos necessitados não seria a forma mais agradável de agradar a Deus?
+### 673 — Não seria mais agradável a Deus que essas oferendas fossem usadas para aliviar o sofrimento dos necessitados? Nesse caso, o sacrifício de animais com finalidade útil não se tornaria meritório, ao contrário daquele que não servia a ninguém ou só beneficiava quem nada precisava? Não haveria algo verdadeiramente piedoso em destinar aos pobres os primeiros frutos dos bens que Deus nos concede?
 
-*— Deus sempre abençoa quem faz o bem. O melhor modo de honrá-lo é aliviar o sofrimento dos pobres e aflitos. Isso não significa que as cerimônias sejam condenadas, mas muitos recursos gastos nelas poderiam ser usados de forma mais útil. Deus ama a simplicidade. Quem se apega apenas às formas externas e ignora o coração tem uma visão limitada. Em consciência, pergunte-se: Deus valoriza mais a aparência ou a intenção?*
+*— Deus sempre abençoa quem faz o bem. O melhor modo de honrá-lo é aliviar o sofrimento dos pobres e aflitos. Isso não significa que ele desaprove as cerimônias com que vocês lhe dirigem suas preces, mas muito do que se gasta com elas poderia ser usado de forma mais útil. Deus ama a simplicidade. Quem se prende à aparência, e não ao coração, tem uma visão limitada. Em consciência, pergunte-se: Deus valoriza mais a forma ou a essência?*

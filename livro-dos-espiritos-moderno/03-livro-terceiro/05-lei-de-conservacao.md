@@ -17,9 +17,7 @@
 
 ### 705 — Por que a Terra nem sempre produz o suficiente para garantir ao homem o necessário?
 
-*— Porque o homem, ingrato, a despreza. No entanto, ela é uma excelente mãe. Muitas vezes, ele acusa a natureza por males que resultam apenas de sua falta de habilidade ou de sua imprevidência. A Terra sempre produziria o necessário, se o homem soubesse se contentar com o necessário. Se o que ela produz não basta, é porque ele desperdiça no supérfluo aquilo que poderia suprir o essencial.*
-
-*Veja o árabe no deserto: ele sempre encontra como viver, porque não cria necessidades artificiais. Se o homem gasta metade do que possui satisfazendo caprichos, por que se espanta ao nada encontrar no dia seguinte e ainda se queixa quando chega a escassez? Em verdade, não é a natureza que é imprevidente, mas o homem, que não sabe conduzir sua própria vida.*
+*— Porque o homem, ingrato, a despreza. No entanto, ela é uma excelente mãe. Muitas vezes, ele acusa a natureza por males que resultam apenas de sua falta de habilidade ou de sua imprevidência. A Terra sempre produziria o necessário, se o homem soubesse se contentar com o necessário. Se o que ela produz não basta, é porque ele desperdiça no supérfluo aquilo que poderia suprir o essencial. Veja o árabe no deserto: ele sempre encontra como viver, porque não cria necessidades artificiais. Se o homem gasta metade do que possui satisfazendo caprichos, por que se espanta ao nada encontrar no dia seguinte e ainda se queixa quando chega a escassez? Em verdade, não é a natureza que é imprevidente, mas o homem, que não sabe conduzir sua própria vida.*
 
 ### 706 — Os bens da Terra se resumem apenas aos produtos do solo?
 
@@ -47,7 +45,7 @@ A saúde pública, essencial para a força e o bem-estar coletivo, e praticament
 
 ### 710 — Nos mundos em que os seres possuem uma organização física mais aperfeiçoada, eles ainda precisam se alimentar?
 
-*— Precisam, mas os alimentos estão de acordo com a sua natureza. Esses alimentos não sustentariam os vossos corpos mais densos, assim como eles não poderiam assimilar os vossos.*
+*— Precisam, mas os alimentos estão de acordo com a sua natureza. Esses alimentos não sustentariam os corpos mais densos de vocês, assim como eles não poderiam assimilar os de vocês.*
 
 
 ## Gozo dos bens terrenos

@@ -57,13 +57,11 @@ Nesses períodos de crise, o homem costuma perceber apenas a desordem momentâne
 
 ### 784 — Diante de tanta perversidade, não parece que o homem retrocede moralmente em vez de avançar?
 
-*— Enganas-te. Observa o conjunto e verás que o homem progride, pois compreende cada vez melhor o que é o mal e passa a combater os abusos. Muitas vezes, é preciso que o mal chegue ao extremo para que se torne evidente a necessidade do bem e das reformas.*
+*— Engana-se. Observe o conjunto e verá que o homem progride, pois compreende cada vez melhor o que é o mal e passa a combater os abusos. Muitas vezes, é preciso que o mal chegue ao extremo para que se torne evidente a necessidade do bem e das reformas.*
 
 ### 785 — Qual é o maior obstáculo ao progresso?
 
-*— O orgulho e o egoísmo. Refiro-me ao progresso moral, pois o intelectual sempre avança.*
-
-*À primeira vista, o progresso intelectual parece até fortalecer esses vícios, estimulando a ambição e o desejo de riquezas, o que leva o homem a novas descobertas. Assim, tudo se encadeia: do próprio mal pode nascer o bem. Esse estado, porém, não é definitivo. Ele muda à medida que o homem compreende que existe uma felicidade muito maior e mais duradoura do que a proporcionada pelos bens materiais.*
+*— O orgulho e o egoísmo. Refiro-me ao progresso moral, pois o intelectual sempre avança. À primeira vista, o progresso intelectual parece até fortalecer esses vícios, estimulando a ambição e o desejo de riquezas, o que leva o homem a novas descobertas. Assim, tudo se encadeia: do próprio mal pode nascer o bem. Esse estado, porém, não é definitivo. Ele muda à medida que o homem compreende que existe uma felicidade muito maior e mais duradoura do que a proporcionada pelos bens materiais.*
 
 (Vide: Egoísmo, Capítulo 12)
 
@@ -73,9 +71,9 @@ Existem dois tipos de progresso que se apoiam mutuamente, mas não avançam no m
 ## Povos degenerados
 ### 786 — A história mostra povos que, após grandes abalos, recaíram na barbárie. Onde está o progresso nesses casos?
 
-*— Quando uma casa ameaça ruir, tu a derrubas para construir outra mais sólida. Enquanto isso, há confusão e desordem.*
+*— Quando uma casa ameaça ruir, vocês a derrubam para construir outra mais sólida. Enquanto isso, há confusão e desordem.*
 
-*Pensa assim: eras pobre e moravas num casebre; ao enriquecer, mudaste para um palácio. Outro pobre ocupa o lugar que deixaste e se sente satisfeito. Da mesma forma, os Espíritos que formam um povo degenerado não são os mesmos que o formavam em seu período de esplendor. Os mais adiantados seguiram adiante, enquanto outros, menos evoluídos, ocuparam seu lugar, até também progredirem.*
+*Pensem assim: vocês eram pobres e moravam num casebre; ao enriquecer, mudaram-se para um palácio. Outro pobre ocupa o lugar que deixaram e se sente satisfeito. Da mesma forma, os Espíritos que formam um povo degenerado não são os mesmos que o formavam em seu período de esplendor. Os mais adiantados seguiram adiante, enquanto outros, menos evoluídos, ocuparam seu lugar, até também progredirem.*
 
 ### 787 — Existem raças naturalmente resistentes ao progresso?
 
@@ -87,7 +85,7 @@ Existem dois tipos de progresso que se apoiam mutuamente, mas não avançam no m
 
 **— Então os homens mais civilizados de hoje já foram selvagens no passado?**
 
-*— Tu mesmo já o foste, mais de uma vez, antes de seres quem és.*
+*— Você mesmo já foi, mais de uma vez, antes de ser quem é.*
 
 ### 788 — Os povos, como os indivíduos, passam por infância, maturidade e decadência. Isso significa que os povos mais avançados de hoje também desaparecerão?
 
