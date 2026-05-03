@@ -3,7 +3,7 @@
 ## Destruição necessária e destruição abusiva
 ### 728 — A destruição é uma lei da natureza?
 
-*— Sim. Tudo precisa se transformar para renascer e se renovar. O que chamais de destruição é, na verdade, apenas uma transformação, cujo objetivo é a renovação e o aperfeiçoamento dos seres vivos.*
+*— Sim. Tudo precisa se transformar para renascer e se renovar. O que chamam de destruição é, na verdade, apenas uma transformação, cujo objetivo é a renovação e o aperfeiçoamento dos seres vivos.*
 
 **— O instinto de destruição foi então dado aos seres vivos por desígnio divino?**
 
@@ -98,6 +98,7 @@ Entre os flagelos naturais e independentes da ação humana estão a peste, a fo
 ### 745 — O que pensar daquele que provoca a guerra para benefício próprio?
 
 *— Ele é gravemente culpado. Precisará de muitas existências para reparar todos os assassinatos dos quais foi causa, pois responderá por todas as mortes provocadas por sua ambição.*
+
 
 ## Assassínio
 ### 746 — O assassínio é um crime aos olhos de Deus?
@@ -194,13 +195,11 @@ Apesar de ainda haver muito a melhorar, seria injusto ignorar os avanços já fe
 
 ### 763 — A redução dos casos de pena de morte é sinal de progresso da civilização?
 
-*— Como duvidar disso? Não te causa repulsa ler sobre as execuções em massa, as torturas e as confissões arrancadas pela dor, praticadas em nome da justiça ou até da religião? Se tivesses vivido naquela época, talvez achasses tudo isso normal e até o praticasses como juiz. O que hoje parece bárbaro já foi considerado justo. Só as leis divinas são eternas; as leis humanas evoluem com o progresso.*
+*— Como duvidar disso? Não causa repulsa ler sobre as execuções em massa, as torturas e as confissões arrancadas pela dor, praticadas em nome da justiça ou até da religião? Se tivesse vivido naquela época, talvez achasse tudo isso normal e até o praticasse como juiz. O que hoje parece bárbaro já foi considerado justo. Só as leis divinas são eternas; as leis humanas evoluem com o progresso.*
 
 ### 764 — As palavras de Jesus: “quem matou pela espada, pela espada perecerá”, justificam a pena de talião?
 
-*— Cuidado com a interpretação. A pena de talião é a justiça de Deus, não a dos homens. É Deus quem a aplica. Todos a experimentam, pois cada um sofre as consequências do mal que praticou, nesta ou em outra existência. Quem fez sofrer, acabará passando por situação semelhante. Esse é o verdadeiro sentido das palavras de Jesus.*
-
-*Mas ele também ensinou: “perdoai os vossos inimigos” e pediu que rogássemos a Deus perdão na mesma medida em que perdoamos. É preciso compreender isso com clareza.*
+*— Cuidado com a interpretação. A pena de talião é a justiça de Deus, não a dos homens. É Deus quem a aplica. Todos a experimentam, pois cada um sofre as consequências do mal que praticou, nesta ou em outra existência. Quem fez sofrer, acabará passando por situação semelhante. Esse é o verdadeiro sentido das palavras de Jesus. Mas ele também ensinou: “perdoai os vossos inimigos” e pediu que rogássemos a Deus perdão na mesma medida em que perdoamos. É preciso compreender isso com clareza.*
 
 ### 765 — O que pensar da pena de morte aplicada em nome de Deus?
 

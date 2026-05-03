@@ -55,7 +55,7 @@ A justiça das múltiplas encarnações decorre desse princípio, já que a cada
 
 *— Sim. Em todos os tempos existiram homens com essa missão. São Espíritos superiores que encarnam para impulsionar o progresso da humanidade.*
 
-### 623 — Aqueles que se propuseram a ensinar a lei de Deus nem sempre erraram, levando muitas vezes os homens ao desvio por meio de falsos princípios?
+### 623 — Aqueles que pretenderam ensinar a lei de Deus não se enganaram algumas vezes, levando os homens ao desvio por meio de falsos princípios?
 
 *— Sim. Muitos que não eram inspirados por Deus, movidos pela ambição, atribuíram a si mesmos uma missão que não lhes pertencia. Ainda assim, por serem homens de grande inteligência, mesmo em meio aos erros que ensinaram, muitas verdades importantes podem ser encontradas.*
 
@@ -83,7 +83,8 @@ Quanto àqueles que, ao longo do tempo, afirmaram ensinar a lei de Deus e acabar
 
 *— Porque tudo deve acontecer no tempo certo. A verdade é como a luz: o homem precisa se acostumar a ela gradualmente, caso contrário fica ofuscado.*
 
-Deus nunca permitiu que o ser humano recebesse comunicações tão completas e esclarecedoras como as atuais. Na antiguidade, existiam pessoas que acreditavam possuir uma ciência sagrada e a mantinham em segredo, afastando aqueles que consideravam indignos. Pelas leis que regem esses fenômenos, é possível compreender que essas pessoas recebiam apenas fragmentos da verdade, geralmente misturados a símbolos e ambiguidades. Ainda assim, nenhum sistema filosófico antigo, tradição ou religião deve ser desprezado. Em todos eles existem sementes de grandes verdades que, embora pareçam contraditórias ou estejam envoltas em ideias sem fundamento, podem ser organizadas e compreendidas graças às explicações oferecidas pelo Espiritismo. O que antes parecia sem sentido hoje encontra confirmação clara. Por isso, não despreze esses objetos de estudo: eles são valiosos e podem contribuir muito para a formação intelectual e moral.*
+*Deus nunca permitiu que o ser humano recebesse comunicações tão completas e esclarecedoras como as atuais. Em todas as tradições antigas existem sementes de grandes verdades que, embora pareçam contraditórias ou estejam envoltas em ideias confusas, podem ser organizadas e compreendidas graças às explicações oferecidas pelo Espiritismo. O que antes parecia sem sentido hoje encontra confirmação clara. Por isso, nenhum sistema filosófico antigo, tradição ou religião deve ser desprezado: todos podem contribuir para a formação intelectual e moral.*
+
 
 ## O bem e o mal
 ### 629 — Que definição se pode dar da moral?
@@ -100,7 +101,7 @@ Deus nunca permitiu que o ser humano recebesse comunicações tão completas e e
 
 ### 632 — Sendo falível, o homem não pode se enganar ao julgar o bem e o mal, achando que faz o bem quando, na verdade, faz o mal?
 
-*— Jesus disse: observe como você gostaria de ser tratado. Tudo se resume a isso. Seguindo esse princípio, o erro é evitado.*
+*— Jesus disse: faça aos outros o que gostaria que fizessem a você, e não faça o que não gostaria de receber. Tudo se resume a isso. Seguindo essa regra, ninguém se engana.*
 
 ### 633 — Essa regra do bem e do mal, baseada na reciprocidade ou solidariedade, parece não se aplicar ao comportamento do homem consigo mesmo. A lei natural oferece uma regra segura nesse caso?
 
@@ -152,11 +153,11 @@ As circunstâncias tornam o bem e o mal mais ou menos graves. Muitas faltas deco
 
 ### 644 — Para alguns, o ambiente em que vivem não é a principal causa de muitos vícios e crimes?
 
-*— Sim, mas isso também representa uma prova escolhida pelo Espírito quando ainda estava em liberdade, ao decidir se expor à tentação para conquistar o mérito da resistência.*
+*— Sim, mas isso também é uma prova que o Espírito escolheu antes de encarnar, quando ainda estava livre, ao aceitar se expor à tentação para conquistar o mérito da resistência.*
 
 ### 645 — Quando alguém vive cercado pelo vício, o mal não se torna quase irresistível?
 
-*— Ele se torna um forte impulso, mas não algo impossível de resistir. Mesmo nesses ambientes, surgem pessoas de grande virtude. São Espíritos que tiveram força para resistir e que também receberam a missão de influenciar positivamente os outros.*
+*— É um forte impulso, sim, mas nunca irresistível. Mesmo nesses ambientes, surgem pessoas de grande virtude. São Espíritos que tiveram força para resistir e que também receberam a missão de influenciar positivamente os outros.*
 
 ### 646 — O mérito do bem depende das condições em que ele é praticado? Existem graus diferentes de mérito?
 

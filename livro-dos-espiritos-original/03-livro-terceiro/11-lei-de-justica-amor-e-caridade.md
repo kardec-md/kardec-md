@@ -61,9 +61,7 @@ O que, por meio do trabalho honesto, o homem junta constitui legítima proprieda
 
 **— Não será, entretanto, legítimo o desejo de possuir, uma vez que aquele que tem de que viver a ninguém é pesado?**
 
-*— Há homens insaciáveis, que acumulam bens sem utilidade para ninguém, ou apenas para saciar suas paixões.*
-
-Julgas que Deus vê isso com bons olhos? Aquele que, ao contrário, junta pelo trabalho, tendo em vista socorrer os seus semelhantes, pratica a lei de amor e caridade, e Deus abençoa o seu trabalho.*
+*— Há homens insaciáveis, que acumulam bens sem utilidade para ninguém, ou apenas para saciar suas paixões. Julgas que Deus vê isso com bons olhos? Aquele que, ao contrário, junta pelo trabalho, tendo em vista socorrer os seus semelhantes, pratica a lei de amor e caridade, e Deus abençoa o seu trabalho.*
 
 ### 884 — Qual o caráter da legítima propriedade?
 

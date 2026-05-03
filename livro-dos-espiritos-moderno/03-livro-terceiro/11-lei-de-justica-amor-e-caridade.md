@@ -61,9 +61,7 @@ Aquilo que o homem adquire por meio de trabalho honesto é sua legítima proprie
 
 **— Mas não é legítimo desejar possuir, se a pessoa tem do que viver e não pesa sobre ninguém?**
 
-*— Existem homens insaciáveis, que acumulam bens sem utilidade para ninguém, apenas para alimentar suas paixões.*
-
-Achas que Deus vê isso com bons olhos? Quem acumula por meio do trabalho com a intenção de ajudar os outros pratica a lei do amor e da caridade, e Deus abençoa esse trabalho.*
+*— Existem homens insaciáveis, que acumulam bens sem utilidade para ninguém, apenas para alimentar suas paixões. Acha que Deus vê isso com bons olhos? Quem acumula por meio do trabalho com a intenção de ajudar os outros pratica a lei do amor e da caridade, e Deus abençoa esse trabalho.*
 
 ### 884 — Qual é o caráter da propriedade legítima?
 
@@ -75,6 +73,7 @@ Ao nos proibir de fazer aos outros o que não gostaríamos que nos fizessem, a l
 ### 885 — O direito de propriedade é ilimitado?
 
 *— É claro que tudo o que se adquire de forma legítima é propriedade. Mas, como já foi dito, a legislação humana, por ser imperfeita, reconhece muitos direitos convencionais que a justiça natural condena. Por isso as leis são reformadas à medida que o progresso avança e a justiça é melhor compreendida. O que em um século parece justo, no seguinte pode parecer bárbaro (795).*
+
 
 ## Caridade e amor do próximo
 ### 886 — Qual é o verdadeiro sentido da palavra caridade, como Jesus a entendia?
@@ -91,7 +90,7 @@ Segundo Jesus, a caridade não se limita à esmola. Ela se estende a todas as re
 
 ### 888 — O que se deve pensar da esmola?
 
-*— O homem reduzido a pedir esmola se degrada física e moralmente; acaba se embrutecendo. Uma sociedade fundada na lei de Deus e na justiça deve garantir a subsistência dos mais fracos sem submetê-los à humilhação. Deve assegurar a vida daqueles que não podem trabalhar, sem deixá-los dependentes do acaso ou da boa vontade alheia.*
+*— O homem reduzido a pedir esmola se degrada física e moralmente. Uma sociedade fundada na lei de Deus e na justiça deve garantir o sustento dos mais fracos sem submetê-los à humilhação. Deve assegurar a vida daqueles que não podem trabalhar, sem deixá-los dependentes do acaso ou da boa vontade alheia.*
 
 **— Então a esmola deve ser condenada?**
 
@@ -99,19 +98,19 @@ Segundo Jesus, a caridade não se limita à esmola. Ela se estende a todas as re
 
 *A verdadeira caridade é sempre delicada e respeitosa; ela está tanto no gesto quanto na maneira de agir. Um serviço prestado com consideração tem valor dobrado. Quando é feito com arrogância, a necessidade pode obrigar quem recebe a aceitá-lo, mas o coração dificilmente se toca.*
 
-*Lembrai-vos de que, aos olhos de Deus, a ostentação anula o mérito do bem feito. Disse Jesus: “Que a mão esquerda não saiba o que faz a direita.” Assim, ele ensinou a não misturar a caridade com o orgulho.*
+*Lembrem-se de que, aos olhos de Deus, a ostentação anula o mérito da boa ação. Disse Jesus: “Que a mão esquerda não saiba o que faz a direita.” Assim, ele ensinou a não misturar a caridade com o orgulho.*
 
-*É preciso distinguir a esmola da verdadeira beneficência. Nem sempre o mais necessitado é quem pede. O medo da humilhação muitas vezes cala o verdadeiro pobre, que sofre em silêncio. A esse é que o homem realmente humano sabe ir ao encontro, com discrição.*
+*É preciso distinguir a esmola da verdadeira caridade. Nem sempre o mais necessitado é quem pede. O medo da humilhação muitas vezes cala o verdadeiro pobre, que sofre em silêncio. A esse é que o homem realmente humano sabe ir ao encontro, com discrição.*
 
 *Amai-vos uns aos outros: eis toda a lei, a lei divina pela qual Deus governa os mundos. O amor é a força de atração entre os seres vivos; a atração é a expressão do amor na matéria inerte.*
 
-*Não esqueçais que o Espírito, seja qual for seu grau de evolução e esteja ele encarnado ou no plano espiritual, sempre se encontra entre um superior, que o orienta e aperfeiçoa, e um inferior, a quem deve ajudar. Sede, portanto, caridosos, praticando não apenas a caridade fria da moeda entregue por obrigação, mas aquela que vai ao encontro das misérias escondidas. Sede tolerantes com os defeitos alheios. Em vez de desprezar a ignorância e o vício, instruí os ignorantes e ajudai a transformar os viciados. Sede gentis e bondosos com tudo o que vos seja inferior, inclusive com os seres mais humildes da criação, e assim estareis obedecendo à lei de Deus.*
+*Não se esqueçam de que o Espírito, seja qual for seu grau de evolução e esteja ele encarnado ou no plano espiritual, sempre se encontra entre um superior, que o orienta e aperfeiçoa, e um inferior, a quem deve ajudar. Sejam, portanto, caridosos, praticando não apenas a caridade fria da moeda entregue por obrigação, mas aquela que vai ao encontro das misérias escondidas. Sejam tolerantes com os defeitos alheios. Em vez de desprezar a ignorância e o vício, instruam os ignorantes e ajudem a transformar os viciados. Sejam gentis e bondosos com tudo o que lhes seja inferior, inclusive com os seres mais humildes da criação, e assim estarão obedecendo à lei de Deus.*
 
 SÃO VICENTE DE PAULO
 
 ### 889 — Não existem pessoas que acabam mendigando por culpa própria?
 
-*— Sim; mas, se tivessem recebido uma boa educação moral e aprendido a viver segundo a lei de Deus, não teriam caído nos excessos que causaram sua ruína. É principalmente disso que depende a melhoria do vosso planeta (707).*
+*— Sim; mas, se tivessem recebido uma boa educação moral e aprendido a viver segundo a lei de Deus, não teriam caído nos excessos que causaram sua ruína. É principalmente disso que depende a melhoria deste planeta (707).*
 
 
 ## Amor materno e filial

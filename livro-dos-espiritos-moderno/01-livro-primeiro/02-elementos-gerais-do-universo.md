@@ -24,7 +24,7 @@ Por meio dessas comunicações, o ser humano adquire, dentro de certos limites, 
 ## Espírito e matéria
 ### 21 — A matéria existe desde toda a eternidade, como Deus, ou foi criada por ele em determinado momento?
 
-*— Somente Deus o sabe. Há, porém, algo que a razão deve indicar: Deus, modelo de amor e caridade, nunca esteve inativo. Por mais distante que se imagine o início de sua ação, é possível concebê-lo ocioso por um único instante?*
+*— Somente Deus sabe. Porém, tem algo que a razão deve indicar: Deus, modelo de amor e caridade, nunca esteve inativo. Por mais distante que se imagine o início de sua ação, é possível imaginá-lo inativo por um único instante?*
 
 ### 22 — Geralmente se define a matéria como aquilo que tem extensão, que impressiona os sentidos e que é impenetrável. Essas definições são corretas?
 

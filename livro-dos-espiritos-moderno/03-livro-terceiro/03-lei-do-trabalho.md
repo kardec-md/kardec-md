@@ -11,7 +11,7 @@
 
 ### 676 — Por que o trabalho é imposto ao homem?
 
-*— Porque decorre de sua natureza corporal. O trabalho é, ao mesmo tempo, uma forma de reparação e um meio de desenvolver a inteligência. Sem ele, o homem permaneceria intelectualmente imaturo. Por isso, sua alimentação, sua segurança e seu bem-estar dependem do trabalho e da atividade. Àquele que tem limitações físicas, Deus concedeu a inteligência para compensá-las — o que também é uma forma de trabalho.*
+*— Porque decorre de sua natureza corporal. O trabalho é, ao mesmo tempo, uma forma de reparação e um meio de desenvolver a inteligência. Sem ele, o homem permaneceria intelectualmente imaturo. Por isso, sua alimentação, sua segurança e seu bem-estar dependem do trabalho e da atividade. Àquele que tem limitações físicas, Deus concedeu a inteligência para compensá-las, e isso também é uma forma de trabalho.*
 
 ### 677 — Por que a natureza provê, por si só, todas as necessidades dos animais?
 
@@ -57,7 +57,7 @@
 
 Não basta dizer ao homem que ele tem o dever de trabalhar. É preciso que aquele que depende do trabalho para viver encontre meios de se ocupar, o que nem sempre acontece. Quando isso se torna generalizado, a falta de trabalho gera miséria em larga escala. A economia tenta resolver esse problema equilibrando produção e consumo, mas mesmo que isso seja possível, sempre haverá períodos de instabilidade durante os quais o trabalhador ainda precisa sobreviver.
 
-Há, porém, um fator que raramente é considerado e sem o qual a economia permanece apenas teórica: a educação. Não a educação intelectual, mas a educação moral — não aquela aprendida em livros, mas a que forma o caráter e cria hábitos. Educação é o conjunto dos hábitos adquiridos.
+Há, porém, um fator que raramente é considerado e sem o qual a economia permanece apenas teórica: a educação. Não a educação intelectual, mas a educação moral.
 
 Diante da multidão de pessoas lançadas diariamente na sociedade sem princípios, sem limites e entregues apenas aos próprios instintos, não é surpresa que surjam consequências graves. Quando essa arte de educar for compreendida e praticada, o homem desenvolverá hábitos de ordem, responsabilidade e cuidado consigo e com os outros, além de respeito pelo que é digno de respeito. Esses hábitos permitirão enfrentar com menos sofrimento os períodos difíceis, que são inevitáveis.
 

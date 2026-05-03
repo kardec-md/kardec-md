@@ -39,9 +39,9 @@ Nenhum indivíduo reúne todas as capacidades necessárias ao próprio desenvolv
 
 ### 772 — O que pensar do voto de silêncio praticado por algumas tradições desde tempos antigos?
 
-*— Perguntem primeiro a si mesmos: a palavra é uma faculdade natural? Por que Deus a teria dado ao homem? Deus condena o abuso das faculdades, não o seu uso. Ainda assim, o silêncio pode ser útil, pois favorece o recolhimento interior; nele, o espírito se liberta e pode se comunicar mais facilmente conosco. Mas o voto de silêncio absoluto é um erro.*
+*— Perguntem primeiro a si mesmos: a palavra é uma faculdade natural? Por que Deus a teria dado ao homem? Deus condena o abuso das faculdades, não o seu uso. Ainda assim, o silêncio pode ser útil, pois favorece o recolhimento interior; nele, o espírito se liberta e pode se comunicar mais facilmente conosco. Mas o voto de silêncio absoluto é um erro. Sem dúvida, muitos adotam essa prática com boa intenção, acreditando tratar-se de virtude. No entanto, enganam-se por não compreenderem plenamente as leis de Deus.*
 
-Sem dúvida, muitos adotam essa prática com boa intenção, acreditando tratar-se de virtude. No entanto, enganam-se por não compreenderem plenamente as leis de Deus. O silêncio absoluto, assim como o isolamento total, priva o homem das relações sociais que lhe oferecem oportunidades de fazer o bem e de progredir.
+O silêncio absoluto, assim como o isolamento total, priva o homem das relações sociais que lhe oferecem oportunidades de fazer o bem e de progredir.
 
 
 ## Laços de família
