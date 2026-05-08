@@ -22,7 +22,7 @@ Entre os Espíritos que colaboraram na execução desta obra, muitos viveram em 
 
 *— Entre os ensinamentos que lhe são dados, alguns devem ficar guardados apenas com você, até nova ordem. Quando chegar o momento de publicá-los, nós o avisaremos. Enquanto aguarda, medite sobre eles, para estar pronto quando o dissermos.*
 
-*— Coloque no início do livro a cepa que lhe desenhamos, pois ela é o emblema do trabalho do Criador. Nela se reúnem todos os princípios materiais que melhor podem representar o corpo e o espírito. O corpo é a cepa; o espírito é o licor; a alma, ou espírito ligado à matéria, é o bago. O homem refina o espírito pelo trabalho, e você sabe que só pelo trabalho do corpo o espírito adquire conhecimentos.*
+*— Coloque no início do livro a planta que lhe desenhamos, pois ela é o emblema do trabalho do Criador. Nela se reúnem todos os princípios materiais que melhor podem representar o corpo e o espírito. O corpo é como a estrutura da planta; o espírito é o que lhe dá vida; e a alma é como o fruto, representando o espírito ligado à matéria.*
 
 *— Não se deixe desanimar pela crítica. Encontrará opositores ferrenhos, sobretudo entre os que têm interesse em enganar. Os encontrará até mesmo entre os Espíritos, pois os que ainda não estão completamente desmaterializados procuram com frequência semear a dúvida, por malícia ou ignorância. Prossiga sempre. Creia em Deus e caminhe com confiança: estaremos aqui para ampará-lo, e está próximo o tempo em que a verdade brilhará por todos os lados.*
 

@@ -14,6 +14,6 @@ geometry:
   - inner=1.8cm
   - outer=1.8cm
   - top=1.8cm
-  - bottom=2.4cm
+  - bottom=2.2cm
   - footskip=1.0cm
 ---

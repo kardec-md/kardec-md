@@ -233,7 +233,7 @@ A letargia e a catalepsia derivam do mesmo princípio, que é a perda temporári
 
 ### 444 — Que confiança se pode depositar nas revelações dos extáticos?
 
-*— O extático está sujeito a enganar-se com frequência, sobretudo quando tenta penetrar em assuntos que devem permanecer ocultos ao ser humano. Nesses casos, pode ser levado por suas próprias ideias ou tornar-se instrumento de Espíritos mistificadores, que se aproveitam de seu entusiasmo.*
+*— O extático está sujeito a enganar-se com frequência, principalmente quando tenta penetrar em assuntos que devem permanecer ocultos ao ser humano. Nesses casos, pode ser levado por suas próprias ideias ou tornar-se instrumento de Espíritos mistificadores, que se aproveitam de seu entusiasmo.*
 
 ### 445 — Que conclusões podem ser tiradas dos fenômenos do sonambulismo e do êxtase? Não seriam uma espécie de iniciação à vida futura?
 
