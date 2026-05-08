@@ -37,7 +37,7 @@ Para crer em Deus, basta observar a criação. O universo existe, portanto tem u
 
 *— Se fosse assim, por que esse sentimento existiria em povos que nunca tiveram acesso a qualquer ensinamento religioso?*
 
-Se a ideia de um ser supremo fosse apenas resultado do ensino, ela não seria universal e existiria apenas entre aqueles que tiveram acesso a esse aprendizado, assim como acontece com os conhecimentos científicos.
+Se a ideia de um ser supremo fosse apenas resultado do ensino, ela não seria universal e existiria apenas entre aqueles que tiveram acesso a esse aprendizado, como acontece com os conhecimentos científicos.
 
 ### 7 — Poderia a causa primeira da formação das coisas estar nas propriedades íntimas da matéria?
 
