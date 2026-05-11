@@ -97,13 +97,13 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 *— Não, mas a influência dos maus Espíritos é muito menor sobre outros Espíritos do que sobre os encarnados, pois lhes falta o apoio das paixões materiais (996).*
 
-### 972 — Como os Espíritos maus tentam os outros, se não podem agir sobre paixões materiais?
+### 972 — Como os Espíritos maus influenciam os outros, se já não podem agir sobre paixões materiais?
 
-*— As paixões não existem mais de forma material, mas continuam existindo no pensamento dos Espíritos atrasados. Os maus alimentam esses pensamentos, conduzindo suas vítimas a ambientes onde se apresentam cenas e lembranças capazes de excitá-los.*
+*— As paixões já não existem mais de forma material, mas continuam existindo no pensamento dos Espíritos atrasados. Os maus alimentam esses pensamentos, conduzindo suas vítimas a ambientes onde se apresentam cenas e lembranças capazes de excitá-los.*
 
-**— Mas para que servem essas paixões, se já não têm objeto real?**
+**— Mas qual é o sentido dessas paixões, se já não podem ser satisfeitas?**
 
-*— Justamente aí está o tormento: o avarento vê riquezas que não pode possuir; o devasso imagina excessos dos quais não pode participar; o orgulhoso vê honrarias que lhe despertam inveja e às quais não tem acesso.*
+*— Aí está precisamente o sofrimento: o pão-duro vê riquezas que não pode possuir; o devasso imagina prazeres dos quais não pode participar; o orgulhoso vê honrarias que lhe despertam inveja e às quais não tem acesso.*
 
 ### 973 — Quais são os maiores sofrimentos dos Espíritos maus?
 

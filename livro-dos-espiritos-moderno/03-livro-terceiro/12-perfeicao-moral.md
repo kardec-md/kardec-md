@@ -47,7 +47,7 @@
 
 ### 901 — Consideremos dois homens mesquinhos: um priva-se do necessário e morre na miséria sobre o seu tesouro; o outro é mesquinho apenas com os outros, sendo generoso consigo mesmo, recusando qualquer sacrifício para ajudar alguém, mas nunca achando demais o que gasta com seus prazeres. Qual é o mais culpado e qual estará em pior situação no mundo espiritual?
 
-*— O que goza, pois é mais egoísta do que mesquinho. O outro já recebeu parte de seu castigo.*
+*— O que gasta, pois é mais egoísta do que mesquinho. O outro já recebeu parte de seu castigo.*
 
 ### 902 — É reprovável desejar riquezas quando o objetivo é fazer o bem?
 

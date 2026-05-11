@@ -280,7 +280,7 @@ O estudo de inúmeros Espíritos, de todas as classes e condições, mostrou sem
 
 *— Não. Há Espíritos que, desde cedo, seguem um caminho que os dispensa de muitas provas. No entanto, aquele que se deixa arrastar pelo mal acaba enfrentando diversos perigos.*
 
-*Um Espírito pode, por exemplo, pedir a prova da riqueza e obtê-la. A partir disso, conforme seu caráter, pode tornar-se avarento ou generoso, egoísta ou desprendido, ou ainda se entregar aos excessos. Isso não significa, porém, que ele tenha de passar obrigatoriamente por todas essas inclinações.*
+*Um Espírito pode, por exemplo, pedir a prova da riqueza e obtê-la. A partir disso, conforme seu caráter, pode tornar-se mesquinho ou generoso, egoísta ou desprendido, ou ainda se entregar aos excessos. Isso não significa, porém, que ele tenha de passar obrigatoriamente por todas essas inclinações.*
 
 ### 262 — Como um Espírito, inicialmente simples, ignorante e sem experiência, pode escolher uma existência com discernimento e ser responsável por essa escolha?
 

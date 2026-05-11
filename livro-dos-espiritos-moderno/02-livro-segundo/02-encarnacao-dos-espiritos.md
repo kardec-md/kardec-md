@@ -14,7 +14,7 @@ A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém
 
 **— Mas, então, de que serve aos Espíritos terem seguido o caminho do bem, se isso não os livra dos sofrimentos da vida corporal?**
 
-*— Eles chegam mais rapidamente ao objetivo final. Além disso, os sofrimentos da vida são, muitas vezes, consequência das imperfeições do Espírito. Quanto menos imperfeições, menos tormentos. Quem não é invejoso, ciumento, avarento ou ambicioso não sofre as dores que nascem desses defeitos.*
+*— Eles chegam mais rapidamente ao objetivo final. Além disso, os sofrimentos da vida são, muitas vezes, consequência das imperfeições do Espírito. Quanto menos imperfeições, menos tormentos. Quem não é invejoso, ciumento, pão-duro ou ambicioso não sofre as dores que nascem desses defeitos.*
 
 
 ## A alma
