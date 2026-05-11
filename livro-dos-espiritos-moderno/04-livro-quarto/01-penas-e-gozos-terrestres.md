@@ -39,13 +39,13 @@ Ainda nesta vida, sofremos as consequências das infrações que cometemos contr
 
 *— Verdadeiramente infeliz é quem não tem o necessário para viver e manter a saúde. No entanto, essa privação pode ser resultado da própria conduta, caso em que a pessoa só pode responsabilizar a si mesma. Se for causada por outros, a responsabilidade recai sobre quem a provocou.*
 
-### 928 — Deus indica nossa vocação por meio das aptidões naturais. Muitos sofrimentos não surgem de ignorarmos essa vocação?
+### 928 — Evidentemente, Deus indica nossa vocação por meio das aptidões naturais. Muitos sofrimentos não surgem de ignorarmos essa vocação?
 
-*— Sim. Muitas vezes são os pais que, por orgulho ou interesse, desviam os filhos do caminho para o qual têm inclinação natural, comprometendo a felicidade deles. Por isso, respondem por esse erro.*
+*— Sim. Muitas vezes são os pais que, por orgulho ou interesse, desviam os filhos do caminho para o qual têm inclinação natural, comprometendo a felicidade deles. Responderão por esse erro.*
 
 **— Seria justo, então, que o filho de alguém socialmente influente exercesse um ofício humilde, se tivesse aptidão para isso?**
 
-*— É preciso evitar exageros. A civilização tem exigências. Não há motivo para que alguém exerça um trabalho incompatível com suas possibilidades, se pode ser útil de outra forma. O essencial é usar bem as próprias capacidades. Alguém pode ser um mau advogado e um excelente mecânico, por exemplo.*
+*— É preciso evitar exageros. A civilização tem exigências. Não há motivo para que alguém exerça um trabalho incompatível com suas possibilidades, se pode ser útil de outra forma. O essencial é fazer bom uso das próprias capacidades. Alguém pode ser um mau advogado e um excelente mecânico, por exemplo.*
 
 O afastamento da verdadeira aptidão é uma das causas mais comuns de frustração. A escolha de uma carreira para a qual não se tem talento gera fracassos constantes. O orgulho, então, impede a pessoa de buscar uma ocupação mais simples e faz com que veja o suicídio como saída para o que considera humilhação. Uma educação moral sólida, livre dos preconceitos do orgulho, evitaria esse desfecho.
 
