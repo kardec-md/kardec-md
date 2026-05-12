@@ -6,8 +6,6 @@
 
 *— Pode-se dizer que os Espíritos são os seres inteligentes da criação. Povoam o universo, além do mundo material.*
 
-NOTA: A palavra Espírito é usada aqui para designar as individualidades dos seres extracorpóreos, e não o princípio inteligente universal.
-
 ### 77 — Os Espíritos são seres distintos da Divindade ou simples emanações dela, sendo por isso chamados filhos de Deus?
 
 *— São obra de Deus, assim como uma máquina é obra do ser humano que a fabrica. A máquina é criação do homem, não é o próprio homem. Quando alguém faz algo belo e útil, costuma chamá-lo de sua criação. Do mesmo modo, somos filhos de Deus porque somos obra dele.*

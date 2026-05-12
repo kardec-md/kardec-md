@@ -50,9 +50,7 @@ O capítulo seguinte, intitulado "Introdução à Doutrina Espírita", foi escri
 
 Boa parte dessa Introdução consiste em respostas a objeções da época. Kardec dedica seções inteiras a defender a seriedade do estudo diante da ironia dos jornais, da resistência das corporações científicas, das acusações de fraude e até das suspeitas de que o assunto estaria ligado a forças malignas. Essas defesas faziam todo o sentido em seu tempo, mas exigem do leitor atual uma boa dose de contextualização histórica para serem plenamente apreciadas.
 
-Por esse motivo, **a leitura integral da Introdução é opcional**, especialmente no primeiro contato com a obra. 
-
-No entanto, algumas partes ainda são muito relevantes atualmente, sendo elas:
+Por esse motivo, a leitura integral da Introdução é opcional, especialmente no primeiro contato com a obra. No entanto, algumas partes ainda são muito relevantes atualmente, sendo elas:
 
 **Seções I e II — Terminologia básica.** Esclarecem por que se usa "Espiritismo" em vez de "espiritualismo" e os diferentes sentidos que a palavra "alma" pode ter. Esse vocabulário aparece com frequência ao longo do livro e ajuda a evitar confusões.
 
