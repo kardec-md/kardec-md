@@ -226,7 +226,7 @@ Pode-se também comparar a ação da matéria grosseira sobre o Espírito à de 
 ## Idiotismo, loucura
 ### 371 — Tem algum fundamento a ideia de que a alma dos cretinos e dos idiotas seja de natureza inferior?
 
-*— Nenhum. Eles possuem almas humanas, muitas vezes mais inteligentes do que imaginais, mas sofrem pela limitação dos meios de que dispõem para se expressar, assim como o mudo sofre por não poder falar.*
+*— Nenhum. Eles possuem almas humanas, muitas vezes mais inteligentes do que se imagina, mas sofrem pela limitação dos meios de que dispõem para se expressar, assim como o mudo sofre por não poder falar.*
 
 ### 372 — Que objetivo tem a Providência ao criar seres infelizes, como os cretinos e os idiotas?
 
@@ -325,7 +325,7 @@ A observação confirma isso: os sonhos infantis têm caráter simples e pueril,
 
 **— Não seria mais agradável que se reconhecessem?**
 
-*— Nem sempre. A lembrança das existências passadas traria inconvenientes maiores do que imaginais. Após a morte, irão se reconhecer e saber quanto tempo passaram juntos.*
+*— Nem sempre. A lembrança das existências passadas traria inconvenientes maiores do que se imagina. Após a morte, irão se reconhecer e saber quanto tempo passaram juntos.*
 
 ### 387 — A simpatia tem sempre como causa um conhecimento anterior?
 

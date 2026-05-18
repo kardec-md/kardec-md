@@ -51,7 +51,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 
 ### 810 — Podemos dispor livremente de nossos bens. Seremos responsáveis, após a morte, pelo uso que fizemos deles?
 
-*— Toda ação gera consequências. As boas produzem frutos bons; as más, frutos amargos. Nunca duvideis disso.*
+*— Toda ação gera consequências. As boas produzem frutos bons; as más, frutos amargos. Nunca se deve duvidar disso.*
 
 ### 811 — É possível, ou já existiu, a igualdade absoluta das riquezas?
 
@@ -59,7 +59,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 
 **— Alguns acreditam que essa igualdade seria a solução para os males da sociedade. O que pensar disso?**
 
-*— São idealistas ingênuos ou ambiciosos movidos pela inveja. Não compreendem que a igualdade forçada que imaginam seria rapidamente desfeita pela própria realidade. Combatei o egoísmo, que é a verdadeira chaga social, e não persigas ilusões.*
+*— São idealistas ingênuos ou ambiciosos movidos pela inveja. Não compreendem que a igualdade forçada que imaginam seria rapidamente desfeita pela própria realidade. Combata o egoísmo, que é a verdadeira chaga social, em vez de perseguir ilusões.*
 
 ### 812 — Já que não pode haver igualdade de riquezas, o mesmo ocorre com o bem-estar?
 
@@ -77,7 +77,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 ## As provas da riqueza e da miséria
 ### 814 — Por que Deus concede a uns a riqueza e o poder, e a outros a miséria?
 
-*— Para colocá-los à prova de maneiras diferentes. Além disso, como já sabeis, essas provas foram escolhidas pelos próprios Espíritos, embora muitos acabem fracassando nelas.*
+*— Para colocá-los à prova de maneiras diferentes. Além disso, como você já sabe, essas provas foram escolhidas pelos próprios Espíritos, embora muitos acabem fracassando nelas.*
 
 ### 815 — Qual dessas provas é mais difícil para o homem: a da miséria ou a da riqueza?
 
