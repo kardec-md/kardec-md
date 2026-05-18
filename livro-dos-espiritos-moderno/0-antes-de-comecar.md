@@ -1,66 +1,37 @@
 # Antes de Começar
 
-### I. As perguntas que sempre voltam
+A ciência do Século XXI nos conta uma história curta, o Big Bang explodiu, o universo se formou, e bilhões de anos depois uma forma de vida primitiva surgiu na Terra, evoluiu, e aqui estamos. Fim. Somos parte de uma grande piada cósmica. E se isso for verdade, por que eu deveria ajudar o próximo, se um dia vou simplesmente morrer e tudo vai se acabar para sempre? Como dormir em paz sabendo que amanhã pode ser o último dia que verei meus entes queridos?
 
-Em algum momento da vida, quase todas as pessoas se perguntam qual é o sentido da existência. O que acontece depois da morte? Por que o sofrimento faz parte da experiência humana? Existe uma justiça que vai além das circunstâncias visíveis? A vida tem um propósito maior do que simplesmente nascer, viver e morrer?
+Alguns se utilizam da fé para consertar esse problema, e eu admiro essas pessoas profundamente, porque nunca tive essa qualidade. Como acreditar em Deus se o mundo é tão injusto? Cresci com uma mãe doente, e a única relação que consegui ter com Deus foi a conclusão de que ele é um cínico. Por que alguns sofrem e outros não? Deus não era para ser soberanamente justo e bom? Onde está sua bondade quando crianças morrem de fome, inocentes morrem na guerra, e pessoas más prevalecem sobre as boas o tempo todo?
 
-Essas perguntas não pertencem a uma época específica nem dependem de formação intelectual. Elas surgem de maneira natural quando enfrentamos perdas, desafios, mudanças profundas ou quando simplesmente paramos para refletir com mais atenção sobre nossa própria vida. São questionamentos que atravessam culturas e gerações, acompanhando a humanidade desde os seus primeiros registros.
+Allan Kardec propôs uma solução, em 1857, na França. Unificar Ciência, Religião e Filosofia para responder a essas fatais perguntas através do "Livro dos Espíritos". Quando descobri a existência desse livro, fiquei curioso, mas também muito cético. Como assim, um livro feito por espíritos? Espíritos nem existem! Mas decidi dar uma chance, porque gostei da postura de Kardec: "Rejeite o que a razão não aprova", "Não aceite ideias por fé cega" e "Analise tudo sob lógica rigorosa".
 
-Ao longo da história, religiões, correntes filosóficas e avanços científicos tentaram oferecer respostas. A sociedade mudou, o conhecimento se expandiu e novas descobertas transformaram nossa compreensão do mundo material. Ainda assim, as questões fundamentais sobre a origem, o destino e o significado da vida continuam presentes.
+Para a minha surpresa, o método dele era bem engenhoso. Kardec mantinha correspondência com diversas reuniões espíritas independentes, espalhadas pela Europa, pelas Américas, e até por algumas localidades na África e na Ásia. Essas cartas continham perguntas para os alegados "espíritos" que se comunicavam através de médiuns. Eram questões de altíssimo calibre sobre Deus, o surgimento do universo, quem somos nós, e algumas carregadas de temas polêmicos para a época, como a pena de morte, desigualdade entre homens e mulheres e a escravidão dos mais fracos. Práticas e costumes amplamente aceitos na sociedade do Século XIX.
 
-O avanço da ciência ampliou muito o que sabemos sobre o universo físico, mas não respondeu por que existimos. Por mais que se conheça a estrutura da matéria, das estrelas ou do cérebro, isso não diz, por si só, o que é a consciência, o que sustenta o senso de justiça ou por que pessoas em circunstâncias semelhantes vivem destinos tão diferentes.
+As respostas voltavam para Kardec, que as comparava. Se havia concordância entre diversas fontes, a pergunta e a resposta entravam no Livro dos Espíritos. Quando surgiam divergências ou opiniões isoladas, aquela resposta era deixada de lado ou analisada com maior cautela. Esse método ficou conhecido como Controle Universal do Ensino dos Espíritos (CUEE).
 
+Por mais sofisticado que fosse para a época, esse método contém duas falhas capitais. A primeira: como garantir que a resposta não era simplesmente fruto do senso comum ou da inteligência do próprio médium? E a segunda: como garantir que Kardec foi imparcial ao descartar ou incluir respostas? São duas perguntas válidas, e muito difíceis de serem categoricamente respondidas. Mas, e se a gente pudesse colocar esse método à prova em uma escala nunca vista antes? Juntar relatos de pessoas do mundo inteiro, de todas as culturas, para testar os ensinamentos dos espíritos? E se a gente aplicasse o método de Kardec através da Internet?
 
-### II. O Livro que ousou responder
+Foi quando percebi algo que mudou a minha vida. O método de Kardec já está sendo aplicado, e em escala global. Pegue seu celular agora, abra o YouTube, e digite: "Relatos de Experiências de Quase Morte (EQM)". Milhares de pessoas, em dezenas de idiomas, contando o que viveram enquanto estavam clinicamente mortas. Milhões nos comentários relatando suas próprias experiências espirituais. Pessoas que nunca leram Kardec, que nunca ouviram falar de Espiritismo, descrevendo exatamente o que está escrito em um livro de 1857. Esse é o CUEE rodando na velocidade da Internet, em uma amostra que Kardec jamais sonharia em alcançar. 
 
-Em 1857, foi publicada na França uma obra que buscava responder de forma organizada às grandes questões sobre a existência. Esse livro ficou conhecido como O Livro dos Espíritos e marcou o início daquilo que mais tarde seria chamado de Espiritismo.
+Intrigado, mergulhei nessa obra. E desde então quis compartilhá-la com o maior número de pessoas possível, porque ela literalmente mudou a minha vida. Eu queria que essa luz e essa tranquilidade alcançassem todos aqueles que eu amo. E, futuramente, toda a Terra. Mas percebi um obstáculo. A versão original do livro não é nem um pouco amigável. É truncada, cheia de termos que caíram em desuso. Kardec era renomado educador e tradutor, falava 6 línguas fluentemente. Talvez para ele a leitura fosse simples, mas não é para a maioria de nós. Então decidi criar esta nova versão do Livro dos Espíritos, em Português Brasileiro moderno. Tentei otimizar o texto ao máximo para que a leitura seja fácil e prazerosa. A única dificuldade que você deve encontrar é a profundidade da obra, não o vocabulário rebuscado.
 
-Para compreender a importância dessa publicação, é necessário lembrar o contexto em que ela surgiu. O século XIX era um período de profundas transformações sociais e científicas. A Revolução Industrial modificava o modo de vida das populações, novas descobertas ampliavam o conhecimento humano e antigas estruturas políticas começavam a ser questionadas. Ao mesmo tempo, práticas hoje consideradas injustas eram amplamente aceitas. A pena de morte fazia parte dos sistemas jurídicos, mulheres não participavam da vida política por meio do voto e a escravidão ainda estava presente em diversas regiões do mundo.
+### Sobre a Introdução a seguir
 
-Nesse cenário, a obra apresentava ideias que colocavam todos os seres humanos sob as mesmas leis morais universais. Defendia a responsabilidade individual pelos próprios atos, a continuidade da vida além da morte e o progresso espiritual como destino comum da humanidade. Em vez de privilegiar grupos ou estabelecer distinções definitivas entre pessoas, propunha que todos os espíritos estão sujeitos ao mesmo processo de aprendizado e evolução.
+O próximo capítulo, intitulado "Introdução à Doutrina Espírita", foi escrito pelo próprio Kardec para acompanhar a primeira edição. É um texto longo, denso e, em boa parte, voltado a um público muito específico: os leitores e críticos da França de 1857. Kardec dedica seções inteiras a defender a seriedade do estudo diante da ironia dos jornais, da resistência das corporações científicas, das acusações de fraude, e até de suspeitas de que o assunto estaria ligado a forças malignas. Essas defesas faziam todo o sentido em seu tempo, mas exigem do leitor atual uma boa dose de contextualização histórica para serem plenamente apreciadas. Por isso, a leitura integral da Introdução é opcional, especialmente no primeiro contato com a obra. Ainda assim, três partes continuam relevantes hoje:
 
+\- Seções I e II (Terminologia básica). Esclarecem por que se usa "Espiritismo" em vez de "espiritualismo", e os diferentes sentidos que a palavra "alma" pode ter. Esse vocabulário aparece com frequência ao longo do livro e ajuda a evitar confusões. 
 
-### III. Não foi a opinião de um homem
+\- Seção VI (Resumo da doutrina). A parte mais importante da Introdução. Apresenta, em proposições curtas, os princípios fundamentais que serão desenvolvidos no restante da obra: existência de Deus, natureza dos Espíritos, encarnação, perispírito, livre-arbítrio, progresso espiritual, comunicação entre os mundos. Funciona quase como um mapa do que vem pela frente. 
+ 
+\- Seção XVII (Encerramento). Traz uma analogia com a astronomia para explicar por que a existência de seres invisíveis é uma hipótese coerente com o que sabemos da natureza.
 
-Embora o livro esteja associado ao nome de Allan Kardec, ele não foi elaborado a partir de opiniões pessoais ou experiências isoladas. Kardec era educador e tinha formação voltada para o estudo sistemático e organizado das ideias. Ao tomar contato com relatos de pessoas que afirmavam receber comunicações de origem espiritual, decidiu investigar o assunto com critério.
+As demais seções (III, IV, V e VII a XVI) tratam principalmente de objeções históricas, como surgiram as mesas girantes, como evoluíram os métodos de comunicação mediúnica, por que cientistas da época resistiam ao tema, como responder às acusações de fraude, ilusão coletiva, magnetismo, loucura e influência demoníaca. São interessantes do ponto de vista histórico e úteis para quem quiser entender o contexto em que o Espiritismo surgiu, mas não são pré-requisito para compreender a doutrina em si.
 
-Em vez de aceitar qualquer mensagem como verdadeira, ele passou a formular perguntas claras e enviá-las a diferentes grupos e indivíduos, em locais distintos. Essas pessoas, sem contato direto entre si, apresentavam respostas que eram registradas e comparadas. Quando havia concordância consistente entre comunicações obtidas por diversos intermediários, o conteúdo era considerado mais confiável. Quando surgiam divergências ou opiniões isoladas, eram deixadas de lado ou analisadas com maior cautela.
+---
 
-Esse procedimento, que ficou conhecido como o Controle Universal do Ensino dos Espíritos (CUEE), buscava evitar que a obra se apoiasse em revelações individuais ou interpretações pessoais. A intenção era reunir apenas aquilo que apresentasse concordância ampla e coerente.
+A partir do próximo capítulo, começa a obra original de Allan Kardec, agora em Português Brasileiro moderno. Caso encontre falhas gramaticais, erros doutrinários, ou tenha alguma sugestão de melhoria, sinta-se à vontade para escanear o QR code na primeira página deste livro. Sua contribuição será muito bem-vinda.
 
-Vale notar que o próprio nome "Allan Kardec" é um pseudônimo. Seu nome de batismo era Hippolyte Léon Denizard Rivail, e sua formação foi com Pestalozzi, um dos pedagogos mais importantes da Europa. Adotar outro nome para a obra espírita foi uma forma de separar essa investigação do trabalho pedagógico que já o havia tornado conhecido, e de evitar que sua reputação anterior interferisse na avaliação das ideias apresentadas.
+E aqui vai minha sugestão para tirar o máximo dessa leitura: antes de começar cada capítulo, assista a um relato de Experiência de Quase Morte. Compare. Veja por si mesmo. Esse livro foi escrito em 1857, esses relatos são de hoje, e é você quem vai julgar se eles concordam.
 
-
-### IV. O motivo desta adaptação
-
-Ao longo do tempo, O Livro dos Espíritos permaneceu como uma das principais referências para o estudo das questões espirituais sob a perspectiva inaugurada por Allan Kardec. No entanto, a linguagem utilizada no século XIX reflete o estilo e as formas de expressão de sua época, o que pode representar um obstáculo para parte dos leitores atuais.
-
-Esta versão foi preparada com o objetivo de tornar o conteúdo mais acessível, sem alterar sua essência. A proposta não é substituir a obra original, nem reinterpretar seus princípios, mas apresentar suas ideias em uma linguagem mais clara e direta, adequada ao leitor contemporâneo.
-
-Foram simplificadas construções linguísticas, atualizados termos que caíram em desuso e organizadas frases de maneira a facilitar a compreensão, preservando integralmente o sentido das perguntas e respostas. Sempre que possível, manteve-se a estrutura original, respeitando a sequência lógica estabelecida pelo autor.
-
-Se as perguntas sobre a origem, o sentido e o destino da vida já fizeram parte das suas reflexões, este livro pode oferecer um caminho de estudo e análise. A melhor postura diante dele é a da investigação sincera: ler com atenção, refletir com calma e avaliar cada ideia com razão e equilíbrio.
-
-Como o próprio Kardec orientava, nada deve ser aceito sem exame. O leitor é convidado a concordar apenas com aquilo que lhe parecer lógico, coerente e consistente. A liberdade de pensar é parte essencial da proposta.
-
-
-### V. Sobre a Introdução a seguir
-
-O capítulo seguinte, intitulado "Introdução à Doutrina Espírita", foi escrito por Kardec para acompanhar a obra original. É um texto longo, denso e, em parte, voltado a um público específico: os leitores e críticos da França de 1857.
-
-Boa parte dessa Introdução consiste em respostas a objeções da época. Kardec dedica seções inteiras a defender a seriedade do estudo diante da ironia dos jornais, da resistência das corporações científicas, das acusações de fraude e até das suspeitas de que o assunto estaria ligado a forças malignas. Essas defesas faziam todo o sentido em seu tempo, mas exigem do leitor atual uma boa dose de contextualização histórica para serem plenamente apreciadas.
-
-Por esse motivo, a leitura integral da Introdução é opcional, especialmente no primeiro contato com a obra. No entanto, algumas partes ainda são muito relevantes atualmente, sendo elas:
-
-**Seções I e II — Terminologia básica.** Esclarecem por que se usa "Espiritismo" em vez de "espiritualismo" e os diferentes sentidos que a palavra "alma" pode ter. Esse vocabulário aparece com frequência ao longo do livro e ajuda a evitar confusões.
-
-**Seção VI — Resumo da doutrina.** Esta é a parte mais importante da Introdução. Apresenta, em proposições curtas, os princípios fundamentais que serão desenvolvidos no restante da obra: existência de Deus, natureza dos Espíritos, encarnação, perispírito, livre-arbítrio, progresso espiritual, comunicação entre os mundos. Funciona quase como um mapa do que vem pela frente.
-
-**Seção XVII — Encerramento.** Traz uma analogia com a astronomia para explicar por que a existência de seres invisíveis é uma hipótese coerente com o que sabemos da natureza.
-
-As demais seções (III, IV, V e VII a XVI) tratam principalmente de objeções históricas: como surgiram as mesas girantes, como evoluíram os métodos de comunicação mediúnica, porque cientistas da época resistiam ao tema, como responder às acusações de fraude, ilusão coletiva, magnetismo, loucura e influência demoníaca. São interessantes do ponto de vista histórico e útil para quem quiser entender o contexto em que o Espiritismo surgiu, mas não são pré-requisito para compreender a doutrina em si.
-
-***
-
-A partir do próximo capítulo começa a obra original de Allan Kardec, agora em linguagem modernizada. Que a leitura seja proveitosa e inspire reflexões sinceras sobre as grandes questões da existência. Boa leitura.
-
+Que esse livro mude a sua vida como mudou a minha. Boa leitura.

@@ -155,9 +155,9 @@ Assim como a morte do corpo é, para o Espírito, uma espécie de renascimento, 
 
 *— Elas pertencem ao Espírito que nele está encarnado. Quanto mais puro é esse Espírito, maior a inclinação para o bem.*
 
-**— Disso se conclui que o homem de bem é a encarnação de um Espírito bom, e o homem vicioso a de um Espírito mau?**
+**— Disso se conclui que o homem de bem é a encarnação de um Espírito bom, e o homem mau a de um Espírito mau?**
 
-*— Sim, mas é melhor dizer que o homem vicioso é a encarnação de um Espírito imperfeito. Caso contrário, poder-se-ia supor a existência de Espíritos eternamente maus, a que costumais chamar de demônios.*
+*— Sim, mas é melhor dizer que o homem mau é a encarnação de um Espírito imperfeito. Caso contrário, seria possível supor a existência de Espíritos eternamente maus, que vocês costumam chamar de demônios.*
 
 ### 362 — Qual é o caráter das pessoas em que encarnam Espíritos levianos e pouco equilibrados?
 

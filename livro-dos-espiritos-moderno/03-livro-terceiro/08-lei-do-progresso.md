@@ -156,7 +156,7 @@ A civilização criou novas necessidades ligadas à posição social do homem, e
 ## Influência do Espiritismo no progresso
 ### 798 — O Espiritismo se tornará uma crença geral ou ficará restrito a poucos?
 
-*— Tornar-se-á uma crença geral e marcará uma nova era na história da humanidade, porque está de acordo com a natureza das coisas e chegou o momento de ocupar seu lugar entre os conhecimentos humanos. No entanto, enfrentará grandes resistências, mais por interesses pessoais do que por falta de convicção. Com o tempo, porém, seus opositores ficarão isolados e acabarão se adaptando, para não se tornarem ridículos.*
+*— Se tornará uma crença geral e marcará uma nova era na história da humanidade, porque está de acordo com a natureza das coisas, e chegou o momento de ocupar seu lugar entre os conhecimentos humanos. No entanto, enfrentará grandes resistências, mais por interesses pessoais do que por falta de convicção. Com o tempo, porém, seus opositores ficarão isolados e acabarão se adaptando, para não se tornarem ridículos.*
 
 As ideias não mudam de forma repentina, mas lentamente. De geração em geração, vão perdendo força e desaparecem com aqueles que as sustentavam, sendo substituídas por novas formas de pensar, como ocorre com as ideias políticas. O paganismo, por exemplo, já dominou o mundo, e hoje ninguém o professa, embora seus vestígios tenham persistido por séculos após o surgimento do Cristianismo. O mesmo ocorrerá com o Espiritismo. Ele avança rapidamente, mas ainda haverá resistência durante algumas gerações. Seu progresso, porém, será mais rápido que o do Cristianismo, pois este lhe prepara o caminho. O Cristianismo precisou destruir antigas crenças; o Espiritismo veio para construir.
 

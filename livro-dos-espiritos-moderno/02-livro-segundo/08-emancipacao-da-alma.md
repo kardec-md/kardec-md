@@ -122,7 +122,7 @@ Desse modo, o nosso próprio Espírito muitas vezes revela a outros Espíritos, 
 
 *— São dois Espíritos simpáticos que se comunicam e veem, reciprocamente, os pensamentos um do outro, mesmo sem os corpos estarem adormecidos.*
 
-Há, entre os Espíritos que se encontram, uma comunicação de pensamento, que faz com que duas pessoas se vejam e se compreendam sem precisarem dos sinais visíveis da linguagem. Poder-se-ia dizer que falam entre si a linguagem dos Espíritos.
+Há, entre os Espíritos que se encontram, uma comunicação através do pensamento, que faz com que duas pessoas se vejam e se compreendam sem precisarem dos sinais visíveis da linguagem. Falam entre si a linguagem dos Espíritos.
 
 
 ## Letargia, catalepsia, mortes aparentes

@@ -46,9 +46,9 @@ As primeiras respostas consideradas inteligentes eram simples. A mesa se levanta
 
 Quando questionada sobre sua identidade, a causa dessas manifestações declarou ser um Espírito, apresentou um nome e forneceu informações a seu respeito. Um ponto importante é que essa explicação não foi criada antes como hipótese; surgiu a partir das próprias comunicações.
 
-O método das pancadas era lento e pouco prático. Então surgiu outra forma de comunicação. Adaptou-se um lápis a uma pequena cesta ou objeto semelhante. Colocado sobre o papel e tocado levemente por uma pessoa, o objeto se movia e o lápis passava a escrever palavras e frases.
+O método das pancadas era lento e pouco prático. Então o Espírito sugeriu a adaptação de um lápis a uma pequena cesta ou objeto semelhante. Colocado sobre o papel e tocado levemente por uma pessoa, o objeto se movia e o lápis passava a escrever palavras, frases, dissertações de muitas páginas sobre as mais altas questões de filosofia, de moral, de metafísica, de psicologia, etc., e com tanta rapidez como se fosse com a mão.
 
-Em Paris, em 10 de junho de 1853, foi dada a seguinte orientação a um dos participantes:
+Esse mesmo conselho foi dado simultaneamente na América, na França e em diversos outros países. Eis em que em Paris, em 10 de junho de 1853, foi comunicado a um dos participantes:
 
 *— Vai buscar, no aposento ao lado, a cestinha; amarra-lhe um lápis; coloca-a sobre o papel; põe-lhe os teus dedos sobre a borda.*
 
@@ -76,71 +76,71 @@ Esses fatos ocorriam de forma aberta, repetidos por milhares de pessoas, e não 
 
 Como vimos, os próprios seres que se comunicam designam a si mesmos como Espíritos ou gênios e declaram, ao menos em parte, terem pertencido a homens que viveram na Terra. Eles formam o mundo espiritual, assim como nós constituímos o mundo corporal durante a vida terrena. A seguir, resumimos os pontos principais da doutrina que nos transmitiram, para depois respondermos com mais facilidade a certas objeções.
 
-*Deus é eterno, imutável, imaterial, único, onipotente, soberanamente justo e bom.*
+*— Deus é eterno, imutável, imaterial, único, onipotente, soberanamente justo e bom.*
 
-*Deus criou o universo, que abrange todos os seres animados e inanimados, materiais e imateriais.*
+*— Deus criou o universo, que abrange todos os seres animados e inanimados, materiais e imateriais.*
 
-*Os seres materiais constituem o mundo visível ou corpóreo; os seres imateriais formam o mundo invisível ou espírita, isto é, o mundo dos Espíritos.*
+*— Os seres materiais constituem o mundo visível ou corpóreo; os seres imateriais formam o mundo invisível ou espírita, isto é, o mundo dos Espíritos.*
 
-*O mundo espírita é o mundo normal, primitivo, eterno, anterior e posterior a tudo o mais.*
+*— O mundo espírita é o mundo normal, primitivo, eterno, anterior e posterior a tudo o mais.*
 
-*O mundo corporal é secundário. Poderia deixar de existir, ou jamais ter existido, sem que isso alterasse a essência do mundo espírita.*
+*— O mundo corporal é secundário. Poderia deixar de existir, ou jamais ter existido, sem que isso alterasse a essência do mundo espírita.*
 
-*Os Espíritos vestem temporariamente um corpo material perecível. A morte desfaz esse envoltório e lhes devolve a liberdade.*
+*— Os Espíritos vestem temporariamente um corpo material perecível. A morte desfaz esse envoltório e lhes devolve a liberdade.*
 
-*Entre as diferentes espécies de seres corpóreos, Deus escolheu a espécie humana para a encarnação dos Espíritos que atingiram certo grau de desenvolvimento, conferindo-lhe superioridade moral e intelectual sobre as demais.*
+*— Entre as diferentes espécies de seres corpóreos, Deus escolheu a espécie humana para a encarnação dos Espíritos que atingiram certo grau de desenvolvimento, conferindo-lhe superioridade moral e intelectual sobre as demais.*
 
-*A alma é um Espírito encarnado; o corpo é apenas o seu envoltório.*
+*— A alma é um Espírito encarnado; o corpo é apenas o seu envoltório.*
 
-*Há no ser humano três elementos: primeiro, o corpo, ser material semelhante ao dos animais e animado pelo mesmo princípio vital; segundo, a alma, ser imaterial, ou seja, o Espírito encarnado no corpo; terceiro, o laço que une a alma ao corpo, princípio intermediário entre a matéria e o Espírito.*
+*— Há no ser humano três elementos: primeiro, o corpo, ser material semelhante ao dos animais e animado pelo mesmo princípio vital; segundo, a alma, ser imaterial, ou seja, o Espírito encarnado no corpo; terceiro, o laço que une a alma ao corpo, princípio intermediário entre a matéria e o Espírito.*
 
-*Assim, o ser humano possui duas naturezas: pelo corpo, participa da natureza dos animais, com os instintos que lhes são próprios; pela alma, participa da natureza dos Espíritos.*
+*— Assim, o ser humano possui duas naturezas: pelo corpo, participa da natureza dos animais, com os instintos que lhes são próprios; pela alma, participa da natureza dos Espíritos.*
 
-*O laço que une o corpo e o Espírito, chamado perispírito, é uma espécie de envoltório semimaterial. A morte destrói o envoltório mais grosseiro. O Espírito conserva o segundo, que lhe serve como um corpo etéreo, invisível para nós em condições normais, mas que pode tornar-se acidentalmente visível e até tangível, como ocorre nas aparições.*
+*— O laço que une o corpo e o Espírito, chamado perispírito, é uma espécie de envoltório semimaterial. A morte destrói o envoltório mais grosseiro. O Espírito conserva o segundo, que lhe serve como um corpo etéreo, invisível para nós em condições normais, mas que pode tornar-se acidentalmente visível e até tangível, como ocorre nas aparições.*
 
-*O Espírito não é, portanto, um ser abstrato e indefinido, perceptível apenas pelo pensamento. É um ser real, com contornos próprios, que em certos casos pode ser percebido pela visão, pela audição e pelo tato.*
+*— O Espírito não é, portanto, um ser abstrato e indefinido, perceptível apenas pelo pensamento. É um ser real, com contornos próprios, que em certos casos pode ser percebido pela visão, pela audição e pelo tato.*
 
-*Os Espíritos pertencem a diferentes classes e não são iguais em poder, inteligência, conhecimento ou moralidade. Os da primeira ordem são os Espíritos superiores, que se distinguem pela perfeição, pelos conhecimentos, pela proximidade de Deus, pela pureza dos sentimentos e pelo amor ao bem: são os anjos ou Espíritos puros. Os das demais classes encontram-se cada vez mais distantes dessa perfeição. Os de categorias inferiores manifestam ainda muitas das paixões humanas: ódio, inveja, ciúme, orgulho. Comprazem-se no mal. Há também os que não são nem muito bons nem muito maus, mais perturbadores e enredadores do que perversos, em quem predominam a malícia e a leviandade. São os Espíritos levianos.*
+*— Os Espíritos pertencem a diferentes classes e não são iguais em poder, inteligência, conhecimento ou moralidade. Os da primeira ordem são os Espíritos superiores, que se distinguem pela perfeição, pelos conhecimentos, pela proximidade de Deus, pela pureza dos sentimentos e pelo amor ao bem: são os anjos ou Espíritos puros. Os das demais classes encontram-se cada vez mais distantes dessa perfeição. Os de categorias inferiores manifestam ainda muitas das paixões humanas: ódio, inveja, ciúme, orgulho. Comprazem-se no mal. Há também os que não são nem muito bons nem muito maus, mais perturbadores e enredadores do que perversos, em quem predominam a malícia e a leviandade. São os Espíritos levianos.*
 
-*Os Espíritos não permanecem indefinidamente na mesma ordem. Todos progridem, atravessando os diferentes graus da hierarquia espiritual. Esse progresso se dá por meio da encarnação, que para uns é expiação e para outros, missão. A vida material é uma prova pela qual precisam passar repetidamente, até alcançarem a perfeição. É como um filtro do qual saem cada vez mais purificados.*
+*— Os Espíritos não permanecem indefinidamente na mesma ordem. Todos progridem, atravessando os diferentes graus da hierarquia espiritual. Esse progresso se dá por meio da encarnação, que para uns é expiação e para outros, missão. A vida material é uma prova pela qual precisam passar repetidamente, até alcançarem a perfeição. É como um filtro do qual saem cada vez mais purificados.*
 
-*Ao deixar o corpo, a alma retorna ao mundo dos Espíritos, de onde havia saído, para depois iniciar nova existência material após um período mais ou menos longo, durante o qual permanece em estado de Espírito errante.*
+*— Ao deixar o corpo, a alma retorna ao mundo dos Espíritos, de onde havia saído, para depois iniciar nova existência material após um período mais ou menos longo, durante o qual permanece em estado de Espírito errante.*
 
-*Como o Espírito passa por muitas encarnações, todos nós já tivemos diversas existências e ainda teremos outras, mais ou menos aperfeiçoadas, na Terra ou em outros mundos.*
+*— Como o Espírito passa por muitas encarnações, todos nós já tivemos diversas existências e ainda teremos outras, mais ou menos aperfeiçoadas, na Terra ou em outros mundos.*
 
-*A encarnação dos Espíritos ocorre sempre na espécie humana. Seria erro acreditar que a alma ou o Espírito possa encarnar no corpo de um animal.*
+*— A encarnação dos Espíritos na Terra ocorre sempre na espécie humana. Seria erro acreditar que a alma ou o Espírito possa encarnar no corpo de um animal.*
 
-*As diferentes existências corpóreas do Espírito são sempre progressivas, nunca regressivas. A rapidez do progresso depende dos esforços feitos para alcançar a perfeição.*
+*— As diferentes existências corpóreas do Espírito são sempre progressivas, nunca regressivas. A rapidez do progresso depende dos esforços feitos para alcançar a perfeição.*
 
-*As qualidades da alma são as do Espírito que está encarnado em nós. Assim, a pessoa de bem é a encarnação de um Espírito bom; a pessoa perversa, a de um Espírito impuro.*
+*— As qualidades da alma são as do Espírito que está encarnado em nós. Assim, a pessoa de bem é a encarnação de um Espírito bom; a pessoa perversa, a de um Espírito impuro.*
 
-*A alma já possuía individualidade antes de encarnar e a conserva depois de se separar do corpo.*
+*— A alma já possuía individualidade antes de encarnar e a conserva depois de se separar do corpo.*
 
-*Ao retornar ao mundo dos Espíritos, ela reencontra todos aqueles que conheceu na Terra e todas as suas existências anteriores se reconstituem na memória, com a lembrança de todo o bem e de todo o mal que praticou.*
+*— Ao retornar ao mundo dos Espíritos, ela reencontra todos aqueles que conheceu na Terra e todas as suas existências anteriores se reconstituem na memória, com a lembrança de todo o bem e de todo o mal que praticou.*
 
-*O Espírito encarnado está sob a influência da matéria. A pessoa que vence essa influência, pela elevação e depuração da alma, aproxima-se dos Espíritos bons, com os quais um dia conviverá. Já a que se deixa dominar pelas más paixões e coloca toda a sua alegria na satisfação dos apetites grosseiros aproxima-se dos Espíritos impuros, dando preponderância à natureza animal.*
+*— O Espírito encarnado está sob a influência da matéria. A pessoa que vence essa influência, pela elevação e depuração da alma, aproxima-se dos Espíritos bons, com os quais um dia conviverá. Já a que se deixa dominar pelas más paixões e coloca toda a sua alegria na satisfação dos apetites grosseiros aproxima-se dos Espíritos impuros, dando preponderância à natureza animal.*
 
-*Os Espíritos encarnados habitam os diferentes mundos do universo.*
+*— Os Espíritos encarnados habitam os diferentes mundos do universo.*
 
-*Os Espíritos não encarnados, ou errantes, não ocupam uma região fixa e delimitada. Estão por toda parte no espaço, ao nosso lado, vendo-nos e convivendo conosco a todo instante. É toda uma população invisível, que se move ao nosso redor.*
+*— Os Espíritos não encarnados, ou errantes, não ocupam uma região fixa e delimitada. Estão por toda parte no espaço, ao nosso lado, vendo-nos e convivendo conosco a todo instante. É toda uma população invisível, que se move ao nosso redor.*
 
-*Os Espíritos exercem ação contínua sobre o mundo moral e mesmo sobre o mundo físico. Atuam sobre a matéria e sobre o pensamento, e constituem uma das forças da natureza, causa eficiente de muitos fenômenos até hoje sem explicação satisfatória, e que só encontram resposta racional no Espiritismo.*
+*— Os Espíritos exercem ação contínua sobre o mundo moral e mesmo sobre o mundo físico. Atuam sobre a matéria e sobre o pensamento, e constituem uma das forças da natureza, causa eficiente de muitos fenômenos até hoje sem explicação satisfatória, e que só encontram resposta racional no Espiritismo.*
 
-*A relação dos Espíritos com os seres humanos é constante. Os bons nos atraem para o bem, nos sustentam nas provas da vida e nos ajudam a suportá-las com coragem e resignação. Os maus nos impelem para o mal: têm prazer em ver-nos sucumbir e tornarmo-nos parecidos com eles.*
+*— A relação dos Espíritos com os seres humanos é constante. Os bons nos atraem para o bem, nos sustentam nas provas da vida e nos ajudam a suportá-las com coragem e resignação. Os maus nos impelem para o mal: têm prazer em ver-nos sucumbir e tornarmo-nos parecidos com eles.*
 
-*As comunicações dos Espíritos com os homens são ocultas ou ostensivas. As ocultas se dão pela influência boa ou má que exercem sobre nós sem que percebamos. Cabe ao nosso discernimento separar as boas das más inspirações. As ostensivas ocorrem por meio da escrita, da fala ou de outras manifestações materiais, quase sempre por intermédio dos médiuns.*
+*— As comunicações dos Espíritos com os homens são ocultas ou ostensivas. As ocultas se dão pela influência boa ou má que exercem sobre nós sem que percebamos. Cabe ao nosso discernimento separar as boas das más inspirações. As ostensivas ocorrem por meio da escrita, da fala ou de outras manifestações materiais, quase sempre por intermédio dos médiuns.*
 
-*Os Espíritos manifestam-se espontaneamente ou mediante evocação. Pode-se evocar qualquer Espírito: o de pessoas comuns, o de personagens ilustres, de qualquer época em que tenham vivido, o de parentes, amigos ou inimigos. Por meio de comunicações escritas ou faladas, podemos obter deles conselhos, informações sobre a situação em que se encontram além da vida terrena, sobre o que pensam a nosso respeito, e ainda as revelações que lhes seja permitido nos transmitir.*
+*— Os Espíritos manifestam-se espontaneamente ou mediante evocação. Pode-se evocar qualquer Espírito: o de pessoas comuns, o de personagens ilustres, de qualquer época em que tenham vivido, o de parentes, amigos ou inimigos. Por meio de comunicações escritas ou faladas, podemos obter deles conselhos, informações sobre a situação em que se encontram além da vida terrena, sobre o que pensam a nosso respeito, e ainda as revelações que lhes seja permitido nos transmitir.*
 
-*Os Espíritos são atraídos pela afinidade com a natureza moral do ambiente que os evoca. Os Espíritos superiores comparecem nas reuniões sérias, onde predominam o amor ao bem e o desejo sincero de aprendizado e progresso. A presença deles afasta os Espíritos inferiores, que, ao contrário, encontram livre acesso e podem agir à vontade entre pessoas frívolas, movidas apenas pela curiosidade, ou em ambientes onde existam maus instintos. Em vez de bons conselhos ou ensinamentos úteis, dali só se podem esperar futilidades, mentiras, gracejos de mau gosto e mistificações, pois muitas vezes esses Espíritos assumem nomes respeitados para induzir mais facilmente ao erro.*
+*— Os Espíritos são atraídos pela afinidade com a natureza moral do ambiente que os evoca. Os Espíritos superiores comparecem nas reuniões sérias, onde predominam o amor ao bem e o desejo sincero de aprendizado e progresso. A presença deles afasta os Espíritos inferiores, que, ao contrário, encontram livre acesso e podem agir à vontade entre pessoas frívolas, movidas apenas pela curiosidade, ou em ambientes onde existam maus instintos. Em vez de bons conselhos ou ensinamentos úteis, dali só se podem esperar futilidades, mentiras, gracejos de mau gosto e mistificações, pois muitas vezes esses Espíritos assumem nomes respeitados para induzir mais facilmente ao erro.*
 
-*Distinguir os bons dos maus Espíritos é simples. Os superiores usam linguagem digna, nobre, marcada por elevada moralidade, sem qualquer vestígio de paixões inferiores. Seus conselhos refletem pura sabedoria e visam sempre o nosso aperfeiçoamento e o bem da humanidade. Já a linguagem dos Espíritos inferiores é incoerente, muitas vezes trivial e até grosseira. Quando dizem algo bom e verdadeiro, dizem muito mais falsidades e absurdos, por malícia ou ignorância. Zombam da credulidade humana, divertem-se às custas de quem os interroga, lisonjeiam vaidades e alimentam desejos com falsas esperanças. Em resumo: comunicações sérias só ocorrem em ambientes igualmente sérios, em que haja sintonia de pensamentos voltados para o bem.*
+*— Distinguir os bons dos maus Espíritos é simples. Os superiores usam linguagem digna, nobre, marcada por elevada moralidade, sem qualquer vestígio de paixões inferiores. Seus conselhos refletem pura sabedoria e visam sempre o nosso aperfeiçoamento e o bem da humanidade. Já a linguagem dos Espíritos inferiores é incoerente, muitas vezes trivial e até grosseira. Quando dizem algo bom e verdadeiro, dizem muito mais falsidades e absurdos, por malícia ou ignorância. Zombam da credulidade humana, divertem-se às custas de quem os interroga, lisonjeiam vaidades e alimentam desejos com falsas esperanças. Em resumo: comunicações sérias só ocorrem em ambientes igualmente sérios, em que haja sintonia de pensamentos voltados para o bem.*
 
-*A moral dos Espíritos superiores resume-se, como a do Cristo, nesta máxima evangélica: fazer aos outros o que gostaríamos que nos fizessem, isto é, fazer o bem e não o mal. Nesse princípio o ser humano encontra uma regra universal de conduta, válida até para as menores ações.*
+*— A moral dos Espíritos superiores resume-se, como a do Cristo, nesta máxima evangélica: fazer aos outros o que gostaríamos que nos fizessem, isto é, fazer o bem e não o mal. Nesse princípio o ser humano encontra uma regra universal de conduta, válida até para as menores ações.*
 
-*Eles ensinam que o egoísmo, o orgulho e a sensualidade são paixões que nos aproximam da natureza animal e nos prendem à matéria. Aquele que, ainda neste mundo, se desliga da matéria, despreza as futilidades e ama o próximo aproxima-se da natureza espiritual. Cada um deve tornar-se útil, na medida das faculdades e dos meios que Deus lhe colocou nas mãos para experimentá-lo. O forte e o poderoso devem amparo e proteção ao fraco, pois transgride a lei de Deus quem usa a força e o poder para oprimir o semelhante. Ensinam ainda que, no mundo dos Espíritos, nada permanece oculto: o hipócrita será desmascarado e todas as suas torpezas virão à luz. A presença inevitável e contínua daqueles a quem fizemos mal é um dos castigos que nos aguardam. E ao estado de inferioridade ou superioridade dos Espíritos correspondem sofrimentos e alegrias desconhecidos na Terra.*
+*— Eles ensinam que o egoísmo, o orgulho e a sensualidade são paixões que nos aproximam da natureza animal e nos prendem à matéria. Aquele que, ainda neste mundo, se desliga da matéria, despreza as futilidades e ama o próximo aproxima-se da natureza espiritual. Cada um deve tornar-se útil, na medida das faculdades e dos meios que Deus lhe colocou nas mãos para experimentá-lo. O forte e o poderoso devem amparo e proteção ao fraco, pois transgride a lei de Deus quem usa a força e o poder para oprimir o semelhante. Ensinam ainda que, no mundo dos Espíritos, nada permanece oculto: o hipócrita será desmascarado e todas as suas torpezas virão à luz. A presença inevitável e contínua daqueles a quem fizemos mal é um dos castigos que nos aguardam. E ao estado de inferioridade ou superioridade dos Espíritos correspondem sofrimentos e alegrias desconhecidos na Terra.*
 
-*Mas ensinam também que não há faltas que não possam ser reparadas. As diferentes existências oferecem ao ser humano os meios de avançar, conforme seus desejos e esforços, no caminho do progresso, rumo à perfeição, que é o seu destino final.*
+*— Mas ensinam também que não há faltas que não possam ser reparadas. As diferentes existências oferecem ao ser humano os meios de avançar, conforme seus desejos e esforços, no caminho do progresso, rumo à perfeição, que é o seu destino final.*
 
 Esse é o resumo da doutrina espírita conforme os ensinamentos transmitidos pelos Espíritos superiores. Vejamos agora as objeções que se lhe contrapõem.
 
@@ -188,7 +188,7 @@ Não nos limitaremos aqui em manifestações verbais ou em mensagens escritas di
 
 Muitas vezes não se trata de palavras isoladas, mas de páginas inteiras escritas com rapidez, espontaneamente ou sobre temas propostos. Surgem textos fora do campo de conhecimento do médium e, ocasionalmente, composições de qualidade literária inesperada. Esses fatos são relatados em diferentes lugares e por inúmeros médiuns. São reais ou não? A resposta proposta é simples: observar com atenção, repetidamente e nas condições adequadas.
 
-Diante disso, os críticos costumam falar em fraude ou ilusão. Quanto à fraude, é preciso notar que nem sempre há interesse financeiro envolvido. Poder-se-ia falar em engano deliberado, mas como explicar a coincidência de fenômenos semelhantes ocorrendo em lugares distintos, com respostas convergentes sobre os mesmos temas, mesmo quando expressas em línguas diferentes? E por que pessoas de reputação respeitável, ou mesmo crianças, se prestariam sistematicamente a tal encenação, muitas vezes sem qualquer benefício?
+Diante disso, os críticos costumam falar em fraude ou ilusão. Quanto à fraude, é preciso notar que nem sempre há interesse financeiro envolvido. Seria possível falar em engano deliberado, mas como explicar a coincidência de fenômenos semelhantes ocorrendo em lugares distintos, com respostas convergentes sobre os mesmos temas, mesmo quando expressas em línguas diferentes? E por que pessoas de reputação respeitável, ou mesmo crianças, se prestariam sistematicamente a tal encenação, muitas vezes sem qualquer benefício?
 
 Resta a hipótese da ilusão. Mas também aqui convém ponderar: a doutrina espírita não é seguida apenas por pessoas sem instrução. Muitos de seus adeptos estudaram, observaram por longo tempo e não tinham interesse em sustentar um erro. Isso não constitui prova definitiva, mas ao menos um indício de que o assunto merece exame sério. O que não parece razoável é presumir que apenas os céticos detenham o monopólio do bom senso, rotulando como incapazes todos os que, após estudo, chegam a conclusão diferente.
 
