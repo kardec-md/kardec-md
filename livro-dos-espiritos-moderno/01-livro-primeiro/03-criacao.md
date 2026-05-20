@@ -98,7 +98,7 @@ O homem cuja tradição ficou conhecida pelo nome de Adão foi um dos sobreviven
 ## Pluralidade dos mundos
 ### 55 — Todos os globos que se movem no espaço são habitados?
 
-*— Sim. O ser humano da Terra está longe de ser, como imagina, o primeiro em inteligência, bondade e perfeição. No entanto, há quem se considere um espírito excepcional e imagine que este pequeno globo tenha o privilégio exclusivo de abrigar seres racionais. Isso é orgulho e vaidade. Pensam que Deus criou o universo apenas para eles.*
+*— Sim. O ser humano da Terra está longe de ser, como imagina, o primeiro em inteligência, bondade e perfeição. No entanto, há quem se considere um espírito excepcional e imagine que este pequeno globo tenha o privilégio exclusivo de abrigar seres racionais. Orgulho e vaidade! Pensam que Deus criou o universo apenas para eles.*
 
 Deus povoou os mundos de seres vivos, e todos contribuem para o objetivo final da Providência. Acreditar que apenas o planeta que habitamos seja povoado é duvidar da sabedoria de Deus, que nada faz de inútil. Certamente, esses mundos têm um destino mais elevado do que apenas nos servir de espetáculo. Além disso, nada na posição, no tamanho ou na constituição física da Terra autoriza supor que ela seja a única habitada entre tantos milhares de mundos semelhantes.
 

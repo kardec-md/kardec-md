@@ -125,7 +125,7 @@ Quando o Espírito encarna no corpo humano, traz com ele o princípio intelectua
 
 ### 607 — Vocês disseram (190) que a alma do homem, na sua origem, é como uma criança no início da vida, com a inteligência apenas começando a despertar e a se preparar para a vida. Onde o Espírito passa por essa primeira fase de desenvolvimento?
 
-*— Numa série de existências anteriores ao que vocês chamam de humanidade.*
+*— Numa série de existências vividas antes de o Espírito alcançar a condição humana.*
 
 **— Então a alma teria sido o princípio inteligente dos seres mais simples da criação?**
 
