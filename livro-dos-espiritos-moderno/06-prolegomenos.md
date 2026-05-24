@@ -10,7 +10,7 @@ As comunicações entre o mundo espiritual e o mundo corpóreo estão na ordem n
 
 Os Espíritos anunciaram que chegaram os tempos marcados pela Providência para uma manifestação universal. Como ministros de Deus e agentes de sua vontade, têm a missão de instruir e esclarecer os homens, abrindo uma nova era para a regeneração da humanidade.
 
-Este livro reúne os ensinamentos que foram transmitidos. Foi escrito por ordem e mediante ditado de Espíritos superiores, para estabelecer os fundamentos de uma filosofia racional, livre dos preconceitos do espírito de sistema. Nada nele consta que não seja a expressão do pensamento deles e que não tenha sido por eles examinado. Apenas a ordem e a distribuição das matérias, assim como as notas e a forma de algumas partes da redação, são obra de quem recebeu a missão de publicá-los.
+Este livro reúne os ensinamentos que foram transmitidos. Foi escrito sob orientação e por ditado de Espíritos superiores, para estabelecer os fundamentos de uma filosofia racional, livre dos preconceitos de qualquer dogma ou sistema fechado. Tudo o que consta nele é expressão do pensamento dos Espíritos e foi por eles examinado. Apenas a ordem e a organização dos temas, assim como as notas e a forma de algumas partes do texto, são obra de quem recebeu a missão de publicá-los.
 
 Entre os Espíritos que colaboraram na execução desta obra, muitos viveram em épocas diversas na Terra, onde pregaram e praticaram a virtude e a sabedoria. Outros, pelos seus nomes, não pertencem a nenhuma personagem que a história tenha registrado, mas sua elevação se atesta pela pureza dos ensinamentos e pela união em que se encontram com os que usam de nomes venerados.
 
