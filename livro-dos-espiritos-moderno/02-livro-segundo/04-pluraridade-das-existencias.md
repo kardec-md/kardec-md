@@ -302,7 +302,7 @@ Os Espíritos encarnam ora como homens, ora como mulheres, porque não possuem s
 
 ### 204 — Considerando que tivemos muitas existências, nossos laços de parentesco vão além desta vida atual?
 
-*— Necessariamente. A sucessão das existências corporais cria entre os Espíritos vínculos que remontam a vidas anteriores. Daí surgirem, muitas vezes, simpatias espontâneas entre vocês e Espíritos que lhes parecem estranhos.*
+*— Sem dúvida. As múltiplas existências aproximam os Espíritos ao longo do tempo e criam laços que atravessam várias vidas. Por isso, algumas pessoas despertam em vocês uma simpatia imediata, mesmo parecendo completamente estranhas.*
 
 ### 205 — Algumas pessoas consideram que a reencarnação destrói os laços de família, ao torná-los anteriores à vida atual.
 

@@ -2,7 +2,7 @@
 
 ### 222
 
-Alguns dizem que a reencarnação não é uma ideia nova, mas apenas a retomada da doutrina de Pitágoras. Nunca afirmamos que o Espiritismo seja uma invenção moderna. Sendo uma lei da natureza, ele deve existir desde a origem dos tempos, e sempre buscamos demonstrar que seus vestígios estão presentes nas épocas mais remotas da humanidade. Pitágoras, como se sabe, não foi o criador da metempsicose; ele a recebeu dos filósofos indianos e egípcios, que a conheciam desde tempos imemoriais. A ideia da transmigração das almas era, portanto, uma crença amplamente difundida e aceita por homens de grande valor intelectual. Como essa ideia surgiu? Por revelação ou por intuição? Não sabemos. Seja como for, é certo que uma ideia não atravessa séculos nem se impõe a inteligências notáveis se não contiver algo de profundamente verdadeiro. Assim, a antiguidade dessa doutrina, longe de ser uma objeção, é um argumento a seu favor.  
+Alguns dizem que a reencarnação não é uma ideia nova, mas apenas a retomada da doutrina de Pitágoras. Nunca afirmamos que o Espiritismo seja uma invenção moderna. Sendo uma lei da natureza, ele deve existir desde a origem dos tempos, e sempre buscamos demonstrar que seus vestígios estão presentes nas épocas mais remotas da humanidade. Pitágoras, como se sabe, não foi o criador da metempsicose; ele a recebeu dos filósofos indianos e egípcios, que a conheciam desde tempos imemoriais. A ideia da transmigração das almas era, portanto, uma crença amplamente difundida e aceita por homens de grande valor intelectual. Como essa ideia surgiu? Por revelação ou por intuição? Não sabemos. Seja como for, é certo que uma ideia não atravessa séculos nem se impõe a inteligências notáveis se não contiver algo de profundamente verdadeiro. Assim, a antiguidade dessa doutrina, longe de ser uma objeção, é um argumento a seu favor.
 
 Há, contudo, uma diferença essencial entre a metempsicose dos antigos e a doutrina moderna da reencarnação: os Espíritos rejeitam de forma absoluta a transmigração da alma humana para corpos de animais e vice-versa.
 
@@ -36,12 +36,12 @@ Se não há reencarnação, há apenas uma existência corporal. Nesse caso, a a
 
 Se admitirmos que a alma nasce com o corpo e é criada igual para todos, como explicar:
 
-**1. As aptidões tão diversas, independentes da educação recebida?**
-**2. O talento extraordinário de algumas crianças, enquanto outras permanecem medíocres por toda a vida?**
-**3. As ideias inatas ou intuitivas presentes em alguns e ausentes em outros?**
-**4. As inclinações precoces para virtudes ou vícios, em contraste com o meio em que a criança nasceu?**
-**5. O fato de alguns homens serem mais adiantados do que outros, independentemente da instrução?**
-**6. A diferença entre povos considerados primitivos e civilizados?**
+1. As aptidões tão diversas, independentes da educação recebida?
+2. O talento extraordinário de algumas crianças, enquanto outras permanecem medíocres por toda a vida?
+3. As ideias inatas ou intuitivas presentes em alguns e ausentes em outros?
+4. As inclinações precoces para virtudes ou vícios, em contraste com o meio em que a criança nasceu?
+5. O fato de alguns homens serem mais adiantados do que outros, independentemente da instrução?
+6. A diferença entre povos considerados primitivos e civilizados?
 
 Nenhuma filosofia explica satisfatoriamente esses fatos sem recorrer a hipóteses injustas ou ilógicas. Se as almas são criadas desiguais, Deus seria parcial. Se são criadas iguais, a desigualdade observada permanece sem explicação.
 

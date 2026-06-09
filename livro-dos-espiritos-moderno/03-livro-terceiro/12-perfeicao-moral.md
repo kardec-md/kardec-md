@@ -39,7 +39,7 @@
 
 ### 899 — Qual é mais culpado entre dois homens ricos que usam suas riquezas apenas para prazeres pessoais: aquele que nasceu na abundância e nunca conheceu a necessidade, ou o que conquistou seus bens pelo próprio trabalho?
 
-*— Aquele que conheceu o sofrimento, pois sabe o que é a dor. Ele a reconhece, mas não faz nada para aliviá-la; muitas vezes, simplesmente a esquece.*
+*— Aquele que conheceu o sofrimento, pois sabe o que é a dor. Ainda assim, não procura aliviar o sofrimento alheio e frequentemente se esquece das dificuldades que um dia também enfrentou.*
 
 ### 900 — Aquele que acumula bens sem jamais fazer o bem, justificando-se com a intenção de deixar maior herança aos filhos, tem desculpa válida?
 

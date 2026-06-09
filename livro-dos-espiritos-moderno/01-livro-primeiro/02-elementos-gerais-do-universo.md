@@ -7,7 +7,7 @@
 
 ### 18 — O ser humano um dia penetrará o mistério das coisas que lhe estão ocultas?
 
-*— O véu se levanta diante de seus olhos à medida que ele se aprimora; mas, para compreender certas coisas, ainda lhe faltam faculdades que ainda não desenvolveu.*
+*— O véu se levanta diante de seus olhos à medida que ele se aprimora; mas, para compreender certas coisas, lhe faltam faculdades que ainda não desenvolveu.*
 
 ### 19 — O ser humano não pode, por meio das investigações científicas, penetrar alguns dos segredos da natureza?
 
@@ -32,7 +32,7 @@ Por meio dessas comunicações, o ser humano adquire, dentro de certos limites, 
 
 **— Que definição podem dar da matéria?**
 
-*— A matéria é o elo que liga o espírito; é o instrumento que o serve e sobre o qual, ao mesmo tempo, ele exerce sua ação.*
+*— A matéria é o instrumento que permite ao espírito atuar no mundo material e se expressar através dele.*
 
 Desse ponto de vista, pode-se dizer que a matéria é o agente, o intermediário por meio do qual e sobre o qual o espírito atua.
 

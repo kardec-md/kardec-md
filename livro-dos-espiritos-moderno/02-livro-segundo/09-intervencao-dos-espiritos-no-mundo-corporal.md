@@ -306,7 +306,7 @@ Nada há de surpreendente na doutrina dos anjos guardiães, que velam por aquele
 
 ### 514 — Os Espíritos familiares são os mesmos que os simpáticos ou os protetores?
 
-*— Há gradações. O Espírito familiar é, antes de tudo, um amigo próximo.*
+*— São níveis diferentes. O Espírito familiar é, antes de tudo, um amigo próximo.*
 
 Dos esclarecimentos acima, pode-se concluir:
 
@@ -320,11 +320,11 @@ O mau gênio é um Espírito imperfeito que tenta desviar a pessoa do bem. Age p
 
 ### 515 — O que pensar de pessoas que parecem exercer influência irresistível sobre outras, levando-as ao bem ou ao mal?
 
-*— Em certos casos, trata-se de uma fascinação real. Quando ocorre para o mal, são Espíritos inferiores que, com ajuda de outros semelhantes, subjugam a vontade. Deus permite isso como prova.*
+*— Em certos casos, trata-se de uma fascinação real. Quando ocorre para o mal, são Espíritos inferiores que, com ajuda de outros semelhantes, manipulam as vontades da vítima. Deus permite isso como prova.*
 
 ### 516 — Os Espíritos bons e maus podem encarnar para acompanhar mais de perto alguém?
 
-*— Isso às vezes acontece. Mais frequentemente, encarregam dessa missão outros Espíritos encarnados que lhes são afins.*
+*— Isso às vezes acontece. Mas, na maioria das vezes, eles passam essa missão a outros Espíritos já encarnados que têm afinidade com eles.*
 
 ### 517 — Existem Espíritos ligados à proteção de uma família inteira?
 
@@ -362,7 +362,7 @@ Assim como ocorre com os indivíduos, as coletividades atraem Espíritos conform
 
 ### 524 — Os conselhos dos Espíritos protetores dizem respeito apenas à nossa conduta moral ou também às decisões da vida pessoal?
 
-*— A tudo. Eles procuram ajudar para que vivam da melhor forma possível. Muitas vezes, porém, vocês ignoram esses conselhos e acabam sofrendo por causa das próprias escolhas.*
+*— A tudo. Eles procuram ajudar para que vivam da melhor forma possível. Muitas vezes, porém, vocês ignoram esses conselhos e acabam sofrendo devido as suas próprias escolhas.*
 
 Os Espíritos protetores nos orientam por meio da voz da consciência, que ressoa dentro de nós. Como nem sempre damos atenção a isso, eles também utilizam meios indiretos, como as pessoas ao nosso redor. Cada um pode analisar sua própria vida e perceber quantas vezes recebeu conselhos que, se tivessem sido seguidos, teriam evitado muitos sofrimentos.
 

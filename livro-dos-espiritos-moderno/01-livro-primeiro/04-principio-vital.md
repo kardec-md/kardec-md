@@ -87,9 +87,10 @@ O fluido vital pode ser transmitido de um indivíduo a outro. Aquele que o possu
 A inteligência é uma faculdade particular, própria de certas classes de seres orgânicos. Ela lhes confere, junto com o pensamento, a vontade de agir, a consciência da própria existência e individualidade, bem como os meios de se relacionar com o mundo exterior e atender às suas necessidades.
 
 Podem-se distinguir, assim:
-1. os seres inanimados, formados apenas de matéria, sem vitalidade nem inteligência;  
-2. os seres animados que não pensam, compostos de matéria e dotados de vitalidade, mas sem inteligência;  
-3. os seres animados pensantes, formados de matéria, dotados de vitalidade e possuidores de um princípio inteligente que lhes dá a capacidade de pensar. 
+
+1. os seres inanimados, formados apenas de matéria, sem vitalidade nem inteligência;
+2. os seres animados que não pensam, compostos de matéria e dotados de vitalidade, mas sem inteligência;
+3. os seres animados pensantes, formados de matéria, dotados de vitalidade e possuidores de um princípio inteligente que lhes dá a capacidade de pensar.
 
 
 ### 72 — Qual é a fonte da inteligência?

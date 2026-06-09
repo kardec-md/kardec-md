@@ -41,8 +41,8 @@ A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém
 
 O ser humano é, portanto, constituído de três partes essenciais:
 
-1. o corpo, ser material semelhante ao dos animais, animado pelo mesmo princípio vital;  
-2. a alma, Espírito encarnado que habita o corpo;  
+1. o corpo, ser material semelhante ao dos animais, animado pelo mesmo princípio vital;
+2. a alma, Espírito encarnado que habita o corpo;
 3. o princípio intermediário, ou perispírito, substância semimaterial que serve de primeiro envoltório ao Espírito e faz a ligação entre a alma e o corpo. Assim como, em um fruto, há o gérmen, o perisperma e a casca.
 
 ### 136 — A alma é independente do princípio vital?

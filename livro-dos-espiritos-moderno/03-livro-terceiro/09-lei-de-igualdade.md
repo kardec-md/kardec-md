@@ -47,7 +47,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 
 ### 809 — Quem herda uma riqueza originalmente mal adquirida tem responsabilidade por isso?
 
-*— Não é responsável pelo mal cometido por outros, sobretudo se o desconhece. Mas, muitas vezes, a riqueza chega às mãos de alguém para lhe dar a oportunidade de reparar uma injustiça. Feliz aquele que entende isso. Se reparar o erro em nome de quem o cometeu, ambos se beneficiarão da reparação, pois muitas vezes é o próprio Espírito faltoso que provoca essa situação.*
+*— Não é responsável pelo mal cometido por outros se o desconhece. Mas, muitas vezes, a riqueza chega às mãos de alguém para dar a oportunidade de reparar uma injustiça. Feliz aquele que entende isso. Se reparar o erro em nome de quem o cometeu, ambos se beneficiarão da reparação, pois muitas vezes é o próprio Espírito faltoso que provoca essa situação.*
 
 ### 810 — Podemos dispor livremente de nossos bens. Seremos responsáveis, após a morte, pelo uso que fizemos deles?
 

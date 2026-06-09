@@ -28,16 +28,12 @@
 
 Quanto às qualidades íntimas, os Espíritos pertencem a diferentes ordens ou graus, pelos quais passam sucessivamente à medida que se purificam. Quanto ao estado em que se encontram, podem ser:
 
-___
 **- Encarnados:** Quando ligados a um corpo material;
 
-___
 **- Errantes:** Quando estão sem corpo e aguardam nova encarnação para progredir;
 
-___
-**- Espíritos puros:** Quando atingiram a perfeição e não necessitam mais encarnar.  
+**- Espíritos puros:** Quando atingiram a perfeição e não necessitam mais encarnar.
 
-___
 Entre os Espíritos não encarnados, há os que desempenham missões e se dedicam a atividades úteis, gozando de relativa felicidade. Outros permanecem em incerteza e instabilidade; são estes que constituem, propriamente, os Espíritos errantes, no sentido mais restrito do termo, frequentemente chamados de “almas a penar”. Os primeiros nem sempre se consideram errantes, pois distinguem sua condição da dos segundos.
 
 ### 227 — De que forma os Espíritos errantes se instruem? Certamente não como nós.
@@ -592,7 +588,7 @@ Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que
 
 *— Muito mais do que vocês imaginam. Se estão felizes, isso aumenta sua felicidade; se estão em sofrimento, serve como alívio.*
 
-### 321 — O dia de comemoração dos mortos é, para os Espíritos, mais especial do que os outros dias?  
+### 321 — O dia de comemoração dos mortos é, para os Espíritos, mais especial do que os outros dias?
 Eles comparecem aos cemitérios quando as pessoas vão orar sobre seus túmulos?
 
 *— Os Espíritos atendem, nesse dia, ao chamado daqueles que lhes dirigem pensamentos, assim como o fazem em qualquer outro dia.*

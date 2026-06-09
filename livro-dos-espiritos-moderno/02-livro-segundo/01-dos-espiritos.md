@@ -145,7 +145,7 @@ Qualquer que seja o sistema adotado, o conteúdo permanece o mesmo. É natural, 
 
 É importante não perder de vista que, entre os Espíritos, assim como entre os seres humanos, existem muitos que são ignorantes. Por isso, é preciso cautela ao supor que todo Espírito detenha conhecimento elevado. A classificação exige método, análise e compreensão profunda do assunto. No mundo espiritual, aqueles que possuem conhecimento limitado são tão incapazes de compreender um sistema geral quanto os ignorantes o são no mundo material.
 
-Muitos Espíritos, por não conseguirem perceber gradações de saber, capacidade e moralidade, consideram como pertencentes à ordem mais elevada todos aqueles que lhes são superiores. Mesmo entre os que têm capacidade de análise, pode haver divergências de detalhes, conforme o ponto de vista adotado, especialmente quando se trata de uma divisão sem caráter absoluto.
+Muitos Espíritos, por não conseguirem perceber outros graus de saber, capacidade e moralidade, consideram como pertencentes à ordem mais elevada todos aqueles que lhes são diretamente superiores. Mesmo entre os que têm capacidade de análise, pode haver divergências de detalhes, conforme o ponto de vista adotado, especialmente quando se trata de uma divisão sem caráter absoluto.
 
 Assim como Lineu, Jussieu e Tournefort propuseram métodos diferentes de classificação das plantas sem alterar a botânica em si, também aqui não se inventaram os Espíritos nem seus atributos. Eles foram observados e avaliados por suas palavras e ações, sendo depois classificados por analogia, com base nos próprios dados fornecidos por eles.
 
@@ -327,7 +327,7 @@ Assim como, na vida social, todos podem aspirar às mais altas funções, pode-s
 
 *— Como ousam questionar os atos de Deus? Julgam poder compreender os seus desígnios? Pode-se, no entanto, afirmar isto: a sabedoria divina está na liberdade de escolha concedida a cada Espírito, pois assim cada um tem mérito por suas próprias ações.*
 
-### 124 — Se alguns Espíritos seguem desde cedo o caminho do bem e outros o do mal, devem existir gradações entre esses dois extremos, não?
+### 124 — Se alguns Espíritos seguem desde cedo o caminho do bem e outros o do mal, devem existir níveis intermediários entre esses dois extremos, não?
 
 *— Sim, certamente. Os casos intermediários formam a imensa maioria.*
 
