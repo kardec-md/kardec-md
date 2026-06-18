@@ -38,7 +38,7 @@
 ## Justiça da reencarnação
 ### 171 — Em que se fundamenta a doutrina da reencarnação?
 
-*— Na justiça de Deus e na revelação. Repetimos constantemente: um bom pai sempre deixa aberta a seus filhos a porta do arrependimento. A razão não mostra que seria injusto privar para sempre da felicidade eterna aqueles que não tiveram, por circunstâncias alheias à sua vontade, a oportunidade de se aperfeiçoar? Todos os seres humanos não são filhos de Deus? Apenas entre os egoístas se encontram a injustiça, o ódio sem perdão e os castigos sem retorno.*
+*— Na justiça de Deus e na revelação. Repetimos constantemente: um bom pai sempre deixa aberta a seus filhos a porta do arrependimento. A razão não mostra que seria injusto privar para sempre da felicidade eterna aqueles que não tiveram a oportunidade de se aperfeiçoar? Todos os seres humanos não são filhos de Deus? Apenas entre os egoístas se encontram a injustiça, o ódio sem perdão e os castigos sem retorno.*
 
 Todos os Espíritos tendem à perfeição, e Deus lhes oferece os meios de alcançá-la por meio das provas da vida corporal. Sua justiça permite que realizem, em novas existências, aquilo que não puderam concluir em uma primeira experiência.
 
@@ -54,7 +54,7 @@ Quem, ao final da vida, não lamenta ter adquirido tarde demais uma experiência
 ## Encarnação nos diferentes mundos
 ### 172 — Nossas diversas existências corporais ocorrem todas na Terra?
 
-*— Não. Vivemo-las em diferentes mundos. As existências que temos na Terra não são as primeiras nem as últimas, mas estão entre as mais materiais e mais distantes da perfeição.*
+*— Não. Vivemos elas em diferentes mundos. As existências que temos na Terra não são as primeiras nem as últimas, mas estão entre as mais materiais e mais distantes da perfeição.*
 
 ### 173 — A cada nova existência a alma passa de um mundo para outro ou pode ter várias no mesmo globo?
 

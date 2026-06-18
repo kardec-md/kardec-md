@@ -16,7 +16,7 @@
 
 **— Essa duração depende da vontade do Espírito ou pode ser imposta como expiação?**
 
-*— É consequência do livre-arbítrio. Os Espíritos sabem perfeitamente o que fazem. Para alguns, no entanto, esse estado constitui uma punição permitida por Deus. Outros pedem que ele se prolongue, a fim de continuar estudos que só podem ser realizados com proveito no estado de Espírito livre.*
+*— É consequência do livre-arbítrio. Os Espíritos sabem perfeitamente o que fazem. Para alguns, esse estado acaba sendo uma condição dolorosa por consequência de suas próprias imperfeições, permitida por Deus para seu aprendizado. Outros pedem que esse estado se prolongue, a fim de continuar estudos que só podem ser realizados com proveito no estado de Espírito livre.*
 
 ### 225 — A erraticidade é, por si só, sinal de inferioridade espiritual?
 
@@ -34,7 +34,7 @@ Quanto às qualidades íntimas, os Espíritos pertencem a diferentes ordens ou g
 
 **- Espíritos puros:** Quando atingiram a perfeição e não necessitam mais encarnar.
 
-Entre os Espíritos não encarnados, há os que desempenham missões e se dedicam a atividades úteis, gozando de relativa felicidade. Outros permanecem em incerteza e instabilidade; são estes que constituem, propriamente, os Espíritos errantes, no sentido mais restrito do termo, frequentemente chamados de “almas a penar”. Os primeiros nem sempre se consideram errantes, pois distinguem sua condição da dos segundos.
+Entre os Espíritos errantes, há os que desempenham missões e se dedicam a atividades úteis, gozando de relativa felicidade. Outros permanecem em incerteza e instabilidade; são estes que constituem, propriamente, os Espíritos errantes, no sentido mais restrito do termo, frequentemente chamados de “almas a penar”. Os primeiros nem sempre se consideram errantes, pois distinguem sua condição da dos segundos.
 
 ### 227 — De que forma os Espíritos errantes se instruem? Certamente não como nós.
 
@@ -44,9 +44,9 @@ Entre os Espíritos não encarnados, há os que desempenham missões e se dedica
 
 *— Ao perder o corpo, os Espíritos elevados se libertam das paixões inferiores e conservam apenas o desejo do bem. Os Espíritos inferiores, porém, ainda as mantêm; caso contrário, já pertenceriam à primeira ordem.*
 
-### 229 — Por que, ao deixarem a Terra, os Espíritos não abandonam imediatamente todas as más paixões, se reconhecem seus prejuízos?
+### 229 — Por que, ao deixarem a Terra, os Espíritos não abandonam imediatamente todas as más paixões, se reconhecem os prejuízos que elas causam?
 
-*— Observa neste mundo pessoas dominadas pela inveja ou pelo orgulho. Acreditas que, ao deixarem a Terra, perdem instantaneamente esses defeitos? Após a morte, sobretudo nos que cultivaram paixões intensas, permanece uma espécie de atmosfera que os envolve e conserva suas imperfeições, porque o Espírito ainda não se libertou totalmente da matéria. Apenas por momentos ele vislumbra a verdade, como se esta lhe fosse mostrada para indicar o caminho correto.*
+*— Observem como, na Terra, algumas pessoas vivem dominadas pelo orgulho, pela inveja ou por outros vícios. Vocês acham que esses defeitos desaparecem instantaneamente com a morte? Não. Muitos Espíritos continuam presos aos hábitos e desejos que cultivaram durante a vida. É como se ainda carregassem a influência da matéria dentro de si. Apenas em certos momentos conseguem perceber a verdade com clareza e compreender o caminho que deveriam seguir.*
 
 ### 230 — O Espírito progride durante a erraticidade?
 
@@ -54,7 +54,7 @@ Entre os Espíritos não encarnados, há os que desempenham missões e se dedica
 
 ### 231 — Os Espíritos errantes são felizes ou infelizes?
 
-*— São mais ou menos felizes, conforme seus méritos. Sofrem em razão das paixões que ainda conservam ou são felizes de acordo com o grau de desmaterialização que já alcançaram. Na erraticidade, o Espírito percebe claramente o que ainda lhe falta para ser plenamente feliz e busca os meios de consegui-lo. Nem sempre, porém, lhe é permitido reencarnar segundo sua própria vontade, o que pode representar uma punição.*
+*— São mais ou menos felizes, conforme seus méritos. Sofrem em razão das paixões que ainda conservam ou são felizes conforme o grau de desmaterialização que já alcançaram. Na erraticidade, o Espírito percebe claramente o que ainda lhe falta para ser plenamente feliz e busca os meios de consegui-lo. Nem sempre, porém, ele pode reencarnar conforme deseja, e essa limitação pode lhe parecer uma punição, ainda que seja para o seu próprio bem.*
 
 ### 232 — Os Espíritos errantes podem ir a todos os mundos?
 
@@ -69,15 +69,15 @@ Entre os Espíritos não encarnados, há os que desempenham missões e se dedica
 
 ### 234 — Existem, de fato, mundos que servem como estações ou pontos de repouso para os Espíritos errantes?
 
-*— Sim. Há mundos especialmente destinados a Espíritos errantes, que funcionam como habitações temporárias, verdadeiros campos de descanso após longos períodos de erraticidade, que é sempre um estado um tanto penoso. Esses mundos ocupam posições intermediárias entre outros, graduadas conforme a natureza dos Espíritos que podem acessá-los, oferecendo maior ou menor bem-estar.*
+*— Sim. Há mundos especialmente destinados a Espíritos errantes, que funcionam como habitações temporárias, verdadeiros campos de descanso após longos períodos de erraticidade, que costumam ser cansativos para o Espírito. Esses mundos ocupam posições intermediárias, adequadas ao grau de evolução dos Espíritos que podem habitá-los, oferecendo maior ou menor bem-estar.*
 
 **— Os Espíritos que habitam esses mundos podem deixá-los livremente?**
 
-*— Sim. Eles podem partir quando precisam seguir para outros destinos. Imaginai bandos de aves que pousam em uma ilha para recuperar forças antes de continuar a viagem.*
+*— Sim. Eles podem partir quando precisam seguir para outros destinos. São como bandos de aves que pousam em uma ilha para recuperar forças antes de continuar a viagem.*
 
 ### 235 — Enquanto permanecem nesses mundos transitórios, os Espíritos continuam progredindo?
 
-*— Certamente. Os que ali chegam o fazem com o objetivo de se instruir e obter mais facilmente permissão para alcançar mundos melhores e, enfim, a posição reservada aos Espíritos elevados.*
+*— Certamente. Quem está ali tem o objetivo de se instruir e obter permissão para alcançar mundos melhores e, enfim, alcançar a posição reservada aos Espíritos elevados.*
 
 ### 236 — Esses mundos permanecem para sempre destinados aos Espíritos errantes?
 
@@ -103,7 +103,7 @@ Entre os Espíritos não encarnados, há os que desempenham missões e se dedica
 
 *— Durante sua formação.*
 
-Nada é inútil na natureza; tudo tem um propósito. Não existe vazio: em toda parte há vida. Durante os longos períodos que precederam o aparecimento do ser humano na Terra, enquanto ela ainda era uma massa informe, caótica e estéril para a vida material, não havia ausência de vida espiritual. Seres livres de nossas necessidades físicas ali encontravam abrigo. Deus quis que, mesmo imperfeita, a Terra tivesse uma função. Quem poderia afirmar que, entre os inúmeros mundos do universo, apenas um tivesse o privilégio exclusivo de ser habitado? Tal ideia seria incompatível com a sabedoria divina.
+Nada é inútil na natureza; tudo tem um propósito. Não existe vazio: em toda parte há vida. Durante os longos períodos antes do aparecimento do ser humano na Terra, enquanto ela ainda era uma massa informe, caótica e estéril para a vida material, não havia ausência de vida espiritual. Seres livres de nossas necessidades físicas ali encontravam abrigo. Deus quis que, mesmo imperfeita, a Terra tivesse uma função. Quem poderia afirmar que, entre os inúmeros mundos do universo, apenas um tivesse o privilégio exclusivo de ser habitado? Tal ideia seria incompatível com a sabedoria divina.
 
 
 ## Percepções, sensações e sofrimentos dos Espíritos
@@ -122,7 +122,7 @@ Nada é inútil na natureza; tudo tem um propósito. Não existe vazio: em toda 
 
 ### 240 — Os Espíritos compreendem o tempo como nós?
 
-*— Não. É por isso que, muitas vezes, não nos compreendem quando falamos de datas ou épocas.*
+*— Não. É por isso que, muitas vezes, não compreendem quando vocês falam de datas ou épocas.*
 
 Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a duração quase deixa de existir. Séculos, para nós tão longos, lhes parecem instantes perdidos na eternidade.
 
@@ -142,7 +142,7 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 *— Não completamente, pois apenas Deus possui esse conhecimento absoluto.*
 
-### 244 — Os Espíritos veem a Deus?
+### 244 — Os Espíritos conseguem vera Deus?
 
 *— Apenas os Espíritos superiores o veem e compreendem. Os inferiores o sentem e intuem sua existência.*
 
@@ -227,11 +227,11 @@ E acrescentou:
 
 Evidentemente, os vermes não roíam o perispírito nem o Espírito, mas apenas o corpo. Contudo, como a separação ainda não era completa, produzia-se uma espécie de repercussão moral, transmitindo ao Espírito a impressão do que ocorria no corpo. Não se trata exatamente de uma repercussão material, mas da percepção do que acontecia ao corpo, ao qual o perispírito ainda estava ligado, gerando uma ilusão tomada como realidade. Nesse caso, não era uma lembrança, pois o Espírito não havia passado por isso em vida; era a sensação de um fato presente.
 
-Durante a vida, o corpo recebe impressões externas e as transmite ao Espírito por meio do perispírito, que pode ser comparado ao fluido nervoso. Após a morte, o corpo já não sente nada, pois não há mais Espírito nem perispírito ligados a ele. O perispírito, separado do corpo, experimenta a sensação, mas como já não há um conduto localizado, ela se torna geral. Sendo o perispírito apenas o agente de transmissão, e estando a consciência no Espírito, conclui-se que, se houvesse perispírito sem Espírito, não haveria sensação alguma, assim como ocorre com um corpo morto. Do mesmo modo, se o Espírito não tivesse perispírito, seria inacessível a qualquer sensação dolorosa. É isso que acontece com os Espíritos completamente purificados.
+Durante a vida, o corpo recebe impressões externas e as transmite ao Espírito por meio do perispírito, que pode ser comparado ao fluido nervoso. Após a morte, o corpo já não sente nada, pois não há mais Espírito nem perispírito ligados a ele. Nesse caso, quando desencarnado, é o perispírito que experimenta a sensação, mas, sem um órgão específico para recebê-la, ela passa a ser sentida de forma geral. A consciência está no Espírito, o perispírito é apenas o agente de transmissão. Se houvesse perispírito sem Espírito, não haveria sensação alguma, assim como ocorre com um corpo morto. Do mesmo modo, se o Espírito não tivesse perispírito, seria inacessível a qualquer sensação dolorosa. É isso que acontece com os Espíritos completamente purificados.
 
 À medida que o Espírito se purifica, o perispírito se torna mais etéreo, e a influência da matéria diminui. Quanto mais o Espírito progride, menos grosseiro se torna seu envoltório e menos intensas são as sensações dolorosas.
 
-Pode-se objetar que, se o perispírito transmite tanto sensações agradáveis quanto desagradáveis, o Espírito puro deveria ser insensível a ambas. Isso é verdadeiro no que diz respeito às impressões provenientes da matéria que conhecemos. Os sons dos nossos instrumentos e os perfumes das nossas flores não lhe causam impressão. No entanto, ele experimenta sensações íntimas de uma harmonia e beleza indescritíveis, das quais não podemos formar ideia, assim como um cego de nascença não pode conceber a luz.
+Entretanto, pode-se contra argumentar que, se o perispírito transmite tanto sensações agradáveis quanto desagradáveis, o Espírito puro deveria ser insensível a ambas. Isso é verdadeiro no que diz respeito às impressões provenientes da matéria que conhecemos. Os sons dos nossos instrumentos e os perfumes das nossas flores não lhe causam impressão. No entanto, ele experimenta sensações íntimas de uma harmonia e beleza indescritíveis, das quais não podemos formar ideia, assim como um cego de nascença não pode conceber a luz.
 
 Sabemos que o Espírito percebe, sente, vê e ouve, e que essas faculdades são atributos do ser inteiro, e não de partes específicas, como no corpo humano. O modo como essas percepções ocorrem nos escapa, pois nossa linguagem não dispõe de meios para expressar ideias que não possuímos.
 
@@ -250,11 +250,11 @@ O estudo de inúmeros Espíritos, de todas as classes e condições, mostrou sem
 
 *— Sim. Ele próprio escolhe o tipo de provas pelas quais irá passar. É nisso que consiste o seu livre-arbítrio.*
 
-**— Então não é Deus quem impõe as dificuldades da vida como castigo?**
+**— Então não é Deus quem impõe as dificuldades da vida?**
 
 *— Nada acontece sem a permissão de Deus, pois foi Ele quem estabeleceu todas as leis que regem o universo. Perguntar por que Ele criou esta lei e não outra seria questionar a própria sabedoria divina. Ao conceder ao Espírito a liberdade de escolher, Deus lhe dá total responsabilidade por seus atos e pelas consequências deles. Nada bloqueia o seu futuro: tanto o caminho do bem quanto o do mal estão abertos.*
 
-*Se o Espírito vier a cair, permanece a consolação de que nem tudo está perdido e de que a bondade divina lhe concede a oportunidade de refazer o que foi mal conduzido. É importante distinguir o que resulta da vontade de Deus do que resulta da vontade humana. Se um perigo surge, não foste tu quem o criou, mas Deus. No entanto, foi tua a decisão de te expor a ele, por enxergá-lo como meio de progresso, e Deus o permitiu.*
+*Se o Espírito vier a cair, permanece a consolação de que nem tudo está perdido e de que a bondade divina lhe concede a oportunidade de refazer o que foi mal conduzido. É importante distinguir o que resulta da vontade de Deus do que resulta da vontade humana. Deus criou as leis que regem a vida, mas é tu quem escolhe, dentro delas, as provas que julgas necessárias ao teu progresso. Deus as permite, mas a escolha é tua*
 
 ### 259 — O fato de o Espírito escolher o tipo de provas que sofrerá significa que todas as dificuldades da vida foram previstas e escolhidas por ele?
 
@@ -288,7 +288,7 @@ O estudo de inúmeros Espíritos, de todas as classes e condições, mostrou sem
 
 ### 263 — O Espírito faz essa escolha logo após a morte?
 
-*— Não. Muitos permanecem por algum tempo presos à crença em penas eternas, o que, como já foi dito, constitui um castigo.*
+*— Não. Muitos permanecem por algum tempo presos à crença em penas eternas, o que constitui uma espécie de tormento.*
 
 ### 264 — O que orienta o Espírito na escolha das provas que deseja enfrentar?
 
@@ -322,7 +322,7 @@ O viajante que atravessa um vale profundo coberto por densa neblina não consegu
 
 ### 268 — Até alcançar a perfeição, o Espírito precisa passar constantemente por provas?
 
-*— Sim, mas não da forma como vocês entendem. O que chamam de provas são, em geral, sofrimentos materiais. Quando o Espírito se eleva, deixa de sofrer dessa maneira, embora continue sujeito a deveres que contribuem para seu aperfeiçoamento, como ajudar outros a progredir.*
+*— Sim, mas não da forma como costumam pensar. As provas não se limitam ao sofrimento material. À medida que o Espírito evolui, ele deixa de sofrer dessa maneira, mas continua assumindo responsabilidades e tarefas que contribuem para seu aperfeiçoamento, como ajudar outros Espíritos a progredir.*
 
 ### 269 — O Espírito pode enganar-se quanto à eficácia da prova que escolheu?
 
@@ -332,9 +332,9 @@ O viajante que atravessa um vale profundo coberto por densa neblina não consegu
 
 *— Isso decorre da escolha das provas e do progresso realizado em existências anteriores.*
 
-### 271 — Ao estudar, no estado espiritual, as condições de progresso, como o Espírito imagina alcançá-lo ao nascer, por exemplo, entre povos considerados selvagens?
+### Se, antes de reencarnar, o Espírito analisa os meios de progredir, por que às vezes escolhe nascer entre povos em estágios mais primitivos de desenvolvimento?
 
-*— Espíritos adiantados não nascem entre povos extremamente atrasados. Aqueles que ali encarnam possuem natureza semelhante ou ainda inferior.*
+*— Espíritos adiantados geralmente não nascem entre povos extremamente atrasados. Aqueles que ali encarnam possuem natureza semelhante ou ainda inferior. Entretanto, às vezes, Espíritos superiores podem encarnar nesses meios por missão, a fim de auxiliar e orientar os demais.*
 
 Existem mundos mais rudes do que a Terra, onde a brutalidade é maior. Para Espíritos desses mundos, nascer entre povos primitivos da Terra representa progresso. O avanço do Espírito é gradual; não se dá por saltos. É por isso que a reencarnação é necessária e justa.
 
@@ -342,16 +342,16 @@ Existem mundos mais rudes do que a Terra, onde a brutalidade é maior. Para Esp�
 
 *— Podem, mas alguns se perdem ao tentar subir rápido demais. Nesse caso, sentem-se deslocados, pois seus instintos entram em conflito com o meio em que vivem.*
 
-Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o lugar que lhes corresponde, podendo até se beneficiar disso.*
+Ao retornarem ao ambiente anterior, não sofrem prejuízo, apenas voltam ao lugar que lhe oferece a melhor oportunidade para se desenvolver.
 
 ### 273 — Um homem de sociedade civilizada pode reencarnar, como expiação, entre povos considerados selvagens?
 
-*— Pode, dependendo da natureza da expiação. Quem abusou do poder pode nascer em condição de submissão; quem foi cruel pode sofrer os mesmos maus-tratos que infligiu. Deus pode impor essas experiências como reparação. Um Espírito bom também pode escolher nascer entre povos primitivos, em posição de influência, para ajudá-los a progredir. Nesse caso, cumpre uma missão.*
+*— Pode, dependendo da natureza da expiação. Quem abusou do poder pode nascer em condição de submissão; quem foi cruel pode sofrer os mesmos maus-tratos que infligiu. Deus pode impor essas experiências como reparação.*
 
 ## As relações no além-túmulo
 ### 274 — A existência de diferentes ordens de Espíritos implica hierarquia e autoridade entre eles?
 
-*— Sim. Há uma hierarquia baseada no grau de elevação moral. A autoridade decorre de um ascendente moral natural.*
+*— Sim. Há uma hierarquia baseada no grau de elevação moral. Essa autoridade se exerce por uma influência moral irresistível.*
 
 **— Espíritos inferiores podem escapar dessa autoridade?**
 
@@ -377,7 +377,7 @@ Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o l
 
 *— Sim e não. Eles se veem, mas se distinguem uns dos outros. Aproximam-se ou se afastam conforme a simpatia ou a antipatia que despertam entre si, como acontece entre vocês. Formam um mundo do qual o de vocês é apenas um pálido reflexo. Os da mesma categoria se reúnem por uma espécie de afinidade e formam grupos ou famílias, unidos pela simpatia e pelos objetivos que perseguem: os bons, pelo desejo de fazer o bem; os maus, pelo desejo de fazer o mal, pela vergonha das próprias faltas e pela necessidade de estar entre semelhantes.*
 
-É como uma grande cidade, em que pessoas de todas as classes e condições se cruzam sem se confundir; em que as sociedades se formam pela afinidade de gostos; em que a virtude e o vício se afastam, sem trocar palavra.
+É como uma grande cidade, em que pessoas de todas as classes e condições se cruzam sem se confundir; em que as sociedades se formam pela afinidade de gostos; em que a virtude e o vício permanecem separados, sem se confundirem.
 
 ### 279 — Todos os Espíritos têm acesso a todos os grupos?
 
@@ -409,9 +409,9 @@ Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o l
 
 **— Como ocorre esse reconhecimento?**
 
-*— Vemos nossa vida passada e a lemos como em um livro. Vendo a de nossos amigos e de nossos inimigos, vemos também a passagem deles da vida corporal para a outra.*
+*— O reconhecimento acontece naturalmente. No estado espiritual, as lembranças tornam-se mais claras. Ao reencontrar outros Espíritos, recordamos quem são, o que vivemos juntos e o caminho que cada um percorreu ao longo das suas existências.*
 
-Os Espíritos também podem, quando necessário, se reconhecer pela aparência que tinham quando vivos. Ao Espírito que acaba de chegar, e ainda pouco familiarizado com seu novo estado, os Espíritos que o vêm receber apresentam-se sob uma forma que lhe permite reconhecê-los.
+Os Espíritos também podem, quando necessário, se reconhecer pela aparência que tinham quando vivos. Ao Espírito que acaba de chegar, e ainda pouco familiarizado com seu novo estado, os Espíritos que o recebem apresentam-se sob uma forma que ele consegue reconhecê-los.
 
 ### 286 — Ao deixar o corpo, a alma vê imediatamente parentes e amigos?
 
@@ -423,11 +423,11 @@ Os Espíritos também podem, quando necessário, se reconhecer pela aparência q
 
 ### 288 — Como os Espíritos imperfeitos reagem à chegada de outro Espírito semelhante?
 
-*— Sentem satisfação, como criminosos que se reencontram entre iguais.*
+*— Sentem satisfação, como criminosos que se reencontram.*
 
 ### 289 — Parentes e amigos vêm ao nosso encontro após a morte?
 
-*— Sim. Os Espíritos vão ao encontro de quem amam e a recebem como alguém que volta de uma viagem cheia de perigos. Ajudam nesse momento de separação do corpo. Para os bons, é um acolhimento cheio de graça. Já quem ainda carrega imperfeições fica isolado, ou entre Espíritos iguais a ele, e isso acaba sendo uma forma de punição.*
+*— Sim. Os Espíritos vão ao encontro de quem amam e os recebem como alguém que voltou de uma viagem cheia de perigos. Ajudam nesse momento de separação do corpo. Para os bons, é um acolhimento cheio de graça. Já quem ainda carrega imperfeições fica isolado, ou entre Espíritos iguais a ele.*
 
 ### 290 — Parentes e amigos permanecem sempre juntos após a morte?
 
@@ -445,7 +445,7 @@ Os Espíritos também podem, quando necessário, se reconhecer pela aparência q
 
 ### 293 — Dois seres que foram inimigos na Terra conservam ressentimento um pelo outro no mundo espiritual?
 
-*— Não. Eles compreendem que o ódio era absurdo e que os motivos que o geraram eram infantis. Apenas os Espíritos imperfeitos conservam certa animosidade, até que se purifiquem. Se o conflito teve origem apenas em interesses materiais, isso deixa de ter importância, desde que estejam minimamente desprendidos da matéria. Não havendo mais antipatia e desaparecida a causa da discórdia, aproximam-se com satisfação.*
+*— Não. Eles compreendem que o ódio era errado e que os motivos que o geraram eram infantis. Apenas os Espíritos imperfeitos conservam certa animosidade, até que se purifiquem. Se o conflito teve origem apenas em interesses materiais, isso deixa de ter importância, desde que estejam minimamente desprendidos da matéria. Não havendo mais antipatia e desaparecida a causa da discórdia, aproximam-se com satisfação.*
 
 Ocorre como entre dois colegas que, ao atingirem a maturidade, reconhecem a futilidade das brigas da infância e deixam de se hostilizar.
 
@@ -473,9 +473,9 @@ Ocorre como entre dois colegas que, ao atingirem a maturidade, reconhecem a futi
 
 *— Trata-se de uma expressão inexata. Se um Espírito fosse metade de outro, separados estariam ambos incompletos.*
 
-### 300 — Se dois Espíritos perfeitamente simpáticos se unem, permanecerão juntos para sempre ou podem se separar e unir-se a outros?
+### 300 — Quando dois Espíritos possuem perfeita simpatia entre si, essa ligação dura para sempre ou pode mudar com o tempo? 
 
-*— Todos os Espíritos estão interligados. Refiro-me aqui aos que alcançaram a perfeição. Nas esferas inferiores, quando um Espírito progride, deixa de simpatizar, como antes, com os que permanecem em níveis mais baixos.*
+*— Todos os Espíritos que alcançaram a perfeição são simpáticos entre si. Já nos planos menos evoluídos, a simpatia depende do grau de evolução. Assim, quando um Espírito progride, já não permanece em perfeita harmonia, como antes, com aqueles que ficaram menos adiantados.*
 
 ### 301 — Dois Espíritos simpáticos se completam mutuamente, ou essa simpatia resulta de identidade perfeita?
 
@@ -485,15 +485,15 @@ Ocorre como entre dois colegas que, ao atingirem a maturidade, reconhecem a futi
 
 *— Na igualdade dos graus de elevação.*
 
-### 303 — Espíritos que hoje não são simpáticos podem vir a sê-lo no futuro?
+### 303 — Espíritos que hoje não são simpáticos, podem ser no futuro?
 
-*— Todos acabarão sendo. Um Espírito que hoje está em esfera inferior ascenderá, pelo progresso, àquela onde se encontra outro Espírito. O reencontro pode ocorrer mais rapidamente se o mais elevado, ao enfrentar provas difíceis, permanecer estacionado.*
+*— Todos acabarão sendo. Aquele que hoje está em condição inferior poderá, pelo progresso, alcançar o mesmo nível de outro Espírito mais elevado e tornar-se simpático a ele. Isso pode acontecer mais rápido se o elevado permanecer estacionado diante de provas difíceis.*
 
-**— Dois Espíritos que hoje são simpáticos podem deixar de sê-lo?**
+**— Dois Espíritos que hoje são simpáticos, podem deixar de ser?**
 
-*— Sim, se um deles se mostrar negligente em seu progresso.*
+*— Sim, se um deles se mostrar negligente em seu progresso e evolução.*
 
-A chamada teoria das “metades eternas” é apenas uma figura de linguagem, representando a afinidade entre Espíritos simpáticos. Não deve ser tomada literalmente. Os Espíritos que utilizaram essa expressão não pertencem às ordens mais elevadas e recorreram a termos da linguagem humana para se fazer compreender. Não existem Espíritos criados exclusivamente uns para os outros, destinados a se reunirem fatalmente na eternidade após longas separações.
+A chamada teoria das “metades eternas” é apenas uma figura de linguagem, representando a afinidade entre Espíritos simpáticos. Não deve ser tomada literalmente. Os Espíritos que utilizaram essa expressão não pertencem às ordens mais elevadas e recorreram a termos da linguagem humana para se fazer compreender. Não existem Espíritos criados exclusivamente uns para os outros.
 
 
 ## Recordação da existência corporal
@@ -522,9 +522,7 @@ Assim como o adulto ri das imprudências da juventude ou das ingenuidades da inf
 
 ### 307 — De que forma a vida passada se apresenta à memória do Espírito?
 
-*— Ora como lembrança evocada pela vontade, ora como um quadro que se impõe à visão. Tudo depende do grau de desmaterialização. Quanto mais elevado, menos importância dá às coisas materiais.*
-
-*Por isso, Espíritos recém-desencarnados muitas vezes não se lembram de nomes ou detalhes que eram importantes para os vivos, pois essas coisas já perderam relevância. O que permanece claro são os fatos que contribuíram para seu progresso.*
+*— Como lembrança evocada pela vontade, ou como um quadro que se impõe à visão. Tudo depende do grau de desmaterialização. Quanto mais elevado, menos importância dá às coisas materiais. Por isso, Espíritos recém-desencarnados muitas vezes não se lembram de nomes ou detalhes que eram importantes para os vivos, pois essas coisas já perderam relevância. O que permanece claro são os fatos que contribuíram para seu progresso.*
 
 ### 308 — O Espírito se recorda de todas as existências anteriores?
 
@@ -572,7 +570,7 @@ Assim como o adulto não sente falta dos brinquedos da infância.
 
 *— Para os Espíritos elevados, a pátria é o universo. Na Terra, sentem-se ligados aos lugares onde estão os Espíritos com os quais têm maior afinidade.*
 
-Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que estejam em missão. Os Espíritos intermediários ainda frequentam este mundo com certa regularidade. Já os Espíritos comuns formam a maior parte da população espiritual terrestre, conservando gostos, hábitos e inclinações semelhantes aos que tinham quando encarnados. Muitos participam indiretamente das atividades humanas, incentivando paixões ou observando para aprender
+Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que estejam em missão. Os Espíritos intermediários ainda frequentam este mundo com certa regularidade. Já os Espíritos comuns formam a maior parte da população espiritual terrestre, conservando gostos, hábitos e inclinações semelhantes aos que tinham quando encarnados. Muitos participam indiretamente das atividades humanas, incentivando paixões ou observando para aprender.
 
 ### 318 — As ideias do Espírito se modificam durante a erraticidade?
 
@@ -586,10 +584,9 @@ Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que
 ## Comemoração dos mortos. Funerais
 ### 320 — Os Espíritos se sentem tocados quando aqueles que lhes foram queridos na Terra se lembram deles?
 
-*— Muito mais do que vocês imaginam. Se estão felizes, isso aumenta sua felicidade; se estão em sofrimento, serve como alívio.*
+*— Muito mais do que vocês imaginam. Se o Espírito lembrado está feliz, isso aumenta sua felicidade; se está em sofrimento, serve como alívio.*
 
-### 321 — O dia de comemoração dos mortos é, para os Espíritos, mais especial do que os outros dias?
-Eles comparecem aos cemitérios quando as pessoas vão orar sobre seus túmulos?
+### 321 — O dia de comemoração dos mortos é, para os Espíritos, mais especial do que os outros dias? Eles comparecem aos cemitérios quando as pessoas vão orar sobre seus túmulos?
 
 *— Os Espíritos atendem, nesse dia, ao chamado daqueles que lhes dirigem pensamentos, assim como o fazem em qualquer outro dia.*
 
@@ -635,8 +632,8 @@ Eles comparecem aos cemitérios quando as pessoas vão orar sobre seus túmulos?
 
 ### 328 — O Espírito daquele que acaba de morrer acompanha a reunião de seus herdeiros?
 
-*— Quase sempre. Para seu aprendizado e, às vezes, como correção aos culpados, Deus permite que isso aconteça. Nessa ocasião, o Espírito avalia o real valor das manifestações de afeto que recebia. Todos os sentimentos se tornam evidentes, e a decepção causada pela ganância daqueles que disputam seus bens o esclarece quanto à verdadeira natureza dessas relações. Mas chegará o momento daqueles que lhe causam essa decepção.*
+*— Quase sempre. Deus permite que o Espírito acompanhe esses acontecimentos para aprender e compreender melhor os sentimentos que realmente o cercavam. Nesse momento, as intenções de cada pessoa se tornam evidentes. A disputa pelos bens deixados e a ganância de alguns podem causar-lhe profunda decepção, revelando a verdadeira natureza dessas relações. Mas também chegará o momento em que aqueles que o decepcionaram responderão por seus atos.*
 
-### 329 — O respeito instintivo que, em todas as épocas e povos, o ser humano dedica aos mortos decorre da intuição da vida futura?
+### 329 — O respeito instintivo que todos os povos dedicam aos mortos decorre da intuição da vida futura?
 
 *— Sim. É a consequência natural dessa intuição. Se assim não fosse, esse respeito não teria razão de existir.*

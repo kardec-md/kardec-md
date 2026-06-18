@@ -31,7 +31,7 @@ A vida futura pressupõe a preservação da nossa individualidade após a morte.
 
 ### 962 — Como podem existir céticos, se a alma traz consigo o sentimento do mundo espiritual?
 
-*— Eles são menos numerosos do que parece. Muitos se fazem de fortes e incrédulos por orgulho. No momento da morte, porém, essa postura costuma desaparecer.*
+*— Eles são menos numerosos do que parece. Muitos se fazem de fortes e céticos por orgulho. No momento da morte, porém, essa postura costuma desaparecer.*
 
 A responsabilidade pelos nossos atos decorre diretamente da realidade da vida futura. A razão e a justiça nos dizem que não é possível confundir bons e maus na partilha da felicidade que todos desejam. Não seria justo que uns desfrutassem sem esforço do que outros só conquistam com trabalho e perseverança.
 

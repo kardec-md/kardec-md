@@ -11,7 +11,7 @@
 
 ### 331 — Todos os Espíritos se preocupam com a própria reencarnação?
 
-*— Muitos não pensam nisso, nem sequer compreendem plenamente o que seja. Isso depende do grau de adiantamento. Para alguns, a incerteza quanto ao futuro que os aguarda constitui uma forma de punição.*
+*— Muitos não pensam nisso, nem sequer compreendem plenamente o que seja. Isso depende do grau de adiantamento.*
 
 ### 332 — Pode o Espírito acelerar ou retardar o momento da reencarnação?
 
@@ -100,7 +100,7 @@ Assim como a morte do corpo é, para o Espírito, uma espécie de renascimento, 
 
 ### 350 — Uma vez unido ao corpo da criança, e não podendo mais voltar atrás, o Espírito alguma vez lamenta a escolha feita?
 
-*— Pergunta-se se, como ser humano, ele se queixa da vida que tem e desejaria outra diferente? Sim. Mas se ele se arrepende da escolha feita? Não, pois não tem consciência de tê-la feito. Após encarnar, não pode lamentar uma escolha da qual não se lembra. Pode, no entanto, achar a carga pesada demais e considerá-la acima de suas forças, recorrendo, em alguns casos, ao suicídio.*
+*— Queres saber se, como ser humano, ele se queixa da vida que tem e desejaria viver outra? Sim. Mas isso significa arrependimento pela escolha feita antes de nascer? Não, porque ele já não se lembra dessa escolha. Pode, porém, sentir que as dificuldades são maiores do que suas forças e, em alguns casos, recorrer ao suicídio.*
 
 ### 351 — Entre a concepção e o nascimento, o Espírito desfruta plenamente de suas faculdades?
 
@@ -126,7 +126,7 @@ Assim como a morte do corpo é, para o Espírito, uma espécie de renascimento, 
 
 *— Sim, há casos em que nenhum Espírito foi destinado àqueles corpos. Nada havia a ser realizado ali. Essas crianças existem apenas em função dos pais.*
 
-**— Um ser dessa natureza pode nascer a termo?**
+**— Um ser assim pode nascer com vida?**
 
 *— Algumas vezes, sim, mas não sobrevive.*
 

@@ -16,7 +16,7 @@
 
 ### 79 — Considerando que existem dois elementos gerais no universo — o elemento inteligente e o elemento material — pode-se dizer que os Espíritos são formados do elemento inteligente, assim como os corpos inertes o são do elemento material?
 
-*— Sim. Os Espíritos são a individualização do princípio inteligente, assim como os corpos são a individualização do princípio material. A época e o modo como isso ocorreu nos são desconhecidos.*
+*— Sim. Os Espíritos são a individualização do princípio inteligente, assim como os corpos são a individualização do princípio material. A época e o modo como isso ocorreu é que são desconhecidos.*
 
 ### 80 — A criação dos Espíritos é permanente ou ocorreu apenas na origem dos tempos?
 
@@ -113,7 +113,7 @@ Assim como o germe de um fruto é envolvido por uma película, o Espírito é en
 
 ### 95 — O envoltório semimaterial do Espírito tem forma definida e pode ser percebido?
 
-*— Sim. Ele assume a forma que o Espírito desejar. É assim que pode aparecer em sonhos ou em estado de vigília, podendo até se tornar visível e palpável.*
+*— Ele assume a forma que o Espírito desejar. É assim que pode aparecer em sonhos ou em estado de vigília, podendo até se tornar visível e palpável.*
 
 
 ## Diferentes ordens de Espíritos
@@ -128,7 +128,7 @@ Assim como o germe de um fruto é envolvido por uma película, o Espírito é en
 
 ### 98 — Os Espíritos da segunda ordem têm poder para praticar o bem?
 
-*— Sim, de acordo com o grau de perfeição alcançado. Alguns possuem ciência, outros sabedoria ou bondade. Todos, porém, ainda passam por provas.*
+*— Sim, de acordo com o grau de perfeição alcançado. Alguns possuem a ciência, outros a sabedoria ou a bondade. Todos, porém, ainda passam por provas.*
 
 ### 99 — Os Espíritos da terceira ordem são essencialmente maus?
 
@@ -143,7 +143,7 @@ De um grau a outro, a transição é gradual e quase imperceptível. Nos limites
 
 Qualquer que seja o sistema adotado, o conteúdo permanece o mesmo. É natural, portanto, que os Espíritos tenham divergido quanto ao número de categorias, sem que isso tenha qualquer consequência real. Alguns se prendem a essas divergências aparentes sem refletir que os Espíritos não dão importância ao que é meramente convencional. Para eles, o pensamento é essencial; a forma, os termos e as classificações ficam a cargo dos seres humanos.
 
-É importante não perder de vista que, entre os Espíritos, assim como entre os seres humanos, existem muitos que são ignorantes. Por isso, é preciso cautela ao supor que todo Espírito detenha conhecimento elevado. A classificação exige método, análise e compreensão profunda do assunto. No mundo espiritual, aqueles que possuem conhecimento limitado são tão incapazes de compreender um sistema geral quanto os ignorantes o são no mundo material.
+É importante não perder de vista que, entre os Espíritos, assim como entre os seres humanos, existem muitos que são ignorantes. Por isso, é preciso cautela ao supor que todo Espírito detenha conhecimento elevado. A classificação exige método, análise e compreensão profunda do assunto. No mundo espiritual, aqueles que possuem conhecimento limitado são tão incapazes de compreender um sistema geral como os ignorantes no mundo material.
 
 Muitos Espíritos, por não conseguirem perceber outros graus de saber, capacidade e moralidade, consideram como pertencentes à ordem mais elevada todos aqueles que lhes são diretamente superiores. Mesmo entre os que têm capacidade de análise, pode haver divergências de detalhes, conforme o ponto de vista adotado, especialmente quando se trata de uma divisão sem caráter absoluto.
 
@@ -151,7 +151,7 @@ Assim como Lineu, Jussieu e Tournefort propuseram métodos diferentes de classif
 
 De modo geral, os Espíritos reconhecem três grandes categorias. Na última, situada na parte inferior da escala, estão os Espíritos imperfeitos, caracterizados pela predominância da matéria sobre o espírito e pela inclinação ao mal. Na categoria intermediária estão os Espíritos bons, nos quais o espírito prevalece sobre a matéria e há desejo sincero do bem. Por fim, a categoria superior reúne os Espíritos puros, que atingiram o grau máximo de perfeição.
 
-Essa divisão se mostra lógica e bem delimitada. Restava apenas evidenciar, por meio de subdivisões, os principais matizes de cada conjunto. Foi o que se fez com o auxílio dos Espíritos, cujas orientações nunca faltaram.
+Essa divisão se mostra lógica e bem delimitada. Restava apenas evidenciar, por meio de subdivisões, as principais particularidades de cada conjunto. Foi o que se fez com o auxílio dos Espíritos, cujas orientações nunca faltaram.
 
 Esse quadro permite identificar facilmente o grau de superioridade ou inferioridade dos Espíritos com os quais se entra em contato e, consequentemente, o nível de confiança e consideração que merecem. Ele funciona como uma chave para o entendimento da ciência espírita, pois explica as diferenças e aparentes contradições nas comunicações, esclarecendo as desigualdades intelectuais e morais entre os Espíritos.
 
@@ -176,7 +176,7 @@ A linguagem revela o caráter. Todo Espírito que manifesta pensamentos negativo
 
 Eles veem a felicidade dos bons, e essa visão lhes causa sofrimento constante, despertando sentimentos de inveja e ciúme.
 
-Conservam a lembrança e a percepção dos sofrimentos da vida material, e essa impressão costuma ser ainda mais dolorosa do que a própria realidade vivida. Sofrem pelos males que suportaram e pelos que causaram aos outros. Como esse sofrimento se prolonga, acreditam que ele será eterno. Deus permite que pensem assim como forma de punição.
+Conservam a lembrança e a percepção dos sofrimentos da vida material, e essa impressão costuma ser ainda mais dolorosa do que a própria realidade vivida. Sofrem pelos males que suportaram e que causaram aos outros. Como esse sofrimento se prolonga, acreditam que ele será eterno. Deus permite essa impressão como parte do processo de aprendizado do Espírito.
 
 Podem ser divididos em cinco classes principais.
 
@@ -190,7 +190,7 @@ Manifestam-se pela linguagem. A vulgaridade e a grosseria, tanto nos Espíritos 
 
 Alguns povos os transformaram em divindades maléficas; outros os chamaram de demônios, maus gênios ou Espíritos do mal.
 
-Quando encarnados, os seres que eles animam tendem a todos os vícios gerados por paixões degradantes: sensualidade, crueldade, traição, hipocrisia, avareza e ganância. Praticam o mal por prazer, muitas vezes sem motivo, e, por ódio ao bem, escolhem frequentemente como vítimas pessoas honestas. São verdadeiros flagelos para a humanidade, independentemente da posição social que ocupem. O verniz da civilização não os livra da vergonha nem da desonra.
+Quando encarnados, os seres que eles animam tendem a todos os vícios gerados por paixões degradantes: sensualidade, crueldade, traição, hipocrisia, avareza e ganância. Praticam o mal por prazer, muitas vezes sem motivo, e, por ódio ao bem, escolhem frequentemente como vítimas pessoas honestas. São verdadeiros males para a humanidade, qualquer que seja sua posição social. O refinamento social não apaga a vergonha nem a desonra de seus atos.
 
 ### 103 — Nona classe — ESPÍRITOS LEVIANOS
 
@@ -204,7 +204,7 @@ Em suas comunicações, a linguagem pode ser espirituosa e divertida, mas quase 
 
 Possuem conhecimentos relativamente amplos, mas acreditam saber mais do que realmente sabem. Embora tenham feito algum progresso, sua linguagem aparenta seriedade e pode iludir quanto à profundidade de suas ideias.
 
-Na realidade, suas comunicações refletem preconceitos e sistemas de pensamento que cultivavam na vida material. Misturam algumas verdades com erros graves, permeados por presunção, orgulho, ciúme e teimosia, imperfeições das quais ainda não conseguiram se libertar.
+Na realidade, suas comunicações refletem preconceitos e sistemas de pensamento que cultivavam na vida material. Misturam algumas verdades com erros graves, contaminados por presunção, orgulho, ciúme e teimosia, imperfeições das quais ainda não conseguiram se libertar.
 
 ### 105 — Sétima classe — ESPÍRITOS NEUTROS
 
@@ -299,7 +299,7 @@ Os seres humanos podem entrar em comunicação com eles, mas seria extrema presu
 
 ### 119 — Deus não poderia isentar os Espíritos das provas necessárias para alcançar a primeira ordem?
 
-*— Se Deus os tivesse criado perfeitos, eles não teriam mérito algum em desfrutar dessa perfeição. Onde estaria o mérito sem esforço? Além disso, a diversidade entre eles é necessária à individualidade de cada Espírito. Soma-se a isso o fato de que as missões exercidas nos diferentes graus da escala fazem parte dos desígnios da Providência para a harmonia do universo.*
+*— Se Deus os tivesse criado perfeitos, eles não teriam mérito algum em desfrutar dessa perfeição. Onde estaria o mérito sem esforço? Além disso, a diversidade entre eles é necessária para a individualidade de cada Espírito. Soma-se a isso o fato de que as missões exercidas nos diferentes graus da escala fazem parte dos desígnios da Providência para a harmonia do universo.*
 
 Assim como, na vida social, todos podem aspirar às mais altas funções, pode-se perguntar por que o governante de um país não faz de todos os soldados generais, ou por que todos os alunos não se tornam mestres. A diferença é que a vida social é limitada e nem sempre permite que o ser humano percorra todos os seus degraus, enquanto a vida espiritual é ilimitada e oferece a todos a possibilidade de alcançar o grau supremo.
 

@@ -172,6 +172,6 @@ As ideias não mudam de forma repentina, mas lentamente. De geração em geraç�
 
 *— Não se ensina a uma criança o mesmo que a um adulto, nem se oferece a um recém-nascido um alimento que ele não possa digerir. Tudo tem seu tempo. Os Espíritos ensinaram muitas verdades no passado, mas os homens não estavam prontos para compreendê-las ou as distorceram. Esses ensinamentos prepararam o terreno para a compreensão atual.*
 
-### 802 — Se o Espiritismo representa um avanço da humanidade, por que os Espíritos não aceleram esse progresso por meio de manifestações evidentes, capazes de convencer até os mais incrédulos?
+### 802 — Se o Espiritismo representa um avanço da humanidade, por que os Espíritos não aceleram esse progresso por meio de manifestações evidentes, capazes de convencer até os mais céticos?
 
 *— Esperais milagres, mas Deus os espalha por toda parte, e ainda assim muitos o negam. Nem mesmo Cristo conseguiu convencer todos os seus contemporâneos com os prodígios que realizou. Ainda hoje há quem negue fatos evidentes. Não é por milagres que Deus quer conduzir o homem. Em sua bondade, Ele permite que a convicção venha pela razão, para que haja mérito em compreender.*

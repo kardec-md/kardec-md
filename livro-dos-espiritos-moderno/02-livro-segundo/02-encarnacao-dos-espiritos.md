@@ -6,7 +6,7 @@
 
 *— Deus impõe a encarnação para conduzir os Espíritos à perfeição. Para alguns, ela é expiação; para outros, missão. Mas, para alcançar essa perfeição, é necessário passar pelas experiências e dificuldades da vida corporal: é nisso que consiste a expiação. A encarnação também tem outro objetivo: colocar o Espírito em condições de participar da obra da criação. Para isso, em cada mundo, o Espírito assume um instrumento compatível com a matéria desse mundo, a fim de cumprir ali as leis divinas. Assim, ao mesmo tempo em que contribui para a obra geral, ele próprio progride.*
 
-A ação dos seres corpóreos é necessária à marcha do universo. Deus, porém, em sua sabedoria, quis que nessa mesma ação eles encontrassem um meio de evoluir e de se aproximar dele. Dessa forma, por uma admirável lei da Providência, tudo se encadeia, tudo é solidário na natureza.
+A ação dos seres corpóreos é necessária para a marcha do universo. Deus, porém, em sua sabedoria, quis que nessa mesma ação eles encontrassem um meio de evoluir e de se aproximar dele. Dessa forma, por uma admirável lei da Providência, tudo se encadeia, tudo é solidário na natureza.
 
 ### 133 — Os Espíritos que, desde o início, seguiram o caminho do bem também precisam encarnar?
 
@@ -51,7 +51,7 @@ O ser humano é, portanto, constituído de três partes essenciais:
 
 **— O corpo pode existir sem a alma?**
 
-*— Pode. No entanto, assim que a vida do corpo cessa, a alma o abandona. Antes do nascimento, ainda não há união definitiva entre a alma e o corpo; depois que essa união se estabelece, a morte rompe os laços que os ligavam, e a alma se separa do corpo. A vida orgânica pode animar um corpo sem alma, mas a alma não pode habitar um corpo privado de vida orgânica.*
+*— Pode. No entanto, assim que a vida do corpo cessa, a alma o abandona. Antes do nascimento, ainda não há união definitiva entre a alma e o corpo; só depois que essa união se estabelece. Na morte, rompem-se os laços que os ligavam, e a alma se separa do corpo. A vida orgânica pode animar um corpo sem alma, mas a alma não pode habitar um corpo privado de vida orgânica.*
 
 **— O que seria o nosso corpo sem a alma?**
 
@@ -85,11 +85,11 @@ A alma atua por intermédio dos órgãos, e os órgãos são animados pelo fluid
 
 ### 141 — Há algo de verdadeiro na ideia de que a alma é exterior ao corpo e o envolve?
 
-*— A alma não está encerrada no corpo como um pássaro numa gaiola. Ela irradia e se manifesta fora dele, assim como a luz atravessa um globo de vidro ou o som se propaga a partir de um centro. Nesse sentido, pode-se dizer que ela é exterior, sem que isso signifique que seja o envoltório do corpo. A alma possui dois envoltórios: um sutil e leve, o primeiro, chamado perispírito; e outro grosseiro, material e pesado, que é o corpo. A alma é o centro de todos esses envoltórios, como o gérmen dentro de um caroço.*
+*— A alma não está presa no corpo como um pássaro numa gaiola. Ela irradia e se manifesta fora dele, assim como a luz atravessa um globo de vidro ou o som se propaga a partir de um centro. Nesse sentido, pode-se dizer que ela é exterior, sem que isso signifique que seja o envoltório do corpo. A alma possui dois envoltórios: um sutil e leve, chamado perispírito; e outro grosseiro, material e pesado, que é o corpo. A alma é o centro de todos esses envoltórios, como o gérmen dentro de um caroço.*
 
 ### 142 — O que pensar da teoria segundo a qual a alma de uma criança se completa aos poucos, ao longo das fases da vida?
 
-*— O Espírito é uno e está completo tanto na criança quanto no adulto. O que se desenvolve e se aperfeiçoa são os órgãos, ou instrumentos, por meio dos quais a alma se manifesta. Mais uma vez, confundem-se o efeito com a causa.*
+*— O Espírito já está completo tanto na criança quanto no adulto. O que se desenvolve são os órgãos, ou instrumentos, por meio dos quais a alma se manifesta. Mais uma vez, confundem o efeito com a causa.*
 
 ### 143 — Por que todos os Espíritos não definem a alma da mesma forma?
 
@@ -103,7 +103,7 @@ A alma atua por intermédio dos órgãos, e os órgãos são animados pelo fluid
 
 *— Esses homens foram precursores da eterna doutrina espírita. Prepararam o caminho. Eram humanos e, como tais, puderam se enganar, tomando suas próprias ideias como verdade absoluta. Ainda assim, até seus erros serviram para destacar a verdade, ao mostrar o que aceitar e o que rejeitar. Além disso, entre esses equívocos há grandes verdades que um estudo comparativo permite compreender.*
 
-### 146 — A alma tem, no corpo, uma sede determinada e circunscrita?
+### 146 — A alma tem, no corpo, uma sede determinada e restrita?
 
 *— Não. Contudo, nos grandes pensadores, ela se manifesta mais particularmente na cabeça; e naqueles que sentem profundamente e cujas ações têm finalidade humanitária, manifesta-se mais no coração.*
 
@@ -114,15 +114,15 @@ A alma atua por intermédio dos órgãos, e os órgãos são animados pelo fluid
 
 ## Materialismo
 
-### 147 — Por que anatomistas, fisiologistas e, em geral, estudiosos das ciências naturais tendem com tanta frequência ao materialismo?
+### 147 — Por que anatomistas, fisiologistas e, em geral, estudiosos das ciências naturais acabam adotando ideias materialistas?
 
-*— Porque o fisiologista tende a explicar tudo a partir do que vê. Soma-se a isso o orgulho humano, que leva muitos a acreditar que sabem tudo e a negar qualquer coisa que esteja além de sua compreensão. A própria ciência que cultivam os enche de presunção e os faz crer que a natureza nada lhes pode ocultar.*
+*— Porque costumam basear suas conclusões apenas naquilo que conseguem observar diretamente. Soma-se a isso o orgulho humano, que leva muitos a acreditar que sabem tudo e a negar qualquer coisa que esteja além de sua compreensão. A sua própria ciência os enche de arrogância e os faz pensar que a natureza não guarda mais nenhum mistério.*
 
 ### 148 — É lamentável que o materialismo seja consequência de estudos que deveriam revelar ao ser humano a superioridade da inteligência que governa o mundo? Deve-se concluir que esses estudos são perigosos?
 
 *— Não é correto afirmar que o materialismo seja consequência direta desses estudos. O ser humano é que tira deles uma conclusão equivocada, pois lhe é dado abusar de tudo, até das melhores coisas. Além disso, o nada os assusta mais do que gostariam de admitir, e os que se dizem fortes, muitas vezes, são mais fanfarrões do que corajosos. Na maioria dos casos, são materialistas porque não sabem como preencher o vazio que se abre diante deles. Mostrem-lhes uma âncora de salvação, e eles se agarrarão a ela prontamente.*
 
-Por um desvio da inteligência, há pessoas que veem nos seres orgânicos apenas a ação da matéria e atribuem a ela todos os nossos atos. No corpo humano, enxergam apenas uma máquina; observam o mecanismo da vida apenas pelo funcionamento dos órgãos e, ao verem esse funcionamento cessar com a ruptura de um elo, concluem que nada mais existe além da matéria inerte. Como não veem a alma escapar, nem conseguem capturá-la, concluem que tudo se resume às propriedades da matéria e que, com a morte, o pensamento se extingue.
+Há pessoas que veem nos seres orgânicos apenas a ação da matéria e atribuem a ela todos os nossos atos. No corpo humano, enxergam apenas uma máquina; observam o mecanismo da vida apenas pelo funcionamento dos órgãos e, ao verem esse funcionamento cessar com a ruptura de um elo, concluem que nada mais existe além da matéria inerte. Como não veem a alma escapar, nem conseguem capturá-la, concluem que tudo se resume às propriedades da matéria e que, com a morte, o pensamento se extingue.
 
 Se isso fosse verdade, o bem e o mal não teriam sentido; o ser humano teria razão para pensar apenas em si mesmo e colocar acima de tudo a satisfação de seus desejos materiais. Os laços sociais se romperiam, e os sentimentos mais nobres desapareceriam. Felizmente, essas ideias estão longe de ser universais e permanecem restritas a opiniões individuais, pois nunca formaram uma doutrina dominante. Uma sociedade fundada sobre tais princípios traria em si o germe da própria dissolução, e seus membros acabariam se destruindo como animais selvagens.
 
@@ -134,5 +134,4 @@ Diz-se também que a alma é imaterial. Mas algo imaterial não tem forma defini
 
 Diz-se que ninguém jamais voltou de lá para nos informar. Isso não é verdade. A missão do Espiritismo é justamente esclarecer esse futuro, permitir que, até certo ponto, ele seja compreendido não apenas pelo raciocínio, mas também pelos fatos. Graças às comunicações espíritas, o futuro deixa de ser mera suposição. São os próprios Espíritos que descrevem sua situação, relatam o que fazem e nos permitem acompanhar, por assim dizer, os acontecimentos da nova vida que vivem. Assim, torna-se clara a sorte que aguarda cada um, conforme seus méritos e deméritos.
 
-Há nisso algo de antirreligioso? Pelo contrário. Os incrédulos encontram aí o caminho da fé, e os indiferentes reencontram o fervor e a confiança. O Espiritismo é, portanto, um poderoso aliado da religião. Se existe, é porque Deus o permite, para fortalecer esperanças vacilantes e reconduzir o ser humano ao caminho do bem, pela perspectiva do futuro.
-
+Há nisso algo de antirreligioso? Pelo contrário. Os céticos encontram aí o caminho da fé, e os indiferentes reencontram o fervor e a confiança. O Espiritismo é, portanto, um poderoso aliado da religião. Se existe, é porque Deus o permite, para fortalecer esperanças vacilantes e reconduzir o ser humano ao caminho do bem, pela perspectiva do futuro.

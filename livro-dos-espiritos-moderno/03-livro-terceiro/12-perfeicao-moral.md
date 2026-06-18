@@ -31,7 +31,7 @@
 
 **— Não é preciso distinguir entre o bem que fazemos ao próximo e o esforço de corrigir nossos próprios defeitos? Fazer o bem esperando recompensa futura pode ser pouco meritório, mas melhorar a si mesmo, vencer paixões e corrigir o caráter para se aproximar dos Espíritos bons também seria sinal de inferioridade?**
 
-*— Não. Quando falamos em fazer o bem, referimo-nos à caridade. Age com egoísmo quem calcula o retorno de cada boa ação, seja nesta vida ou na outra. Mas não há egoísmo algum em querer melhorar-se para se aproximar de Deus, pois esse é o objetivo ao qual todos devem aspirar.*
+*— Não. Quando falamos em fazer o bem, nós falamos de caridade. Age com egoísmo quem calcula o retorno de cada boa ação, seja nesta vida ou na outra. Mas não há egoísmo algum em querer melhorar-se para se aproximar de Deus, pois esse é o objetivo ao qual todos devem aspirar.*
 
 ### 898 — Sendo a vida material apenas uma passagem e devendo o futuro ser nossa principal preocupação, é útil adquirir conhecimentos científicos ligados apenas às necessidades materiais?
 

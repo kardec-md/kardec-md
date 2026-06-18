@@ -18,7 +18,7 @@ Os seres orgânicos são aqueles que possuem em si uma fonte de atividade intern
 
 ### 63 — O princípio vital reside em algum agente específico ou é apenas uma propriedade da matéria organizada? Em outras palavras, é efeito ou causa?
 
-*— É, ao mesmo tempo, causa e efeito. A vida é um efeito produzido pela ação de um agente sobre a matéria. Esse agente, sem a matéria, não é vida, assim como a matéria não pode viver sem esse agente. Ele dá vida a todos os seres que o absorvem e assimilam.*
+*— É, ao mesmo tempo, causa e efeito. A vida é um efeito produzido pela ação de um agente sobre a matéria. Esse agente, sem a matéria, não é vida, assim como a matéria não pode viver sem esse agente. Ele dá vida a todos os seres que o absorvem e o assimilam.*
 
 ### 64 — Vimos que o espírito e a matéria são dois elementos constitutivos do universo. O princípio vital seria um terceiro?
 

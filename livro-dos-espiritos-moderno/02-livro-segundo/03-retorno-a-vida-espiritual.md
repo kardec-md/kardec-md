@@ -83,7 +83,7 @@ Em casos excepcionais, ligados a certos modos de vida e de morte, essa afinidade
 
 ### 160 — O Espírito reencontra imediatamente aqueles que conheceu na Terra e que morreram antes?
 
-*— Sim, conforme o grau de afeto mútuo. Muitas vezes esses Espíritos vêm recebê-lo e auxiliá-lo no desligamento da matéria. Ele também reencontra pessoas que conheceu e perdeu de vista durante a vida terrena, vê os Espíritos errantes e pode visitar os que ainda estão encarnados.*
+*— Sim, conforme o grau de afeto mútuo. Muitas vezes esses Espíritos vêm recebê-lo e auxiliá-lo no desligamento da matéria. Ele também reencontra pessoas que conheceu e perdeu de vista durante a vida terrena, vê os Espíritos errantes e também pode visitar os que ainda estão encarnados.*
 
 ### 161 — Em mortes violentas ou acidentais, a separação da alma e a cessação da vida ocorrem ao mesmo tempo?
 
@@ -112,7 +112,7 @@ Aqui se fala da consciência humana, ligada aos órgãos, e não da consciência
 
 Após a morte, tudo é confuso no início. A alma precisa de um tempo para se reconhecer, como alguém que desperta de um sono profundo. A lucidez retorna à medida que a influência da matéria se dissipa e a névoa mental se desfaz.
 
-A duração dessa perturbação varia enormemente: pode durar horas, meses ou até anos. Aqueles que, ainda em vida, se prepararam para o estado futuro são os que menos a experimentam.
+A duração dessa perturbação varia enormemente: pode durar horas, meses ou até anos. Aqueles que, ainda em vida, se prepararam para o estado futuro são os que menos experimentam essa perturbação.
 
 Em casos de morte violenta, como suicídio, acidentes ou ferimentos graves, o Espírito muitas vezes não percebe que morreu. Ele vê o próprio corpo, o reconhece, mas não entende o que aconteceu. Aproxima-se das pessoas que ama, tenta falar com elas e não compreende por que não é ouvido. Essa confusão pode continuar até que o desprendimento do perispírito se complete. Só então ele se dá conta da própria condição e entende que já não faz parte do mundo dos vivos.
 
