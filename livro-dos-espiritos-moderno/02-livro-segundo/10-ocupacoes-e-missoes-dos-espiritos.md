@@ -10,7 +10,7 @@
 
 ### 560 — Cada Espírito possui atribuições específicas?
 
-*— Todos precisam passar por todas as regiões e adquirir conhecimento sobre tudo, participando sucessivamente das tarefas que se realizam nos diversos pontos do universo. Como diz o Eclesiastes, há um tempo para cada coisa. Assim, um Espírito cumpre hoje sua função neste mundo; outro já a cumpriu ou ainda a cumprirá em outro tempo, seja na Terra, na água, no ar ou em outros meios.*
+*— Todos precisam passar por todas as regiões e adquirir conhecimento sobre tudo, participando sucessivamente das tarefas que se realizam nos diversos pontos do universo. Como diz o Eclesiastes, há um tempo para cada coisa. Assim, um Espírito cumpre hoje sua função neste mundo; outro já a cumpriu ou ainda a cumprirá em outro tempo, seja no solo, na água, no ar ou em outros meios.*
 
 ### 561 — As funções dos Espíritos são permanentes e exclusivas de certas classes?
 
@@ -46,9 +46,9 @@ Falamos aqui dos Espíritos que já têm consciência de si e livre-arbítrio. E
 
 ### 566 — Um Espírito que foi artista na Terra continua interessado nessa arte após a morte?
 
-*— Tudo converge para um objetivo maior. Se for um Espírito elevado, esse interesse existe apenas na medida em que a arte possa ajudar na elevação espiritual. Além disso, um Espírito que foi artista em uma vida pode ter desenvolvido outra habilidade em existência anterior, pois precisa conhecer tudo para se tornar perfeito.*
+*— Tudo converge para um objetivo maior. Se for um Espírito elevado, esse interesse existe apenas na medida em que a arte possa ajudar na elevação espiritual. Além disso, um Espírito que foi artista em uma vida pode ter desenvolvido outra habilidade em existência anterior, pois precisa ampliar continuamente seus conhecimentos para se tornar perfeito.*
 
-O que vocês consideram sublime em um mundo ainda atrasado pode parecer infantil a Espíritos de mundos mais avançados. Como esperar que admirem obras que, para eles, equivalem a exercícios escolares? Por isso dizemos que eles se interessam apenas pelo que representa progresso real.
+*O que vocês consideram sublime em um mundo ainda atrasado pode parecer infantil a Espíritos de mundos mais avançados. Como esperar que admirem obras que, para eles, equivalem a exercícios escolares? Por isso dizemos que eles se interessam apenas pelo que representa progresso real.*
 
 **— E os Espíritos menos adiantados?**
 
@@ -66,13 +66,13 @@ Os Espíritos se interessam pelas coisas do mundo conforme seu grau de elevaçã
 
 ### 569 — Em que consistem as missões dos Espíritos errantes?
 
-*— São tão variadas que não podem ser descritas por completo, e muitas estão além da compreensão humana. Os Espíritos executam a vontade de Deus, cujos desígnios nem sempre nos é dado conhecer.*
+*— São tão variadas que não podem ser descritas por completo, e muitas estão além da compreensão humana. Os Espíritos executam a vontade de Deus, cujos desígnios nem sempre conhecemos.*
 
 Todas as missões têm como objetivo o bem. Seja como Espíritos, seja como seres humanos, eles trabalham pelo progresso da humanidade, dos povos ou dos indivíduos, preparando acontecimentos, orientando processos e zelando por sua execução.
 
 Alguns têm missões amplas; outros, tarefas mais restritas, como assistir enfermos, agonizantes e aflitos, proteger aqueles de quem se tornam guias, aconselhá-los ou inspirar bons pensamentos.
 
-Há tantos tipos de missão quantos são os interesses a preservar, tanto no plano físico quanto no moral. O Espírito progride conforme a maneira como desempenha sua tarefa.
+Existem missões das mais diversas naturezas, voltadas tanto às necessidades materiais quanto às morais. Ao cumprir essas tarefas com dedicação e fidelidade, o Espírito também promove o seu próprio aperfeiçoamento.
 
 ### 570 — Os Espíritos têm sempre consciência da missão que cumprem?
 
@@ -124,7 +124,7 @@ Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espírit
 
 **— Quais as consequências dessa falha?**
 
-*— Terá de retomar a tarefa. Essa é sua punição, além de responder pelo mal que causou.*
+*— Precisará retomar a missão que não cumpriu adequadamente; essa já é, por si só, uma consequência dolorosa. Além disso, responderá pelos prejuízos e pelos males decorrentes de sua falha.*
 
 ### 579 — Se Deus confia missões importantes, como pode confiá-las a Espíritos que podem falhar?
 
@@ -136,7 +136,7 @@ Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espírit
 
 ### 581 — Como entender a missão de homens geniais que misturam grandes verdades com grandes erros?
 
-*— A missão foi deturpada por eles mesmos. Estão aquém da tarefa que assumiram. Ainda assim, é preciso considerar a época em que viveram. Um ensinamento que hoje parece equivocado pode ter sido adequado ao tempo em que foi transmitido.*
+*— A missão foi deturpada por eles mesmos. Ainda não estão à altura da tarefa que assumiram. Ainda assim, é preciso considerar a época em que viveram. Um ensinamento que hoje parece equivocado pode ter sido adequado ao tempo em que foi transmitido.*
 
 ### 582 — A paternidade pode ser considerada uma missão?
 
@@ -159,8 +159,6 @@ Se o filho se perde por negligência dos pais, eles responderão por isso, compa
 **— Ele se beneficia do bem que resulta dessas calamidades?**
 
 *— Cada um é recompensado de acordo com suas intenções e com o bem que realmente desejou fazer.*
-
----
 
 Os Espíritos encarnados têm ocupações próprias da vida material. No estado espiritual, suas atividades correspondem ao grau de adiantamento alcançado.
 

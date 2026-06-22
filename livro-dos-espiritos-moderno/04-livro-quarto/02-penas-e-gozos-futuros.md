@@ -21,7 +21,7 @@ A vida futura pressupõe a preservação da nossa individualidade após a morte.
 
 
 ## Intuição das penas e gozos futuros
-### 960 — De onde nasce a crença, comum a todos os povos, na existência de punições e recompensas após a morte?
+### 960 — De onde nasce a crença, comum a todos os povos, na existência de penas e recompensas após a morte?
 
 *— Da mesma origem de sempre: o pressentimento da realidade, trazido pelo Espírito encarnado. Saibam que essa voz interior não fala em vão. O erro está em não lhe darem atenção suficiente. Se refletissem mais sobre isso, seriam pessoas melhores.*
 
@@ -45,7 +45,7 @@ A ideia que fazemos da justiça e da bondade de Deus não permite acreditar que 
 
 ### 964 — Mas Deus precisa observar cada um dos nossos atos para nos recompensar ou punir? Muitos deles não seriam irrelevantes para Ele?
 
-*— Deus estabeleceu leis que regem todas as ações humanas. Quando essas leis são violadas, a responsabilidade é nossa. Deus não julga dizendo: “Você fez isso, será punido”. Ele fixa limites. As doenças e, muitas vezes, a própria morte são consequências naturais dos excessos. Essa é a punição: o resultado da infração da lei. E isso vale para tudo.*
+*— Deus estabeleceu leis que regem todas as ações humanas. Quando essas leis são violadas, a responsabilidade é nossa. Deus não julga dizendo: “Você fez isso, será punido”. Ele fixa limites. As doenças e, muitas vezes, a própria morte são consequências naturais dos excessos. Essa é a "punição": a consequência natural da infração da lei. E isso vale para tudo.*
 
 Todas as nossas ações estão submetidas às leis divinas. Nenhuma é tão pequena que não possa representar uma violação dessas leis. Quando sofremos as consequências, somos nós mesmos os responsáveis, pois assim construímos nossa felicidade ou infelicidade futura.
 
@@ -107,11 +107,11 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 ### 973 — Quais são os maiores sofrimentos dos Espíritos maus?
 
-*— Não há palavras capazes de descrever plenamente as torturas morais que punem certos crimes. Mesmo o Espírito que as sofre teria dificuldade em explicá-las. Mas a mais terrível delas é a certeza de estar condenado sem possibilidade imediata de reparação.*
+*— Não há palavras capazes de descrever plenamente as torturas morais que acompanham certos crimes. Mesmo o Espírito que as sofre teria dificuldade em explicá-las. Mas a mais terrível delas é a certeza de estar condenado sem possibilidade imediata de reparação.*
 
-A ideia que o ser humano faz das penas e alegrias após a morte depende do seu grau de entendimento. Quanto mais se desenvolve intelectualmente, mais essa ideia se depura e se afasta das imagens materiais. Passa a compreender de forma mais racional, sem tomar ao pé da letra figuras simbólicas. Sabendo que a alma é espiritual, a razão entende que ela não pode sofrer como o corpo sofre, mas isso não significa que esteja isenta de dor ou de punição (237).
+A ideia que o ser humano faz das penas e alegrias após a morte depende do seu grau de entendimento. Quanto mais se desenvolve intelectualmente, mais essa ideia se depura e se afasta das imagens materiais. Passa a compreender de forma mais racional, sem tomar ao pé da letra figuras simbólicas. Sabendo que a alma é espiritual, a razão entende que ela não pode sofrer como o corpo sofre, mas isso não significa que esteja isenta de dor ou de consequências (237).
 
-As comunicações espíritas mostram o estado futuro da alma não como teoria, mas como realidade. Revelam as experiências da vida além da morte como consequências diretas e lógicas da vida terrena. Mesmo sem os exageros fantasiosos da imaginação humana, essas consequências continuam sendo dolorosas para quem fez mau uso de suas faculdades. Em síntese: cada um é punido pelo tipo de falta que cometeu. Uns sofrem ao ver continuamente o mal que causaram; outros, pelo remorso, pela vergonha, pelo medo, pela solidão, pelas trevas interiores, pela separação dos entes queridos, e assim por diante.
+As comunicações espíritas mostram o estado futuro da alma não como teoria, mas como realidade. Revelam as experiências da vida além da morte como consequências diretas e lógicas da vida terrena. Mesmo sem os exageros fantasiosos da imaginação humana, essas consequências continuam sendo dolorosas para quem fez mau uso de suas faculdades. Em síntese: cada um é responsável pelo tipo de falta que cometeu. Uns sofrem ao ver continuamente o mal que causaram; outros, pelo remorso, pela vergonha, pelo medo, pela solidão, pelas trevas interiores, pela separação dos entes queridos, e assim por diante.
 
 ### 974 — De onde vem a doutrina do fogo eterno?
 
@@ -185,7 +185,7 @@ A crença no Espiritismo ajuda o ser humano a se melhorar, esclarecendo ideias s
 
 *Quem se julga feliz na Terra apenas por satisfazer seus desejos é, em geral, quem menos se esforça para se melhorar. Muitas vezes, começa a expiar esses prazeres ainda nesta vida, mas certamente continuará a fazê-lo em outra existência igualmente material.*
 
-### 984 — As dificuldades da vida são sempre punição por faltas cometidas nesta mesma existência?
+### 984 — As dificuldades da vida são sempre consequências de faltas cometidas nesta mesma existência?
 
 *— Não. Muitas vezes são provas impostas por Deus ou escolhidas pelo próprio Espírito antes de reencarnar, para expiar faltas de vidas anteriores. Nenhuma infração às leis divinas fica sem consequência, especialmente à lei de justiça. Se não houver reparação nesta vida, ela ocorrerá em outra. É por isso que alguém aparentemente justo pode sofrer: trata-se do ajuste de seu passado (393).*
 

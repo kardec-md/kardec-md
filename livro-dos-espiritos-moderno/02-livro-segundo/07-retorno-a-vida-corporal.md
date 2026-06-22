@@ -63,7 +63,7 @@ Assim como a morte do corpo é, para o Espírito, uma espécie de renascimento, 
 
 ### 342 — No momento de reencarnar, o Espírito é acompanhado por Espíritos amigos, que assistem à sua partida do mundo espiritual, assim como o recebem quando ele retorna?
 
-*— Isso depende da esfera a que pertença. Se já se encontra em regiões onde reina a afeição, os Espíritos que o amam o acompanham até o último instante, encorajam-no e, muitas vezes, seguem seus passos ao longo da vida.*
+*— Isso depende da esfera que pertence. Se já se encontra em regiões onde reina a afeição, os Espíritos que o amam o acompanham até o último instante, encorajam-no e, muitas vezes, seguem seus passos ao longo da vida.*
 
 ### 343 — Os Espíritos amigos que nos acompanham durante a vida seriam aqueles que vemos em sonhos, que nos demonstram afeto e se apresentam com semblantes desconhecidos?
 
@@ -210,7 +210,7 @@ Pode-se também comparar a ação da matéria grosseira sobre o Espírito à de 
 
 **— Deve-se concluir, então, que a diversidade de aptidões entre as pessoas deriva apenas do estado do Espírito?**
 
-*— A palavra apenas não expressa com exatidão a realidade. A origem dessa diversidade está, de fato, nas qualidades do Espírito, que pode ser mais ou menos adiantado. No entanto, é preciso considerar também a influência da matéria, que pode limitar em maior ou menor grau o exercício dessas faculdades.*
+*— A palavra "apenas" não expressa com exatidão a realidade. A origem dessa diversidade está, de fato, nas qualidades do Espírito, que pode ser mais ou menos adiantado. No entanto, é preciso considerar também a influência da matéria, que pode limitar em maior ou menor grau o exercício dessas faculdades.*
 
 *Ao encarnar, o Espírito traz certas predisposições. Se admitirmos que a cada uma delas corresponda um órgão cerebral específico, o desenvolvimento desses órgãos será consequência, e não causa. Se os órgãos fossem a origem das faculdades, o ser humano seria apenas uma máquina, sem livre-arbítrio e sem responsabilidade moral.*
 
@@ -224,13 +224,13 @@ Pode-se também comparar a ação da matéria grosseira sobre o Espírito à de 
 
 
 ## Idiotismo, loucura
-### 371 — Tem algum fundamento a ideia de que a alma dos cretinos e dos idiotas seja de natureza inferior?
+### 371 — Tem algum fundamento a ideia de que a alma dos idiotas seja de natureza inferior?
 
 *— Nenhum. Eles possuem almas humanas, muitas vezes mais inteligentes do que se imagina, mas sofrem pela limitação dos meios de que dispõem para se expressar, assim como o mudo sofre por não poder falar.*
 
-### 372 — Que objetivo tem a Providência ao criar seres infelizes, como os cretinos e os idiotas?
+### 372 — Que objetivo tem a Providência ao criar seres infelizes, como os idiotas?
 
-*— Os Espíritos que habitam corpos de idiotas estão submetidos a uma punição. Sofrem pelo constrangimento que experimentam e pela impossibilidade de se manifestarem por meio de órgãos não desenvolvidos ou comprometidos.*
+*— Os Espíritos que habitam corpos de idiotas estão submetidos a uma expiação. Sofrem pelo constrangimento que experimentam e pela impossibilidade de se manifestarem por meio de órgãos não desenvolvidos ou comprometidos.*
 
 **— Não há, então, fundamento para dizer que os órgãos não influenciam as faculdades?**
 
@@ -238,7 +238,7 @@ Pode-se também comparar a ação da matéria grosseira sobre o Espírito à de 
 
 É importante distinguir o estado normal do estado patológico. No primeiro, o moral supera os obstáculos impostos pela matéria. No segundo, a matéria oferece tal resistência que as manifestações da alma ficam bloqueadas ou distorcidas, como ocorre no idiotismo e na loucura. São estados patológicos e, como nesses casos a alma não dispõe de plena liberdade, a própria lei humana isenta essas pessoas da responsabilidade por seus atos.
 
-### 373 — Qual é o mérito da existência de seres que, como os cretinos e os idiotas, não podendo fazer o bem nem o mal, parecem incapazes de progredir?
+### 373 — Qual é o mérito da existência de seres que, como os idiotas, não podendo fazer o bem nem o mal, parecem incapazes de progredir?
 
 *— Trata-se de uma expiação decorrente do abuso de certas faculdades em existências anteriores. É um estado temporário de estacionamento.*
 
@@ -246,7 +246,7 @@ Pode-se também comparar a ação da matéria grosseira sobre o Espírito à de 
 
 *— Sim. A genialidade, quando mal utilizada, pode transformar-se em um fardo.*
 
-A superioridade moral nem sempre acompanha a superioridade intelectual. Grandes gênios podem ter muito a expiar. Daí, muitas vezes, resultarem existências inferiores às que tiveram antes, cheias de sofrimento. As dificuldades que o Espírito encontra para se manifestar podem ser comparadas às correntes que imobilizam um homem forte. Pode-se dizer que os cretinos e os idiotas são mutilados do cérebro, assim como o coxo o é das pernas e o cego da visão.
+A superioridade moral nem sempre acompanha a superioridade intelectual. Grandes gênios podem ter muito a expiar. Daí, muitas vezes, resultarem existências inferiores às que tiveram antes, cheias de sofrimento. As dificuldades que o Espírito encontra para se manifestar podem ser comparadas às correntes que imobilizam um homem forte. Pode-se dizer que os idiotas são mutilados do cérebro, assim como o coxo o é das pernas e o cego da visão.
 
 ### 374 — No estado de Espírito livre, o idiota tem consciência de sua condição mental?
 
@@ -266,7 +266,7 @@ A superioridade moral nem sempre acompanha a superioridade intelectual. Grandes 
 
 ### 377 — Após a morte, o Espírito do alienado ainda sente os efeitos da perturbação mental?
 
-*— Pode senti-los por algum tempo, até que se desligue completamente da matéria, assim como alguém que desperta ainda se ressente, por instantes, da confusão provocada pelo sono.*
+*— Pode senti-los por algum tempo, até que se desligue completamente da matéria, assim como alguém que desperta ainda se ressente, por instantes, a confusão provocada pelo sono.*
 
 ### 378 — De que modo a alteração do cérebro repercute sobre o Espírito após a morte?
 
@@ -345,16 +345,16 @@ A observação confirma isso: os sonhos infantis têm caráter simples e pueril,
 
 ### 391 — A antipatia entre duas pessoas surge primeiro na que é pior ou na que é melhor?
 
-*— Pode surgir em ambas, mas por razões diferentes. O Espírito mau sente antipatia por quem pode desmascará-lo e julgá-lo. O Espírito bom sente repulsão pelo mau por saber que não será compreendido por ele. Contudo, o primeiro transforma esse sentimento em ódio e desejo de fazer o mal; o segundo limita-se a evitar o outro e a lastimá-lo.*
+*— Pode surgir em ambas, mas por razões diferentes. O Espírito mau sente antipatia por aqueles que expõem suas imperfeições ou não compartilham de suas inclinações. O Espírito bom, por sua vez, afasta-se do mau porque percebe que não encontrará nele compreensão nem afinidade. A diferença é que o mau converte essa antipatia em ódio e maldade, enquanto o bom apenas se afasta e lamenta que o outro ainda permaneça preso ao erro.*
 
 ## Esquecimento do passado
 ### 392 — Por que o Espírito encarnado perde a lembrança de seu passado?
 
-*— Porque o ser humano não pode, nem deve, saber tudo. Deus assim o quer em sua sabedoria. Sem o véu que oculta certas coisas, ele ficaria ofuscado, como alguém que sai bruscamente da escuridão para a luz. Esquecendo o passado, ele é mais plenamente ele mesmo.*
+*— Porque o ser humano não pode, nem deve, saber tudo. Deus quis assim em sua sabedoria. Sem o véu que oculta certas coisas, ele ficaria ofuscado, como alguém que sai bruscamente da escuridão para a luz. Esquecendo o passado, ele é mais plenamente ele mesmo.*
 
 ### 393 — Como pode o ser humano ser responsável por atos e reparar faltas de que não se lembra? Como pode aproveitar a experiência de vidas que esqueceu? Pensamos que as provas da vida lhe serviriam de lição se ele se lembrasse do que as causou. Como, porém, não se lembra, cada existência é, para ele, como se fosse a primeira, e ele está sempre recomeçando. Como conciliar isso com a justiça de Deus?
 
-*— Em cada nova existência, o ser humano dispõe de mais inteligência e distingue melhor o bem do mal. Onde estaria seu mérito se se lembrasse de todo o passado? Quando o Espírito retorna à vida primitiva (a vida espiritual), toda a sua vida passada se desdobra diante dele. Vê as faltas que cometeu, as causas de seu sofrimento e o modo como teria podido evitá-las. Reconhece a justiça da sua situação e busca uma existência capaz de reparar a anterior. Pede provas análogas àquelas de que não soube aproveitar, ou as lutas que considera adequadas ao seu progresso, e recorre a Espíritos superiores para que o auxiliem nessa nova empreitada, sabendo que o Espírito que lhe servirá de guia se esforçará para conduzi-lo a reparar as faltas, dando-lhe uma espécie de intuição daquelas em que incorreu. Essa intuição é o pensamento, o desejo criminoso que muitas vezes assalta vocês, e ao qual instintivamente resistem, atribuindo, na maioria das vezes, essa resistência aos princípios recebidos dos pais, quando, na verdade, é a voz da consciência que fala. Essa voz, que é a lembrança do passado, adverte para não recair nas faltas já cometidas. Se na nova existência o Espírito enfrenta as provas com coragem e resiste, ele se eleva e ascende na hierarquia dos Espíritos, ao retornar para o meio deles.*
+*— Em cada nova existência, o ser humano adquire mais inteligência e aprende a distinguir melhor o bem do mal. Que mérito haveria em agir corretamente se ele se lembrasse com clareza de todas as vidas anteriores? Quando o Espírito retorna à vida primitiva (a vida espiritual), toda a sua vida passada se desdobra diante dele. Vê as faltas que cometeu, as causas de seu sofrimento e como poderia ter o evitado. Reconhece a justiça da sua situação e busca uma existência capaz de reparar a anterior. Pede provas análogas àquelas de que não soube aproveitar, e recorre à ajuda de Espíritos mais elevados, que o orientam e despertam nele uma intuição dos seus erros anteriores. Essa intuição se manifesta como a voz da consciência, advertindo-o sempre que corre o risco de repetir antigas faltas. Se, na nova existência, o Espírito enfrenta as provas com coragem e resiste ao mal, ele se eleva e ascende na hierarquia dos Espíritos ao retornar para o mundo espiritual.*
 
 Durante a vida corporal, não temos lembrança exata do que fomos nem do que fizemos em existências anteriores. Ainda assim, guardamos uma intuição disso: nossas tendências instintivas refletem o passado, e a consciência, ao nos alertar para não repetir erros, nos ajuda a resistir a esses impulsos.
 
@@ -386,15 +386,15 @@ Lembrar-se de existências anteriores teria sérios inconvenientes. Em certos ca
 
 *— Sim, se o Espírito não souber vencer as provas. Isso indica estacionamento, nunca retrocesso.*
 
-### 399 — As vicissitudes da vida corporal permitem deduzir como foi a existência anterior?
+### 399 — Os desafios da vida corporal permitem deduzir como foi a existência anterior?
 
-*— Muitas vezes, sim, pois cada um é punido naquilo em que pecou. Contudo, não se deve tirar daí uma regra absoluta. As tendências instintivas são indícios mais seguros, já que as provas pelas quais o Espírito passa são determinadas tanto pelo passado quanto pelo futuro.*
+*— Muitas vezes, sim, porque todos respondem pelos seus atos. Contudo, não se deve tirar daí uma regra absoluta. As tendências instintivas são indícios mais seguros, já que as provas pelas quais o Espírito passa são determinadas tanto pelo passado quanto pelo futuro.*
 
 Chegado ao fim da vida na erraticidade, o próprio Espírito escolhe as provas a que deseja submeter-se para acelerar o progresso, isto é, escolhe o tipo de existência que considera mais adequado para fornecer-lhe os meios de avançar; e essas provas estão sempre relacionadas com as faltas que precisa expiar. Se delas triunfa, eleva-se; se sucumbe, precisa recomeçar.
 
 O Espírito tem sempre o livre-arbítrio. É em virtude dessa liberdade que escolhe, quando desencarnado, as provas da vida corporal e, quando encarnado, decide praticar ou não certos atos, escolhendo entre o bem e o mal. Negar ao ser humano o livre-arbítrio seria reduzi-lo à condição de máquina.
 
-Ao mergulhar na vida corpórea, o Espírito perde momentaneamente a lembrança das existências anteriores, como se um véu as cobrisse. Conserva, porém, vaga consciência delas, que pode lhe ser revelada em certas circunstâncias. Tal revelação, no entanto, só é feita pelos Espíritos superiores, espontaneamente e com finalidade útil, nunca para satisfazer vã curiosidade.
+Ao mergulhar na vida corpórea, o Espírito perde momentaneamente a lembrança das existências anteriores, como se um véu as cobrisse. Conserva, porém, uma vaga consciência de seu passado espiritual, que pode lhe ser revelado em certas circunstâncias. Tal revelação, no entanto, só é feita pelos Espíritos superiores, espontaneamente e com finalidade útil, nunca para satisfazer vã curiosidade.
 
 As existências futuras não podem, em nenhum caso, ser reveladas, pois dependem do modo como o Espírito conduzirá a existência atual e das escolhas que vier a fazer.
 
@@ -404,4 +404,4 @@ O ser humano não se lembra dos atos que praticou em existências anteriores, ma
 
 As dificuldades da vida corporal funcionam como reparação do passado e, ao mesmo tempo, como provas para o futuro. Elas contribuem para o nosso crescimento, desde que sejam enfrentadas com equilíbrio, sem revolta.
 
-A própria natureza dessas experiências pode indicar o que fomos e fizemos, assim como, neste mundo, julgamos alguém pelas consequências de seus atos. O orgulho pode levar à humilhação; a avareza, à escassez; a crueldade, ao sofrimento; a tirania, à submissão; a ingratidão, ao abandono; e a negligência, a condições mais difíceis de trabalho.
+A própria natureza dessas experiências pode indicar o que fomos e fizemos, assim como, neste mundo, julgamos alguém pelas consequências de seus atos. O orgulho pode levar à humilhação; a avareza, à escassez; a crueldade, ao sofrimento; a tirania, à submissão; a ingratidão, ao abandono; e a negligência a condições mais difíceis de trabalho.

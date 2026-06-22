@@ -7,7 +7,7 @@
 
 ### 874 — Sendo a justiça uma lei natural, como explicar que os homens a compreendam de formas tão diferentes, considerando justo o que outros julgam injusto?
 
-*— Porque a esse sentimento se misturam paixões que o distorcem, como acontece com a maioria dos sentimentos naturais, levando os homens a enxergarem as coisas por um prisma deformado.*
+*— Porque a esse sentimento se misturam paixões que o distorcem, como acontece com a maioria dos sentimentos naturais, levando os homens a enxergar a realidade de forma distorcida.*
 
 ### 875 — Como se pode definir a justiça?
 

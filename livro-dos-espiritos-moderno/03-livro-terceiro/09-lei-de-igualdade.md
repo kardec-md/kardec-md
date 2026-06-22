@@ -47,7 +47,7 @@ Assim, a diversidade das aptidões humanas não vem de uma criação desigual, m
 
 ### 809 — Quem herda uma riqueza originalmente mal adquirida tem responsabilidade por isso?
 
-*— Não é responsável pelo mal cometido por outros se o desconhece. Mas, muitas vezes, a riqueza chega às mãos de alguém para dar a oportunidade de reparar uma injustiça. Feliz aquele que entende isso. Se reparar o erro em nome de quem o cometeu, ambos se beneficiarão da reparação, pois muitas vezes é o próprio Espírito faltoso que provoca essa situação.*
+*— Não é responsável pelo mal cometido por outros se o desconhece. Mas, muitas vezes, a riqueza chega às mãos de alguém para dar a oportunidade de reparar uma injustiça. Feliz aquele que entende isso. Se reparar o erro em nome de quem o cometeu, ambos se beneficiarão da reparação, pois muitas vezes é o próprio Espírito faltoso quem cria as condições para que a injustiça seja reparada.*
 
 ### 810 — Podemos dispor livremente de nossos bens. Seremos responsáveis, após a morte, pelo uso que fizemos deles?
 
@@ -133,8 +133,8 @@ Deus adaptou o corpo de cada ser às funções que lhe cabem. Ao dar à mulher m
 
 *— É o orgulho dos vivos, que buscam se exaltar a si mesmos. Muitas dessas homenagens não são feitas pelo morto, mas por vaidade, ostentação e desejo de parecer importante aos olhos do mundo. Acaso a lembrança de alguém querido é menor no coração do pobre, que só pode oferecer uma simples flor? Ou o mármore impede o esquecimento daquele que foi inútil em vida?*
 
-### 824 — Então a pompa dos funerais deve ser sempre condenada?
+### 824 — Então a solenidade e a grandiosidade dos funerais devem ser sempre condenadas?
 
-*— Não. Quando serve para honrar a memória de uma pessoa de bem, pode ser justa e educativa.*
+*— Não. Quando servem para honrar a memória de uma pessoa de bem, podem ser justas e até educativas.*
 
 O túmulo é o ponto onde todas as distinções humanas terminam. Diante dele, todos se igualam. Em vão o rico tenta eternizar seu nome com monumentos suntuosos: o tempo os destruirá, assim como consumirá seu corpo. Assim quer a natureza. Muito mais duradoura que o túmulo é a lembrança das boas ou más ações praticadas em vida. A pompa do funeral não apaga faltas cometidas, nem faz o Espírito avançar um único grau na hierarquia espiritual (320 e seguintes).

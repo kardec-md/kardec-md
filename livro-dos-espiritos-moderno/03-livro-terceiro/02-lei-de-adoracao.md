@@ -3,7 +3,7 @@
 ## Objetivo da adoração
 ### 649 — Em que consiste a adoração?
 
-*— Em elevar o pensamento a Deus. Pela adoração, o homem aproxima sua alma dele.*
+*— Em elevar o pensamento a Deus. Pela adoração, o homem aproxima sua alma Dele.*
 
 ### 650 — A adoração nasce com o homem ou é resultado de aprendizado?
 
@@ -95,7 +95,7 @@ Resposta atribuída ao Espírito Monod, pastor protestante em Paris, desencarnad
 
 ### 666 — Pode-se orar aos Espíritos?
 
-*— Pode-se orar aos Espíritos bons, como mensageiros de Deus e executores de sua vontade. O poder deles, porém, depende do grau de elevação que alcançaram e sempre vem de Deus. Nada acontece sem a permissão divina, e por isso as preces dirigidas a eles só têm efeito se forem aceitas por Deus.*
+*— Sim. Pode-se orar pelos Espíritos que sofrem e também dirigir pedidos de auxílio aos Espíritos bons, mensageiros de Deus e executores de sua vontade. O poder deles, porém, depende do grau de elevação que alcançaram e sempre vem de Deus. Nada acontece sem a permissão divina, e por isso as preces dirigidas a eles só têm efeito se forem aceitas por Deus.*
 
 
 ## Politeísmo
@@ -113,7 +113,7 @@ O Cristianismo não eliminou o que pertence à natureza: apenas redirecionou a a
 
 
 ## Sacrifícios
-### 669 — Por que os sacrifícios humanos surgiram na antiguidade, se parecem incompatíveis com a ideia de Deus?
+### 669 — Por que os sacrifícios humanos surgiram na antiguidade, se são incompatíveis com a ideia de Deus?
 
 *— Primeiro, porque os homens ainda não compreendiam Deus como fonte de bondade. Nos povos primitivos, o instinto predominava sobre o espírito, e o senso moral era pouco desenvolvido. Segundo, acreditavam que uma vida tinha mais valor para Deus do que um objeto material. Assim, começaram sacrificando animais e depois passaram aos homens, acreditando que quanto maior a vítima, maior o agrado a Deus.*
 
@@ -131,7 +131,7 @@ O Cristianismo não eliminou o que pertence à natureza: apenas redirecionou a a
 
 ### 671 — O que pensar das chamadas guerras santas? O fanatismo que leva certos povos a exterminar os que não compartilham de sua fé, acreditando agradar a Deus, tem a mesma origem dos antigos sacrifícios humanos?
 
-*— Sim. Essas guerras são inspiradas por Espíritos maus. Fazer guerra ao semelhante contraria a vontade de Deus, que ordena amar o próximo como a si mesmo. Todos os povos adoram o mesmo Deus, sob nomes diferentes. Por que, então, exterminar uns aos outros apenas por diferenças religiosas, ou porque um povo ainda não alcançou o mesmo grau de progresso? Os que não creram naquele que era animado pelo espírito de Deus, sobretudo os que não testemunharam seus atos, têm desculpa. Mas como esperar que aceitem uma palavra de paz quando ela é imposta pela espada? É preciso esclarecê-los, sim, mas com persuasão e bondade, nunca com ferro e fogo. Vocês mesmos, em sua maioria, não acreditam nas comunicações que temos com certos mortais. Como esperar, então, que estranhos acreditem na palavra de quem desmente, com os próprios atos, a doutrina que prega?*
+*— Sim. Essas guerras são inspiradas por Espíritos maus. Fazer guerra ao semelhante contraria a vontade de Deus, que ordena amar o próximo como a si mesmo. Todos os povos adoram o mesmo Deus, sob nomes diferentes. Por que, então, exterminar uns aos outros apenas por diferenças religiosas, ou porque um povo ainda não alcançou o mesmo grau de progresso? Os que não creem em Jesus, sobretudo por não terem testemunhado seus atos, têm desculpa. Mas como esperar que aceitem uma palavra de paz quando ela é imposta pela espada? É preciso esclarecê-los, sim, mas com persuasão e bondade, nunca com ferro e fogo. Vocês mesmos, em sua maioria, não acreditam nas comunicações que temos com certos mortais. Como esperar, então, que estranhos acreditem na palavra de quem desmente, com os próprios atos, a doutrina que prega?*
 
 ### 672 — A oferta de frutos da terra agradava mais a Deus do que o sacrifício de animais?
 

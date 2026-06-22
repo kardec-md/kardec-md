@@ -41,11 +41,11 @@ A saúde pública, essencial para a força e o bem-estar coletivo, e praticament
 
 ### 709 — Cometem crime aqueles que, em situações extremas, sacrificam seus semelhantes para não morrer de fome? A necessidade de viver não atenua esse ato?
 
-*— Já foi dito que há mais mérito em suportar as provações com coragem e renúncia. Nesse caso, há homicídio e crime contra a lei da natureza, falta que é duplamente punida.*
+*— Já foi dito que há mais mérito em suportar as provações com coragem e renúncia. Nesse caso, há homicídio e crime contra a lei da natureza, são duas faltas.*
 
 ### 710 — Nos mundos em que os seres possuem uma organização física mais aperfeiçoada, eles ainda precisam se alimentar?
 
-*— Precisam, mas os alimentos estão de acordo com a sua natureza. Esses alimentos não sustentariam os corpos mais densos de vocês, assim como eles não poderiam assimilar os de vocês.*
+*— Precisam, mas os alimentos estão de acordo com a sua natureza. Esses alimentos não sustentariam os corpos mais densos de vocês, assim como eles não poderiam assimilar os alimentos de vocês.*
 
 
 ## Gozo dos bens terrenos
@@ -65,7 +65,7 @@ Se o homem fosse motivado a usar os bens da Terra apenas por sua utilidade, a in
 
 ### 713 — A natureza estabeleceu limites para os prazeres?
 
-*— Sim, para indicar o que é necessário. Mas, pelos excessos, o homem chega à saturação e acaba se punindo a si mesmo.*
+*— Sim, para indicar o que é necessário. Mas, pelos excessos, o homem chega à saturação e acaba punindo a si mesmo.*
 
 ### 714 — O que pensar daquele que busca nos excessos de todo tipo o máximo dos prazeres?
 
@@ -75,7 +75,7 @@ Se o homem fosse motivado a usar os bens da Terra apenas por sua utilidade, a in
 
 *— De ambas.*
 
-Quem busca prazer sem limites se rebaixa abaixo do animal, pois o animal sabe parar quando sua necessidade é satisfeita. Esse homem abandona a razão que Deus lhe deu como guia e permite que sua natureza instintiva domine sua natureza espiritual. As doenças, os sofrimentos e até a morte, que surgem do abuso, são ao mesmo tempo a consequência e a punição pela violação da lei de Deus.
+Quem busca prazer sem limites se rebaixa abaixo do animal, pois o animal sabe parar quando sua necessidade é satisfeita. Esse homem abandona a razão que Deus lhe deu como guia e permite que sua natureza instintiva domine sua natureza espiritual. As doenças, os sofrimentos e até a morte, que surgem do abuso, são consequências da violação da lei de Deus.
 
 ## O necessário e o supérfluo
 ### 715 — Como o homem pode reconhecer o limite do necessário?

@@ -239,7 +239,7 @@ Todo sacrifício feito em nome da caridade tem grande valor espiritual. Renuncia
 
 ### 957 — Quais são, em geral, as consequências espirituais do suicídio?
 
-*— Variam conforme as causas. Não há punição fixa, mas uma consequência é inevitável: a decepção. Alguns sofrem imediatamente; outros passam por existências futuras mais difíceis.*
+*— Variam conforme as causas. Não há consequência fixa, mas uma é inevitável: a decepção. Alguns sofrem imediatamente; outros passam por existências futuras mais difíceis.*
 
 Em muitos casos, o vínculo entre o Espírito e o corpo se rompe de forma brusca, prolongando a confusão após a morte. O Espírito pode, por algum tempo, acreditar que ainda está vivo. Em certos casos, sente até reflexos da decomposição do corpo, o que gera angústia intensa. Nem todos passam por isso, mas ninguém escapa das consequências.
 

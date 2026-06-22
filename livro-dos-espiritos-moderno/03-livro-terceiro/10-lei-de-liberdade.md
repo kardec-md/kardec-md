@@ -13,9 +13,9 @@
 
 *— De forma alguma, pois esse é um direito que vem da própria natureza.*
 
-### 828 — Como conciliar as ideias liberais que alguns defendem com o autoritarismo que exercem em casa ou sobre seus subordinados?
+### 828 — Por que algumas pessoas proclamam a liberdade em público, mas agem de forma autoritária em sua vida pessoal ou com seus subordinados?
 
-*— Eles até compreendem a lei natural, mas essa compreensão é abafada pelo orgulho e pelo egoísmo. Quando não estão apenas representando um papel, defendendo ideias bonitas em público, sabem como deveriam agir, apenas não agem assim.*
+*— Elas sabem o que é justo e reconhecem a lei moral, mas o orgulho fala mais alto. Defendem a liberdade enquanto lhes convém, porém, quando detêm poder sobre os outros, frequentemente deixam de praticar os mesmos princípios que proclamam.*
 
 **— Na vida espiritual, esses princípios que proclamaram em vida serão levados em conta?**
 
@@ -27,7 +27,7 @@
 
 *— Toda submissão absoluta de um homem a outro é contrária à lei de Deus. A escravidão é um abuso da força. Ela desaparece com o progresso, assim como desaparecerão, pouco a pouco, todos os abusos.*
 
-A lei humana que legitima a escravidão é contrária à natureza, pois reduz o homem à condição de coisa e o degrada física e moralmente.
+A lei humana que legitima a escravidão é contrária à natureza, pois reduz o homem à condição de objeto e o degrada física e moralmente.
 
 ### 830 — Quando a escravidão faz parte dos costumes de um povo, são culpáveis aqueles que dela se beneficiam por considerá-la algo normal?
 
@@ -61,7 +61,7 @@ A lei humana que legitima a escravidão é contrária à natureza, pois reduz o 
 
 ### 836 — Tem o homem o direito de impor limites à liberdade de consciência de outro?
 
-*— Não, assim como não tem o direito de limitar a liberdade de pensar. Somente a Deus cabe julgar a consciência. Do mesmo modo que os homens, por suas leis, regulam as relações entre si, Deus, por meio das leis naturais, regula as relações entre Ele e o homem.*
+*— Não, assim como não tem o direito de limitar a liberdade de pensar. Somente a Deus cabe julgar a consciência. Do mesmo modo que os homens regulam as relações entre si pelas leis humanas, Deus regula as relações entre Ele e o homem por meio das leis naturais.*
 
 ### 837 — O que resulta das restrições impostas à liberdade de consciência?
 
@@ -77,7 +77,7 @@ A lei humana que legitima a escravidão é contrária à natureza, pois reduz o 
 
 ### 840 — Impedir crenças que causam perturbação social é atentar contra a liberdade de consciência?
 
-*— Não. Podem-se conter os atos, mas não a crença íntima.*
+*— Não. Ninguém pode ser impedido de acreditar no que quiser. Porém, quando uma crença leva à prática de atos nocivos, são esses atos que a sociedade tem o direito de impedir.*
 
 Reprimir as manifestações exteriores de uma crença, quando causam prejuízo a terceiros, não viola a liberdade de consciência, pois essa liberdade permanece intacta no íntimo da pessoa.
 
@@ -101,7 +101,7 @@ Reprimir as manifestações exteriores de uma crença, quando causam prejuízo a
 
 ### 845 — As predisposições instintivas com que o homem nasce não limitam o livre-arbítrio?
 
-*— Essas predisposições pertencem ao Espírito antes da encarnação. Conforme seu grau de evolução, podem incliná-lo a atos reprováveis, reforçados por Espíritos que com ele se afinam. No entanto, não existe impulso irresistível quando há vontade de resistir. Lembrem-se: querer é poder (361).*
+*— Essas predisposições pertencem ao Espírito antes da encarnação. Conforme seu grau de evolução, podem incliná-lo a atos reprováveis, reforçados por Espíritos que com ele simpatizam. No entanto, não existe impulso irresistível quando há vontade de resistir. Lembrem-se: querer é poder (361).*
 
 ### 846 — O organismo exerce influência sobre os atos da vida? Essa influência compromete o livre-arbítrio?
 
@@ -111,7 +111,7 @@ Reprimir as manifestações exteriores de uma crença, quando causam prejuízo a
 
 ### 847 — A perturbação das faculdades mentais elimina o livre-arbítrio?
 
-*— Quando a inteligência está comprometida, o homem já não é senhor de seus pensamentos e perde a liberdade de agir. Essa perturbação é, muitas vezes, uma prova ou punição para o Espírito que, em outra existência, foi fútil, orgulhoso ou abusou de suas faculdades. Assim, pode renascer em condições limitantes, como o tirano que retorna como escravo ou o rico cruel como mendigo. Apesar disso, o Espírito sofre conscientemente essa limitação. Aí se manifesta a ação da matéria.*
+*— Quando a inteligência está comprometida, o homem já não é senhor de seus pensamentos e perde a liberdade de agir. Essa perturbação é, muitas vezes, uma prova ou expiação para o Espírito que, em outra existência, foi fútil, orgulhoso ou abusou de suas faculdades. Assim, pode renascer em condições limitantes, como o tirano que retorna como escravo ou o rico cruel como mendigo. Apesar disso, o Espírito sofre conscientemente essa limitação. Aí se manifesta a ação da matéria.*
 
 (371 e seguintes.)
 
@@ -226,7 +226,7 @@ Muitas vezes preferimos atribuir nossos fracassos à sorte ou ao destino, pois i
 
 *— Isso seria o mesmo que perguntar por que Deus não criou o homem perfeito desde o início (119), ou por que ele passa pela infância antes de se tornar adulto (379).*
 
-*A prova não existe para informar Deus sobre o homem, Deus já sabe quem ele é. Ela existe para que o próprio homem responda por seus atos, usando sua liberdade. Só há mérito ou culpa quando a ação é realmente praticada. Deus não pune nem recompensa por algo que ainda não aconteceu (258).*
+*A prova não existe para informar Deus sobre o homem, Deus já sabe quem ele é. Ela existe para que o próprio homem responda por seus atos, usando sua liberdade. Só há mérito ou culpa quando a ação é realmente praticada. Deus não julga algo que ainda não aconteceu (258).*
 
 Assim como um estudante só recebe um diploma após ser examinado, e não apenas por expectativa de capacidade, o homem só pode ser julgado por atos realizados.
 

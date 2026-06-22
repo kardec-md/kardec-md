@@ -51,7 +51,7 @@ O progresso faz parte da natureza humana e não pode ser anulado. Leis humanas i
 
 *— Existe um progresso gradual e constante, resultado da própria dinâmica das coisas. Mas, quando um povo não avança como deveria, Deus permite abalos físicos ou morais que provocam transformações profundas.*
 
-O homem não pode permanecer indefinidamente na ignorância, pois precisa alcançar o objetivo traçado pela Providência. O esclarecimento vem com o tempo. As grandes transformações morais e sociais amadurecem lentamente nas ideias, às vezes durante séculos, até que irrompem de forma súbita, derrubando estruturas antigas que já não correspondem às novas necessidades.
+O homem não pode permanecer indefinidamente na ignorância, pois precisa alcançar o objetivo traçado pela Providência. O esclarecimento vem com o tempo. As grandes transformações morais e sociais amadurecem lentamente nas ideias, às vezes durante séculos, até que surgem de forma súbita, derrubando estruturas antigas que já não correspondem às novas necessidades.
 
 Nesses períodos de crise, o homem costuma perceber apenas a desordem momentânea que afeta seus interesses materiais. Mas quem consegue elevar o pensamento acima do próprio ego percebe os desígnios da Providência, que faz o bem surgir do mal. São como tempestades que purificam a atmosfera depois de agitá-la intensamente.
 

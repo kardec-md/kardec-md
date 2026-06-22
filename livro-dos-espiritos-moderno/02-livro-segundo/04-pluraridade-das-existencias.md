@@ -106,7 +106,7 @@ Quem, ao final da vida, não lamenta ter adquirido tarde demais uma experiência
 
 **— Isso também pode ocorrer como forma de expiação? Deus pode enviar Espíritos rebeldes para mundos inferiores?**
 
-*— Os Espíritos podem permanecer estacionários, mas não retrocedem. A punição do estacionamento é a necessidade de recomeçar, em condições compatíveis com sua natureza, as existências que foram mal aproveitadas.*
+*— Os Espíritos podem permanecer estacionários, mas não retrocedem. A consequência do estacionamento é a necessidade de recomeçar, em condições compatíveis com sua natureza, as existências que foram mal aproveitadas.*
 
 **— Quais Espíritos precisam recomeçar a mesma existência?**
 

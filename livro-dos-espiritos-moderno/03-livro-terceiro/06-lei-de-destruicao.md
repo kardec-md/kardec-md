@@ -75,7 +75,7 @@ Se fosse possível contemplar toda a humanidade de uma só vez, esses acontecime
 
 *— Em parte, sim. Muitos flagelos são consequência da própria imprudência humana. À medida que o homem adquire conhecimento, pode prevenir vários deles, identificando suas causas. No entanto, existem males de ordem geral que fazem parte dos desígnios da Providência, e contra esses só resta a aceitação da vontade de Deus. Ainda assim, o homem frequentemente agrava esses males por negligência.*
 
-Entre os flagelos naturais e independentes da ação humana estão a peste, a fome, as inundações e as intempéries que afetam a produção da Terra. Mas a ciência, a engenharia, o avanço da agricultura, a irrigação, o estudo da higiene e das condições de saúde pública já permitiram evitar ou ao menos reduzir muitos desses males. Regiões antes devastadas hoje estão protegidas. Quanto mais o homem souber usar sua inteligência aliada à verdadeira caridade, maior será o bem-estar coletivo que poderá alcançar (707).
+Entre os flagelos naturais e independentes da ação humana estão a peste, a fome, as inundações e as intempéries que afetam a produção do solo. Mas a ciência, a engenharia, o avanço da agricultura, a irrigação, o estudo da higiene e das condições de saúde pública já permitiram evitar ou ao menos reduzir muitos desses males. Regiões antes devastadas hoje estão protegidas. Quanto mais o homem souber usar sua inteligência aliada à verdadeira caridade, maior será o bem-estar coletivo que poderá alcançar (707).
 
 
 ## Guerras
@@ -145,7 +145,7 @@ Todas as faculdades humanas existem de forma latente e se desenvolvem conforme a
 
 ### 755 — Como é possível encontrar pessoas tão cruéis em sociedades altamente civilizadas?
 
-*— Da mesma forma que uma árvore saudável pode produzir alguns frutos defeituosos. São indivíduos que da civilização possuem apenas a aparência externa, verdadeiros lobos em meio a cordeiros. Espíritos muito atrasados podem encarnar entre pessoas moralmente mais adiantadas para tentar progredir. Quando a prova é pesada demais, porém, a natureza primitiva acaba prevalecendo.*
+*— Da mesma forma que uma árvore saudável pode produzir alguns frutos defeituosos. São indivíduos que aparentam ser civilizados, mas são verdadeiros lobos em meio a cordeiros. Espíritos muito atrasados podem encarnar entre pessoas moralmente mais adiantadas para tentar progredir. Quando a prova é pesada demais, porém, a natureza primitiva acaba prevalecendo.*
 
 ### 756 — A sociedade dos homens de bem um dia estará livre dos indivíduos mal-intencionados?
 
@@ -169,7 +169,7 @@ Em qualquer situação, mesmo quando as chances são iguais, há culpa: primeiro
 
 ### 759 — Que valor tem o chamado “ponto de honra” nos duelos?
 
-*— Orgulho e vaidade: duas grandes feridas da humanidade.*
+*— Orgulho e vaidade: dois grandes problemas da humanidade.*
 
 **— Mas não há situações em que recusar o duelo pareceria covardia?**
 
@@ -199,7 +199,7 @@ Apesar de ainda haver muito a melhorar, seria injusto ignorar os avanços já fe
 
 ### 764 — As palavras de Jesus: “quem matou pela espada, pela espada perecerá”, justificam a pena de talião?
 
-*— Cuidado com a interpretação. A pena de talião é a justiça de Deus, não a dos homens. É Deus quem a aplica. Todos a experimentam, pois cada um sofre as consequências do mal que praticou, nesta ou em outra existência. Quem fez sofrer, acabará passando por situação semelhante. Esse é o verdadeiro sentido das palavras de Jesus. Mas ele também ensinou: “perdoai os vossos inimigos” e pediu que rogássemos a Deus perdão na mesma medida em que perdoamos. É preciso compreender isso com clareza.*
+*— Cuidado com a interpretação. A pena de talião é a justiça de Deus, não a dos homens. É Deus quem a aplica. Todos a experimentam, pois cada um sofre as consequências do mal que praticou, nesta ou em outra existência. Quem fez sofrer, acabará passando por situação semelhante. Esse é o verdadeiro sentido das palavras de Jesus. Mas ele também disse: "Perdoai os vossos inimigos" e, no Pai-Nosso: "Perdoai as nossas ofensas, assim como nós perdoamos aos que nos têm ofendido". É preciso compreender isso com clareza.*
 
 ### 765 — O que pensar da pena de morte aplicada em nome de Deus?
 

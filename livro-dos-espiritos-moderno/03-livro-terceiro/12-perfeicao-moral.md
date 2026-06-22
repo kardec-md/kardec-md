@@ -148,7 +148,7 @@ Movido pela caridade e pelo amor ao próximo, faz o bem pelo bem, sem esperar re
 
 É bondoso, humano e benevolente com todos, pois reconhece irmãos em todos os homens, sem distinção de raça ou crença.
 
-Se possui poder ou riqueza, vê-os como UM DEPÓSITO confiado por Deus, que deve ser usado para o bem. Não se orgulha disso, sabendo que quem deu também pode retirar.
+Se possui poder ou riqueza, vê-os como um depósito confiado por Deus, que deve ser usado para o bem. Não se orgulha disso, sabendo que quem deu também pode retirar.
 
 Se ocupa posição de autoridade, trata com bondade aqueles que lhe estão subordinados, pois são iguais perante Deus. Usa a autoridade para elevar, não para humilhar.
 

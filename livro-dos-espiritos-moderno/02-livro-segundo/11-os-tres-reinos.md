@@ -3,7 +3,7 @@
 ## Os minerais e as plantas
 ### 585 — O que pensar da divisão da natureza em três reinos ou, mais precisamente, em duas classes: a dos seres orgânicos e a dos inorgânicos? Alguns defendem que a espécie humana formaria uma quarta classe. Qual dessas divisões é a mais adequada?
 
-*— Todas são válidas, conforme o ponto de vista adotado. Do ponto de vista material, existem apenas seres orgânicos e inorgânicos. Do ponto de vista moral, há claramente quatro graus.*
+*— Todas são válidas, conforme o ponto de vista adotado. Do ponto de vista material, existem apenas seres orgânicos e inorgânicos. Do ponto de vista moral, há claramente quatro graus: a matéria inerte, as plantas, os animais e o ser humano.*
 
 Esses quatro graus apresentam características bem definidas, embora pareçam confundir-se em seus limites extremos. A matéria inerte, que constitui o reino mineral, possui apenas uma força mecânica. As plantas, embora formadas por matéria inerte, são dotadas de vitalidade. Os animais, também compostos de matéria inerte e igualmente dotados de vitalidade, possuem ainda uma forma de inteligência instintiva, limitada, além da consciência de sua existência e de sua individualidade. O ser humano, reunindo tudo o que existe nas plantas e nos animais, domina todas as outras classes por meio de uma inteligência especial e indefinida, que lhe dá consciência do futuro, percepção do que vai além da matéria e conhecimento de Deus.
 

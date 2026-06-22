@@ -97,11 +97,11 @@ Assim, Deus confia à consciência de cada um a escolha do caminho a seguir e a 
 
 *— Sim, e esses são os verdadeiros possessos. Mas essa dominação nunca ocorre sem o consentimento daquele que a sofre, seja por fraqueza, seja por desejo. Muitas pessoas doentes, como epilépticos ou indivíduos com transtornos mentais, foram confundidas com possessos, quando precisavam de cuidados médicos, não de exorcismos.*
 
-O termo possesso, no sentido comum, pressupõe a existência de demônios como seres maus por natureza e a coabitação deles com a alma de alguém. Como não existem demônios nesse sentido e dois Espíritos não podem ocupar o mesmo corpo, não há possessão como normalmente se imagina. O termo só deve ser usado para indicar a dependência extrema de uma alma em relação a Espíritos imperfeitos que a dominam.
+O termo possesso, no sentido comum, pressupõe a existência de demônios como seres maus por natureza que habitam no corpo de outra pessoa. Como não existem demônios nesse sentido e dois Espíritos não podem ocupar o mesmo corpo, não há possessão como normalmente se imagina. O termo só deve ser usado para indicar a dependência extrema de uma alma em relação a Espíritos imperfeitos que a dominam.
 
 ### 475 — Alguém pode afastar por si mesmo os maus Espíritos e libertar-se dessa dominação?
 
-*— Sempre que houver vontade firme, é possível livrar-se desse jugo.*
+*— Sempre que houver vontade firme, é possível livrar-se desse domínio.*
 
 ### 476 — Pode acontecer que a fascinação seja tão forte que a pessoa não perceba que está dominada? Nesse caso, outra pessoa pode ajudá-la?
 
@@ -163,7 +163,7 @@ Esses fenômenos dependem de causas físicas e da ação de certos Espíritos. A
 
 ### 487 — Quais sofrimentos mais afligem os Espíritos por nossa causa: os físicos ou os morais?
 
-*— O egoísmo e a dureza do coração. Desses nascem todos os outros males. Eles se compadecem pouco dos sofrimentos imaginários causados pelo orgulho e pela ambição, mas se entristecem profundamente com os males morais que afastam vocês do progresso.*
+*— O egoísmo e a dureza do coração. Desses nascem todos os outros males. Eles sensibilizam pouco com sofrimentos imaginários causados pelo orgulho e pela ambição, mas se entristecem profundamente com os males morais que afastam vocês do progresso.*
 
 ### 488 — Os parentes e amigos que já partiram nos dedicam mais afeição do que Espíritos desconhecidos?
 
@@ -206,13 +206,13 @@ Esses fenômenos dependem de causas físicas e da ação de certos Espíritos. A
 
 *— Ele se afasta quando percebe que seus conselhos são ignorados e que a pessoa prefere seguir a influência de Espíritos inferiores. No entanto, não a abandona por completo e continua tentando se fazer ouvir. É a própria pessoa que fecha os ouvidos. O protetor retorna assim que ela o chama.*
 
-*A doutrina dos anjos guardiães, por sua ternura e consolação, deveria tocar até os mais céticos. Não é profundamente reconfortante saber que existem sempre ao nosso lado seres superiores, prontos a aconselhar, amparar e ajudar na difícil subida do caminho do bem? Amigos mais sinceros e dedicados do que muitos dos que nos cercam na Terra. Eles estão ao nosso lado por vontade de Deus. Foi Deus quem os colocou ali, e por amor a Ele permanecem conosco, cumprindo uma missão bela, embora exigente. Onde quer que estejamos, eles estão conosco: nem nas prisões, nem nos hospitais, nem nos lugares de degradação moral, nem na solidão estamos separados desses amigos invisíveis, cujo influxo suave a alma percebe e cujos conselhos prudentes ela escuta.*
+*A doutrina dos anjos guardiães, por sua ternura e consolação, deveria tocar até os mais céticos. Não é profundamente reconfortante saber que existem sempre ao nosso lado seres superiores, prontos a aconselhar, amparar e ajudar na difícil subida do caminho do bem? Amigos mais sinceros e dedicados do que muitos dos que nos cercam na Terra. Eles estão ao nosso lado por vontade de Deus. Foi Deus quem os colocou ali, e por amor a Ele permanecem conosco, cumprindo uma missão bela, embora exigente. Onde quer que estejamos, eles estão conosco: nem nas prisões, nem nos hospitais, nem nos lugares de degradação moral, nem na solidão estamos separados desses amigos invisíveis, cuja influência suave a alma percebe e os conselhos prudentes ela escuta.*
 
 *Ah, se compreendessem bem essa verdade! Quanto ela ajudaria nos momentos difíceis! Quantas vezes afastaria a influência dos maus Espíritos! Mas quantas vezes, no dia decisivo, esse anjo não terá de lamentar: “Não te aconselhei? E, ainda assim, não me ouviste. Não te mostrei o abismo? E mesmo assim te lançaste nele. Não fiz ecoar em tua consciência a voz da verdade? Preferiste seguir a mentira.” Interroguem seus anjos guardiães. Criem com eles a intimidade que existe entre verdadeiros amigos. Não pensem em esconder nada, pois eles veem com o olhar de Deus, e não podem ser enganados. Pensem no futuro. Procurem avançar desde já. Assim, encurtarão as provas e tornarão suas existências mais felizes. Coragem, homens! Abandonem de vez os preconceitos e pensamentos ocultos. Entrem no novo caminho que se abre diante de vocês. Caminhem. Vocês têm guias: sigam-nos, e não deixarão de alcançar a meta, que é o próprio Deus.*
 
 *Aos que consideram impossível que Espíritos elevados se dediquem a uma tarefa tão constante e exigente, respondemos que influenciamos suas almas mesmo estando a milhões de léguas de distância. Para nós, o espaço não é obstáculo. Ainda que vivamos em outro mundo, mantemos laços com vocês. Possuímos qualidades que vocês ainda não compreendem, mas tenham certeza de que Deus não nos impôs tarefas acima de nossas forças e não deixou vocês sozinhos na Terra, sem amigos ou amparo. Cada anjo guardião tem alguém sob sua proteção, como um pai cuida de um filho. Alegra-se ao vê-lo no caminho certo e sofre quando seus conselhos são desprezados.*
 
-*Não tenham receio de nos cansar com suas perguntas. Ao contrário, procurem manter contato conosco. Assim, serão mais fortes e mais felizes. Essas comunicações entre cada pessoa e seu Espírito familiar fazem com que, de certo modo, todos sejam médiuns, ainda que hoje inconscientes disso. No futuro, essa faculdade se manifestará amplamente, espalhando-se como um oceano sem limites, varrendo o ceticismo e a ignorância. Homens instruídos, ensinem seus semelhantes; homens de talento, eduquem seus irmãos. Vocês não imaginam a obra que realizam assim: a obra do Cristo, aquela que Deus lhes confiou. Para que Deus lhes deu inteligência e conhecimento, senão para compartilhá-los, ajudando seus irmãos a avançar no caminho que leva à felicidade verdadeira?*
+*Não tenham receio de nos cansar com suas perguntas. Ao contrário, procurem manter contato conosco. Assim, serão mais fortes e mais felizes. Essas comunicações entre cada pessoa e seu anjo guardião fazem com que, de certo modo, todos sejam médiuns, ainda que hoje inconscientes disso. No futuro, essa faculdade se manifestará amplamente, espalhando-se como um oceano sem limites, varrendo o ceticismo e a ignorância. Homens instruídos, ensinem seus semelhantes; homens de talento, eduquem seus irmãos. Vocês não imaginam a obra que realizam assim: a obra do Cristo, aquela que Deus lhes confiou. Para que Deus lhes deu inteligência e conhecimento, senão para compartilhá-los, ajudando seus irmãos a avançar no caminho que leva à felicidade verdadeira?*
 
 São Luís, Santo Agostinho.
 
@@ -240,7 +240,7 @@ Nada há de surpreendente na doutrina dos anjos guardiães, que velam por aquele
 
 ### 501 — Por que a ação dos Espíritos sobre nossa vida é oculta? E por que, quando nos protegem, não o fazem de modo evidente?
 
-*— Porque, se vocês dependessem sempre dessa ação, deixariam de agir por si mesmos, e o Espírito não progrediria. Para avançar, ele precisa da experiência, muitas vezes adquirida com esforço próprio. É necessário exercitar suas forças; caso contrário, seria como uma criança que nunca aprende a andar sozinha. A ação dos Espíritos bons é sempre equilibrada para não tirar o livre-arbítrio. Sem responsabilidade, não há progresso. Mesmo sem vê-los, vocês contam com a vigilância do guia, que, de tempos em tempos, alerta sobre os perigos.*
+*— Porque, se vocês dependessem sempre dessa ação, deixariam de agir por si mesmos e não progrediriam. Para avançar, é necessário adquirir experiência através do esforço próprio. É necessário exercitar suas forças; caso contrário, seria como uma criança que nunca aprende a andar sozinha. A ação dos Espíritos bons é sempre equilibrada para não tirar o livre-arbítrio. Sem responsabilidade, não há progresso. Mesmo sem vê-los, vocês contam com a vigilância do guia, que, de tempos em tempos, alerta sobre os perigos.*
 
 ### 502 — O Espírito protetor que consegue conduzir seu protegido ao bem recebe algum benefício?
 
@@ -438,7 +438,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 *— Agradeçam primeiro a Deus, sem cuja permissão nada acontece, e depois aos bons Espíritos que foram instrumentos dessa vontade.*
 
-**— E se esquecermos de agradecer?**
+**— E o que aconteceria se esquecermos de agradecer?**
 
 *— O mesmo que acontece aos ingratos.*
 
@@ -531,7 +531,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 
 ## Poder oculto. Talismãs. Feiticeiros
-### 551 — Pode uma pessoa má, com a ajuda de um Espírito mau, fazer mal ao próximo?
+### 551 — Uma pessoa pode, com a ajuda de Espíritos maus, prejudicar outra pessoa por meio de feitiços ou maldições?
 
 *— Não. Deus não permitiria isso.*
 
@@ -559,7 +559,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 ### 556 — Algumas pessoas realmente têm o poder de curar pelo simples contato?
 
-*— O poder magnético pode chegar a esse ponto quando aliado à pureza de intenção e ao sincero desejo de fazer o bem. Nesses casos, Espíritos bons auxiliam. No entanto, é preciso desconfiar dos relatos exagerados feitos por pessoas muito crédulas ou entusiasmadas, que veem o maravilhoso onde há apenas fenômenos naturais. Também é necessário cautela com relatos interesseiros de quem explora a fé alheia.*
+*— O poder magnético pode chegar a esse ponto quando aliado à pureza de intenção e ao sincero desejo de fazer o bem. Nesses casos, Espíritos bons auxiliam. No entanto, é preciso desconfiar dos relatos exagerados feitos por pessoas muito ingênuas ou entusiasmadas, que veem o maravilhoso onde há apenas fenômenos naturais. Também é necessário cautela com relatos interesseiros de quem explora a fé alheia.*
 
 
 ## Bênçãos e maldições
