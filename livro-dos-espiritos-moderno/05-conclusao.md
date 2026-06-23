@@ -6,7 +6,7 @@ Quem conhece o magnetismo terrestre apenas pelo brinquedo dos patinhos imantados
 
 Para o observador apressado, que relação poderia haver entre uma mesa que se move e o destino da humanidade? No entanto, basta lembrar que de uma simples panela fervendo, cuja tampa se erguia repetidamente, nasceu o motor a vapor, que revolucionou o mundo, encurtou distâncias e transformou a civilização. Assim também, dessa mesa que gira e provoca risos irônicos, surgiu uma ciência inteira e a chave de problemas que nenhuma filosofia havia conseguido resolver.
 
-Por isso, apelamos aos críticos de boa-fé: estudaram realmente aquilo que criticam? A crítica só tem valor quando parte do conhecimento. Zombar do que não se conhece não é criticar, é superficialidade. Se essa filosofia tivesse sido apresentada como obra de um pensador humano, talvez tivesse recebido exame respeitoso. Mas como se afirma que vem dos Espíritos, é descartada de imediato. Julga-se pelo rótulo, como o macaco da fábula julgava a noz pela casca. Façam abstração da origem, supondo que este livro fosse obra humana, e perguntem-se, com honestidade: há nele algo que mereça escárnio?
+Por isso, apelamos aos críticos de boa-fé: estudaram realmente aquilo que criticam? A crítica só tem valor quando parte do conhecimento. Zombar do que não se conhece não é criticar, é superficialidade. Se essa filosofia tivesse sido apresentada como obra de um pensador humano, talvez tivesse recebido exame respeitoso. Mas como se afirma que vem dos Espíritos, é descartada de imediato. Julga-se pelo rótulo, como o macaco da fábula julgava a noz pela casca. Façam abstração da origem, supondo que este livro fosse obra humana, e perguntem-se, com honestidade: há nele algo que mereça desprezo?
 
 ### II
 

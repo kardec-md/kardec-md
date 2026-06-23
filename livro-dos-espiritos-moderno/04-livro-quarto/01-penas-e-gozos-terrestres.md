@@ -33,11 +33,11 @@ Ainda nesta vida, sofremos as consequências das infrações que cometemos contr
 
 *— Os sofrimentos do mundo nascem, em grande parte, das necessidades artificiais que vocês criam. Quem sabe limitar seus desejos e não inveja o que está acima de si evita muitas decepções. Quem tem menos necessidades é, de fato, o mais rico.*
 
-*Vocês invejam os prazeres daqueles que parecem felizes. Mas sabem o que os espera? Se esses prazeres são apenas egoístas, pertencem aos que vivem voltados para si mesmos, e o reverso virá. Em vez de invejá-los, é melhor ter pena deles. Deus às vezes permite que o mau prospere, mas essa felicidade não dura: será paga com sofrimento. Quando um justo enfrenta a infelicidade, isso é uma prova que lhe será considerada se ele a suportar com coragem. Lembrem-se das palavras de Jesus: “Bem-aventurados os que sofrem, porque serão consolados.”*
+*Vocês invejam os prazeres daqueles que parecem felizes. Mas sabem o que os espera? Se essa felicidade se baseia apenas no egoísmo, ela é passageira, e cedo ou tarde, chega o tempo de colher aquilo que se semeou. Em vez de invejá-los, é melhor ter pena deles. Deus às vezes permite que o mau prospere, mas essa felicidade não dura: será paga com sofrimento. Quando um justo enfrenta a infelicidade, isso é uma prova que lhe será considerada se ele a suportar com coragem. Lembrem-se das palavras de Jesus: “Bem-aventurados os que sofrem, porque serão consolados.”*
 
-### 927 — Se o supérfluo não é necessário para a felicidade, o mesmo não vale para o necessário. Não é realmente infeliz quem dele carece?
+### 927 — Mas quem é privado do essencial para viver sofre uma infelicidade real?
 
-*— Verdadeiramente infeliz é quem não tem o necessário para viver e manter a saúde. No entanto, essa privação pode ser resultado da própria conduta, caso em que a pessoa só pode responsabilizar a si mesma. Se for causada por outros, a responsabilidade recai sobre quem a provocou.*
+*— Sim. A falta do necessário para viver com dignidade e preservar a própria saúde constitui uma infelicidade real. Contudo, é preciso distinguir suas causas: às vezes decorre das próprias escolhas; outras vezes, da injustiça praticada por terceiros, que responderão pelas consequências de seus atos.*
 
 ### 928 — Evidentemente, Deus indica nossa vocação por meio das aptidões naturais. Muitos sofrimentos não surgem de ignorarmos essa vocação?
 
@@ -47,7 +47,7 @@ Ainda nesta vida, sofremos as consequências das infrações que cometemos contr
 
 *— É preciso evitar exageros. A civilização tem exigências. Não há motivo para que alguém exerça um trabalho incompatível com suas possibilidades, se pode ser útil de outra forma. O essencial é fazer bom uso das próprias capacidades. Alguém pode ser um mau advogado e um excelente mecânico, por exemplo.*
 
-O afastamento da verdadeira aptidão é uma das causas mais comuns de frustração. A escolha de uma carreira para a qual não se tem talento gera fracassos constantes. O orgulho, então, impede a pessoa de buscar uma ocupação mais simples e faz com que veja o suicídio como saída para o que considera humilhação. Uma educação moral sólida, livre dos preconceitos do orgulho, evitaria esse desfecho.
+O afastamento da verdadeira aptidão é uma das causas mais comuns de frustração. A escolha de uma carreira para a qual não se tem talento gera fracassos constantes. O orgulho, então, impede a pessoa de buscar uma ocupação mais simples e faz com que veja o suicídio como saída para o que considera humilhação. Uma educação moral sólida, livre dos preconceitos e do orgulho, evitaria esse desfecho.
 
 ### 929 — Pessoas sem recursos, cercadas de abundância, às vezes veem apenas a morte como saída. Devem se deixar morrer de fome?
 

@@ -43,7 +43,7 @@ A ideia que fazemos da justiça e da bondade de Deus não permite acreditar que 
 
 *— Deus cuida de todos os seres que criou, por menores que pareçam. Nada é insignificante para a sua bondade.*
 
-### 964 — Mas Deus precisa observar cada um dos nossos atos para nos recompensar ou punir? Muitos deles não seriam irrelevantes para Ele?
+### 964 — Mas Deus precisa observar cada um dos nossos atos? Muitos deles não seriam irrelevantes para Ele?
 
 *— Deus estabeleceu leis que regem todas as ações humanas. Quando essas leis são violadas, a responsabilidade é nossa. Deus não julga dizendo: “Você fez isso, será punido”. Ele fixa limites. As doenças e, muitas vezes, a própria morte são consequências naturais dos excessos. Essa é a "punição": a consequência natural da infração da lei. E isso vale para tudo.*
 
@@ -79,7 +79,7 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 *— Sim, é o prazer do animal. Quando não consegue satisfazê-las, sofre.*
 
-### 969 — O que significa dizer que os Espíritos puros estão reunidos no seio de Deus e ocupados em lhe entoar louvores?
+### 969 — O que significa afirmar que os Espíritos puros estão junto de Deus e o louvam constantemente?
 
 *— Trata-se de uma alegoria, que indica o grau de compreensão que eles têm das perfeições divinas, pois veem e entendem Deus. Não deve ser tomada ao pé da letra. Tudo na natureza, desde um grão de areia, proclama o poder, a sabedoria e a bondade de Deus.*
 
@@ -87,17 +87,17 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 ### 970 — Em que consistem os sofrimentos dos Espíritos inferiores?
 
-*— São tão variados quanto as causas que os provocaram e proporcionais ao grau de inferioridade, assim como as alegrias o são ao de superioridade. Podem ser resumidos assim: invejar aquilo que lhes falta para serem felizes e não poder alcançar; ver a felicidade alheia sem poder usufruí-la; sentir remorso, ciúme, raiva, desespero pelo que os impede de ser felizes; sofrer ansiedade moral indefinível. Desejam todos os prazeres e não conseguem satisfazê-los: isso é o que os atormenta.*
+*— Os sofrimentos dos Espíritos inferiores são tão variados quanto suas imperfeições e proporcionais ao grau de atraso em que se encontram, assim como a felicidade dos Espíritos superiores é proporcional à sua elevação. Em geral, sofrem porque desejam o bem que ainda não conquistaram, invejam a felicidade dos outros, experimentam remorso por seus erros e carregam sentimentos como ciúme, revolta e desespero. Querem ser felizes, mas ainda não sabem como alcançar a verdadeira felicidade, e é essa incapacidade que os atormenta.*
 
-### 971 — A influência que os Espíritos exercem uns sobre os outros é sempre boa?
+### 971 — Os Espíritos sempre influenciam uns aos outros para o bem?
 
-*— É sempre boa da parte dos Espíritos bons. Já os Espíritos maus tentam afastar do bem e do arrependimento aqueles que julgam suscetíveis de se deixarem influenciar, muitas vezes os mesmos que eles conduziram ao mal durante a vida terrena.*
+*— Os Espíritos bons, sim. Já os Espíritos maus procuram manter outros presos aos mesmos erros e paixões que eles próprios cultivam, especialmente aqueles sobre quem já exerceram influência negativa no passado.*
 
-**— Então a morte não nos livra da tentação?**
+**— Então a morte não nos liberta totalmente dessas influências?**
 
-*— Não, mas a influência dos maus Espíritos é muito menor sobre outros Espíritos do que sobre os encarnados, pois lhes falta o apoio das paixões materiais (996).*
+*— Não. Mas elas se tornam muito mais fracas, porque, sem o corpo físico, as paixões materiais deixam de exercer a mesma força (996).*
 
-### 972 — Como os Espíritos maus influenciam os outros, se já não podem agir sobre paixões materiais?
+### 972 — Como os Espíritos maus influenciam os outros Espíritos desencarnados, se já não podem agir sobre paixões materiais?
 
 *— As paixões já não existem mais de forma material, mas continuam existindo no pensamento dos Espíritos atrasados. Os maus alimentam esses pensamentos, conduzindo suas vítimas a ambientes onde se apresentam cenas e lembranças capazes de excitá-los.*
 
@@ -143,11 +143,11 @@ Na erraticidade, o Espírito passa a perceber com mais clareza sua própria traj
 
 *— Necessariamente, como indica o bom senso.*
 
-**— Isso é um castigo?**
+**— Isso representa um sofrimento?**
 
-*— Sim, maior do que se imagina, mas apenas até que o culpado expie suas faltas, seja como Espírito, seja em novas existências corporais.*
+*— Sim, muito maior do que se imagina, mas só até que o Espírito repare suas faltas, seja no estado espiritual, seja em novas existências corporais.*
 
-No mundo espiritual, todo o passado fica exposto. O culpado não pode fugir do olhar de suas vítimas, e essa presença constante é um castigo e um remorso contínuos, até que a reparação seja feita. Já o homem de bem encontra por toda parte acolhimento e serenidade.
+No mundo espiritual, nada permanece oculto. O Espírito vê claramente todo o seu passado e não pode fugir da lembrança do mal que causou nem do olhar daqueles que prejudicou. Essa consciência permanente desperta um profundo remorso e o impulsiona à reparação. Já o homem de bem encontra por toda parte acolhimento, amizade e serenidade.
 
 ### 978 — A lembrança das faltas passadas não perturba a felicidade do Espírito purificado?
 
@@ -165,9 +165,9 @@ A alma que alcança certo grau de pureza já experimenta felicidade. Sente grati
 
 Na afeição sincera e pura, livre de falsidade e hipocrisia, está uma fonte constante de felicidade. Na Terra, o ser humano já prova um reflexo disso quando encontra almas com quem pode se unir de forma verdadeira. Em um estado mais elevado, essa alegria será plena e ilimitada, pois ali o egoísmo não a sufoca. Na essência, tudo é amor; é o egoísmo que o destrói.
 
-### 981 — O estado futuro do Espírito difere conforme ele tema ou aceite a morte?
+### 981 — Ter medo da morte ou aceitá-la faz diferença para o Espírito após o desencarne?
 
-*— Pode diferir muito. Contudo, isso depende dos sentimentos que motivam esse temor ou esse desejo. Temê-la ou desejá-la pode nascer de razões muito diferentes, e são essas razões que influenciam o estado do Espírito.*
+*— Sim, mas não da forma como vocês imaginam. O que realmente importa não é temer ou desejar a morte, e sim o motivo desses sentimentos. Há quem tema a morte por apego egoísta e quem a tema por amor aos que ficará deixando. Há quem a deseje por desespero e quem a aceite com serenidade. É a qualidade desses sentimentos que influencia a situação do Espírito.*
 
 ### 982 — É necessário professar o Espiritismo para garantir uma boa sorte futura?
 
@@ -205,7 +205,7 @@ Nesses mundos mais evoluídos, as necessidades materiais são menores e os sofri
 
 ### 988 — Uma vida tranquila, sem grandes dificuldades, prova que a pessoa não tem nada a expiar?
 
-*— Engana-se quem pensa que isso seja comum. Muitas vezes essa tranquilidade é apenas aparente. Há Espíritos que escolhem uma vida assim, mas ao deixá-la percebem que não progrediram. Lamentam, então, o tempo perdido. O Espírito só evolui pela ação. A indolência não conduz a lugar algum.*
+*— Engana-se quem pensa que isso seja comum. Muitas vezes essa tranquilidade é apenas aparente. Há Espíritos que escolhem uma vida assim, mas ao deixá-la percebem que não progrediram. Lamentam, então, o tempo perdido. O Espírito só evolui pela ação. A preguiça não conduz a lugar algum.*
 
 *Quem desperdiça voluntariamente a própria existência terá de responder por isso. A felicidade futura é proporcional ao bem realizado; a infelicidade, ao mal praticado e ao sofrimento causado aos outros.*
 
@@ -410,10 +410,12 @@ O purgatório não é um lugar, mas um estado temporário do Espírito imperfeit
 
 ### 1018 — O bem reinará algum dia na Terra?
 
-*— Sim, quando os Espíritos bons forem maioria. Isso ocorrerá com o progresso moral da humanidade. Espíritos atrasados migrarão para mundos compatíveis com seu grau de evolução.*
+*— O bem não se estabelecerá na Terra por imposição, mas como consequência da transformação moral da humanidade. Quanto mais as pessoas desenvolverem a empatia, a justiça e a solidariedade, mais o mundo refletirá esses valores. O egoísmo e o orgulho perderão espaço à medida que a consciência coletiva amadurecer.*
 
-Nessa transformação está a verdadeira alegoria do paraíso perdido e do pecado original, entendido como a imperfeição inicial do Espírito.
+*Essa mudança já faz parte do processo evolutivo da humanidade. Novas gerações, compostas por Espíritos mais preparados para viver esses ideais, ajudarão a construir uma sociedade mais equilibrada e fraterna. Os que ainda não estiverem prontos não serão condenados, mas continuarão aprendendo em outros mundos compatíveis com suas necessidades de crescimento.*
 
-*Trabalhai, pois, com coragem na regeneração do mundo. Ai dos egoístas, que não encontrarão quem os ajude a carregar o peso das próprias dores.*
+*As antigas narrativas religiosas podem ser vistas como símbolos dessa jornada. O ser humano não carrega uma culpa herdada, mas imperfeições que precisa vencer gradualmente. O progresso espiritual depende do esforço, das escolhas e da disposição sincera de melhorar.*
+
+*Cada pessoa, portanto, participa dessa transformação. Quem trabalha pelo bem ajuda a construir o futuro. Quem se prende ao egoísmo e aos interesses exclusivamente materiais acaba criando para si dificuldades que somente a renovação interior poderá superar.*
 
 SÃO LUÍS.
