@@ -42,7 +42,7 @@
 
 Todos os Espíritos tendem à perfeição, e Deus lhes oferece os meios de alcançá-la por meio das provas da vida corporal. Sua justiça permite que realizem, em novas existências, aquilo que não puderam concluir em uma primeira experiência.
 
-Deus não agiria com equidade nem com bondade se condenasse eternamente aqueles que encontraram obstáculos ao progresso, impostos pelo meio em que foram colocados, sem que isso dependesse de sua vontade. Se o destino do ser humano fosse decidido de forma definitiva após a morte, a balança da justiça divina não seria a mesma para todos, e não haveria imparcialidade.
+Deus não agiria com equidade nem com bondade se condenasse eternamente aqueles que encontraram obstáculos ao progresso, impostos pelo meio em que foram colocados, sem que isso dependesse de sua vontade. Se o destino do ser humano fosse decidido de forma definitiva após a morte a balança da justiça divina não seria a mesma para todos, e não haveria imparcialidade.
 
 A doutrina da reencarnação — que admite para o Espírito várias existências sucessivas — é a única compatível com a ideia de justiça de Deus em relação aos que se encontram em condição moral inferior. É também a única que explica o futuro e sustenta nossas esperanças, pois oferece os meios de reparar erros por meio de novas provas. A razão a indica, e os Espíritos a ensinam.
 
@@ -106,7 +106,7 @@ Quem, ao final da vida, não lamenta ter adquirido tarde demais uma experiência
 
 **— Isso também pode ocorrer como forma de expiação? Deus pode enviar Espíritos rebeldes para mundos inferiores?**
 
-*— Os Espíritos podem permanecer estacionários, mas não retrocedem. A consequência do estacionamento é a necessidade de recomeçar, em condições compatíveis com sua natureza, as existências que foram mal aproveitadas.*
+*— Sim, pode encarnar em um mundo inferior, sem que isso signifique retrocesso ou expiação. Muitas vezes, essa experiência lhe permite utilizar suas qualidades em favor de outros, ou recomeçar existências anteriores.* 
 
 **— Quais Espíritos precisam recomeçar a mesma existência?**
 

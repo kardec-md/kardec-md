@@ -9,11 +9,11 @@ fontsize: 12pt
 linestretch: 1
 mainfont: "Source Serif 4"
 geometry:
-  - paperwidth=16.3cm
-  - paperheight=23.9cm
-  - layoutwidth=15.3cm
-  - layoutheight=22.9cm
-  - layoutoffset=0.5cm
+  - paperwidth=16cm
+  - paperheight=23cm
+  - layoutwidth=16cm
+  - layoutheight=23cm
+  - layoutoffset=0cm
   - inner=2.0cm
   - outer=1.5cm
   - top=1.8cm

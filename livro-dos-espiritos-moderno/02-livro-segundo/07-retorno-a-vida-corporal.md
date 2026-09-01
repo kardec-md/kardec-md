@@ -124,15 +124,15 @@ Assim como a morte do corpo é, para o Espírito, uma espécie de renascimento, 
 
 ### 356 — Entre os natimortos, há alguns que não foram destinados à encarnação de Espíritos?
 
-*— Sim, há casos em que nenhum Espírito foi destinado àqueles corpos. Nada havia a ser realizado ali. Essas crianças existem apenas em função dos pais.*
+*— Sim. Em alguns casos, nenhum Espírito foi destinado àquele corpo. Nenhuma encarnação estava prevista ali. Nesses casos, a gestação ocorre apenas em relação à experiência que os pais precisam viver.*
 
-**— Um ser assim pode nascer com vida?**
+**— Um ser assim pode chegar ao fim da gestação?**
 
-*— Algumas vezes, sim, mas não sobrevive.*
+*— Sim. Às vezes nasce, mas não sobrevive.*
 
-**— Toda criança que vive após o nascimento tem necessariamente um Espírito encarnado?**
+**— Toda criança que sobrevive ao nascimento tem necessariamente um Espírito encarnado?**
 
-*— O que ela seria se assim não fosse? Não seria um ser humano.*
+*— O que ela seria, se assim não fosse? Não seria um ser humano.*
 
 ### 357 — Que consequências o aborto tem para o Espírito?
 

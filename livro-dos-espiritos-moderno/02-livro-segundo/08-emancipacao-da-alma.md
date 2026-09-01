@@ -288,7 +288,7 @@ A letargia e a catalepsia derivam do mesmo princípio, que é a perda temporári
 *— Pode. A segunda vista possui diferentes graus de manifestação e pode se expressar de várias formas, inclusive por meio de pressentimentos, podendo várias dessas manifestações coexistir numa mesma pessoa.*
 
 
-### Resumo teórico do sonambulismo, do êxtase e da segunda vista
+### 455 - Resumo teórico do sonambulismo, do êxtase e da segunda vista
 
 Os fenômenos do sonambulismo natural ocorrem espontaneamente e independem de causa exterior conhecida. Em algumas pessoas, dotadas de organização física particular, podem ser provocados artificialmente pela ação magnética.
 

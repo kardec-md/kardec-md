@@ -370,13 +370,13 @@ Os Espíritos protetores nos orientam por meio da voz da consciência, que resso
 ## Influência dos Espíritos nos acontecimentos da vida
 ### 525 — Os Espíritos exercem alguma influência nos acontecimentos da vida?
 
-*— Certamente, pois eles aconselham.*
+*— Certamente. Muitas vezes são eles que os aconselham.*
 
 **— Essa influência ocorre apenas por meio dos pensamentos que sugerem, ou eles também atuam diretamente nos acontecimentos?**
 
 *— Sim, atuam, mas sempre dentro das leis da natureza.*
 
-Costumamos imaginar que os Espíritos só atuam por meio de fenômenos extraordinários. Gostaríamos que nos ajudassem através de milagres e os imaginamos como se tivessem poderes mágicos. Como não é assim, a ação deles nos parece invisível e o que acontece nos soa apenas como algo natural. Eles podem, por exemplo, favorecer o encontro de duas pessoas que acreditam ter se encontrado por acaso; inspirar alguém a passar por determinado lugar; ou chamar sua atenção para algo específico. Mesmo assim, a pessoa continua acreditando que agiu por vontade própria, preservando sempre o livre-arbítrio.
+Costumamos imaginar que os Espíritos só atuam por meio de fenômenos extraordinários. Gostaríamos que nos ajudassem através de milagres e os imaginamos como se tivessem poderes mágicos. Como não é assim, sua ação nos parece invisível, e aquilo que acontece nos parece apenas natural. Eles podem, por exemplo, favorecer o encontro de duas pessoas que acreditam ter se encontrado por acaso, inspirar alguém a passar por determinado lugar ou chamar sua atenção para algo específico. Essa influência pode passar despercebida, mas não elimina o livre-arbítrio: a pessoa continua livre para seguir ou rejeitar a inspiração recebida e escolher outro caminho.
 
 ### 526 — Tendo ação sobre a matéria, podem os Espíritos provocar acontecimentos para que algo se cumpra? Por exemplo: um homem deve morrer; sobe uma escada, a escada quebra e ele morre da queda. Foram os Espíritos que quebraram a escada?
 
