@@ -99,6 +99,9 @@ Resposta atribuída ao Espírito Monod, pastor protestante em Paris, desencarnad
 
 
 ## Politeísmo
+
+A crença na existência de vários deuses.
+
 ### 667 — Por que a crença no politeísmo, apesar de falsa, é tão antiga e difundida?
 
 *— A ideia de um Deus único só surge com o desenvolvimento do pensamento. Incapaz de conceber um ser imaterial atuando sobre a matéria, o homem primitivo atribuiu forma e características humanas ao divino. Tudo o que ultrapassava sua compreensão era visto como sobrenatural. Assim, passou a acreditar em várias forças divinas, uma para cada fenômeno observado. Ainda assim, sempre existiram homens mais esclarecidos que perceberam a impossibilidade de múltiplos poderes governarem o mundo sem uma direção superior, chegando à ideia de um Deus único.*

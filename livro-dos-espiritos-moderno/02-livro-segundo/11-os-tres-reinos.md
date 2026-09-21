@@ -87,7 +87,7 @@ Peixes nadam em cardumes e aves voam em bando, seguindo um líder e se movendo e
 
 ### 601 — Os animais estão sujeitos a uma lei de progresso?
 
-*— Sim. Por isso, em mundos mais elevados, os animais também são mais adiantados, embora sempre inferiores ao homem e subordinados a ele.*
+*— Sim. Por isso, em mundos mais elevados, os animais também são mais adiantados, embora sempre inferiores ao homem.*
 
 ### 602 — Os animais progridem por vontade própria ou pela força das circunstâncias?
 
@@ -148,6 +148,9 @@ Quando o Espírito encarna no corpo humano, traz com ele o princípio intelectua
 *— Não, mas a questão ainda não estava completamente explicada. Há pontos que só podem ser esclarecidos no momento certo. O ser humano pode ser considerado à parte porque possui faculdades que o distinguem dos demais seres. É nele que encarnam os Espíritos capazes de compreender Deus.*
 
 ## Metempsicose
+
+A crença de que, após a morte física, a alma de uma pessoa deixa o corpo e passa a habitar um novo organismo, que pode ser outro ser humano, um animal ou até mesmo uma planta.
+
 ### 611 — O fato de todos os seres vivos terem origem comum no princípio inteligente não confirma a doutrina da metempsicose?
 
 *— Duas coisas podem ter a mesma origem e, depois, não se parecerem em nada. Quem reconheceria a árvore, com suas folhas, flores e frutos, dentro do pequeno broto escondido na semente? Quando o princípio inteligente alcança o nível necessário para se tornar Espírito e entrar no período humano, ele já não tem mais nada a ver com o estado anterior. Já não é a alma dos animais, do mesmo jeito que a árvore já não é a semente.*

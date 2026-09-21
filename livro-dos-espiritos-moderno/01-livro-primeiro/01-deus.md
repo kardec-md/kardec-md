@@ -91,6 +91,8 @@ As limitações das faculdades humanas impedem a compreensão da natureza íntim
 
 ## Panteísmo
 
+A crença que Deus e o Universo são a mesma coisa.
+
 ### 14 — Deus é um ser distinto ou, como afirmam alguns, o resultado da soma de todas as forças e inteligências do universo?
 
 *— Se fosse assim, Deus não existiria, pois seria efeito e não causa. Ele não pode ser, ao mesmo tempo, uma coisa e outra.*
