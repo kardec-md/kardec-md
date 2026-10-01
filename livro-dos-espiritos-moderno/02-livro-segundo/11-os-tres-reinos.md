@@ -87,7 +87,7 @@ Peixes nadam em cardumes e aves voam em bando, seguindo um líder e se movendo e
 
 ### 601 — Os animais estão sujeitos a uma lei de progresso?
 
-*— Sim. Por isso, em mundos mais elevados, os animais também são mais adiantados, embora sempre inferiores ao homem.*
+*— Sim. Por isso, em mundos mais elevados, os animais também são mais adiantados, embora sempre inferiores ao homem e submetidos a ele.*
 
 ### 602 — Os animais progridem por vontade própria ou pela força das circunstâncias?
 
