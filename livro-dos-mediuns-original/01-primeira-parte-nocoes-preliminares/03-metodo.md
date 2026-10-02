@@ -1,4 +1,4 @@
-# Capítulo 3 - Do método
+# Capítulo 3 - Método
 
 ### 18
 

@@ -1,3 +1,3 @@
 ---
-title: 'Segunda parte - Das manifestações espíritas'
+title: 'Segunda parte - Manifestações espíritas'
 ---

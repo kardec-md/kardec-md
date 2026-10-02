@@ -1,4 +1,4 @@
-# Capítulo 1 - Da ação dos Espíritos sobre a matéria
+# Capítulo 1 - Ação dos Espíritos sobre a matéria
 
 ### 52
 
@@ -16,7 +16,11 @@ Quem se quiser reportar a tudo o que dissemos em O Livro dos Espíritos sobre os
 
 ### 54
 
-Numerosas observações e fatos irrecusáveis, de que mais tarde falaremos, levaram à consequência de que há no homem três componentes: 1.º, a alma, ou Espírito, princípio inteligente, onde tem sua sede o senso moral; 2.º, o corpo, invólucro grosseiro, material, de que ele se revestiu temporariamente, em cumprimento de certos desígnios providenciais; 3.º, o perispírito, envoltório fluídico, semimaterial, que serve de ligação entre a alma e o corpo.
+Numerosas observações e fatos irrecusáveis, de que mais tarde falaremos, levaram à consequência de que há no homem três componentes: 
+
+1. A alma, ou Espírito, princípio inteligente, onde tem sua sede o senso moral; 
+2. O corpo, invólucro grosseiro, material, de que ele se revestiu temporariamente, em cumprimento de certos desígnios providenciais;
+3. O perispírito, envoltório fluídico, semimaterial, que serve de ligação entre a alma e o corpo.
 
 A morte é a destruição, ou, antes, a desagregação do envoltório grosseiro, do invólucro que a alma abandona. O outro se desliga deste e acompanha a alma que, assim, fica sempre com um envoltório. Este último, ainda que fluídico, etéreo, vaporoso, invisível, para nós, em seu estado normal, não deixa de ser matéria, embora até ao presente não tenhamos podido assenhorear-nos dela e submetê-la à análise.
 

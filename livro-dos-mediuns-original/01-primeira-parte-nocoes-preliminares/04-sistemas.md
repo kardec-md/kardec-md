@@ -1,4 +1,4 @@
-# Capítulo 4 - Dos sistemas
+# Capítulo 4 - Sistemas
 
 ### 36
 

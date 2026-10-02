@@ -1,4 +1,4 @@
-# Capítulo 2 - Do maravilhoso e do sobrenatural
+# Capítulo 2 - Maravilhoso e do sobrenatural
 
 ### 7
 

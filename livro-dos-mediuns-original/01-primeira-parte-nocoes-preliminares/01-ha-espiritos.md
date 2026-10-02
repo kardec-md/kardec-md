@@ -10,7 +10,12 @@ Seja qual for a ideia que dos Espíritos se faça, a crença neles necessariamen
 
 ### 2
 
-Desde que se admite a existência da alma e sua individualidade após a morte, forçoso é também se admita: 1.º, que a sua natureza difere da do corpo, visto que, separada deste, deixa de ter as propriedades peculiares ao corpo; 2º, que goza da consciência de si mesma, pois que é passível de alegria, ou de sofrimento, sem o que seria um ser inerte, caso em que possuí-la de nada nos valeria. Admitido isso, tem-se que admitir que essa alma vai para alguma parte. Que vem a ser feito dela e para onde vai?
+Desde que se admite a existência da alma e sua individualidade após a morte, forçoso é também se admita:
+
+1. Que a sua natureza difere da do corpo, visto que, separada deste, deixa de ter as propriedades peculiares ao corpo; 
+2. Que goza da consciência de si mesma, pois que é passível de alegria, ou de sofrimento, sem o que seria um ser inerte, caso em que possuí-la de nada nos valeria. 
+
+Admitido isso, tem-se que admitir que essa alma vai para alguma parte. Que vem a ser feito dela e para onde vai?
 
 Segundo a crença vulgar, vai para o céu, ou para o inferno. Mas, onde ficam o céu e o inferno? Dizia-se outrora que o céu era em cima e o inferno embaixo. Porém, o que são o alto e o baixo no universo, uma vez que se conhecem a esfericidade da Terra, o movimento dos astros, movimento que faz com que o que em dado instante está no alto esteja, doze horas depois, embaixo, e o infinito do espaço, através do qual o olhar penetra, indo a distâncias consideráveis? Verdade é que por lugares inferiores também se designam as profundezas da Terra. Mas, que vêm a ser essas profundezas, desde que a geologia as esquadrinhou? Que ficaram sendo, igualmente, as esferas concêntricas chamadas céu de fogo, céu das estrelas, desde que se verificou que a Terra não é o centro dos mundos, que mesmo o nosso Sol não é único, que milhões de sóis brilham no espaço, constituindo cada um o centro de um turbilhão planetário? A que ficou reduzida a importância da Terra, mergulhada nessa imensidade? Por que injustificável privilégio este quase imperceptível grão de areia, que não avulta pelo seu volume, nem pela sua posição, nem pelo papel que lhe cabe desempenhar, seria o único planeta povoado de seres racionais? A razão se recusa a admitir semelhante nulidade do infinito e tudo nos diz que os diferentes mundos são habitados. Ora, se são povoados, também fornecem seus contingentes para o mundo das almas. Porém, ainda uma vez, que terá sido feito dessas almas, depois que a astronomia e a geologia destruíram as moradas que se lhes destinavam e, sobretudo, depois que a teoria, tão racional, da pluralidade dos mundos, as multiplicou ao infinito?
 
