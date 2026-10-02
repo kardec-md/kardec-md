@@ -107,7 +107,7 @@ Reprimir as manifestações exteriores de uma crença, quando causam prejuízo a
 
 *— É inegável que a matéria influencia o Espírito e pode dificultar suas manifestações. Por isso, em mundos menos materiais do que a Terra, as faculdades se expressam com mais liberdade. Mas o organismo não cria a faculdade. É preciso distinguir as faculdades morais das intelectuais. Se um homem tem o instinto de matar, esse instinto pertence ao Espírito, não aos órgãos do corpo. Pior do que o bruto se torna aquele que se entrega totalmente à matéria e deixa de vigiar seus próprios impulsos. É aí que ocorre a falta, porque assim procede por vontade própria.*
 
-(Veja n°s. 367 e seguintes: “Influência do organismo”.)
+(367 e seguintes: “Influência do organismo”.)
 
 ### 847 — A perturbação das faculdades mentais elimina o livre-arbítrio?
 
