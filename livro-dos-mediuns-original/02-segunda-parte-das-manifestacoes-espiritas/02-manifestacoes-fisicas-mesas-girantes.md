@@ -1,4 +1,4 @@
-# Capítulo 2 - Manifestações físicas e mesas girantes
+# Capítulo 2 - Manifestações físicas. Mesas girantes
 
 ### 60
 
