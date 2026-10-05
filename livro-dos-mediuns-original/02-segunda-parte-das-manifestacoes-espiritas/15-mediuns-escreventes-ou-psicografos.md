@@ -44,7 +44,7 @@ Também se podem incluir nesta categoria as pessoas que, sem serem dotadas de in
 
 ### 183
 
-Os homens de gênio, de todas as espécies, artistas, sábios, literatos, são sem dúvida Espíritos adiantados, capazes de compreender por si mesmos e de conceber grandes coisas. Ora, precisamente porque os julgam capazes, é que os Espíritos, quando querem executar certos trabalhos, lhes sugerem as ideias necessárias e assim é que eles, as mais das vezes, são médiuns sem o saberem. Têm, no entanto, vaga intuição de uma assistência estranha, visto que todo aquele que apela para a inspiração, mais não faz do que uma evocação. Se não esperasse ser atendido, por que exclamaria, tão frequentemente: — "Meu bom gênio, vem em meu auxílio!" — ?
+Os homens de gênio, de todas as espécies, artistas, sábios, literatos, são sem dúvida Espíritos adiantados, capazes de compreender por si mesmos e de conceber grandes coisas. Ora, precisamente porque os julgam capazes, é que os Espíritos, quando querem executar certos trabalhos, lhes sugerem as ideias necessárias e assim é que eles, as mais das vezes, são médiuns sem o saberem. Têm, no entanto, vaga intuição de uma assistência estranha, visto que todo aquele que apela para a inspiração, mais não faz do que uma evocação. Se não esperasse ser atendido, por que exclamaria, tão frequentemente: *"Meu bom gênio, vem em meu auxílio!"* ?
 
 As respostas seguintes confirmam esta asserção:
 

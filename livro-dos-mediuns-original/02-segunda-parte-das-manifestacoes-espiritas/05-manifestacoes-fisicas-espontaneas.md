@@ -22,7 +22,7 @@ Alcançado esse fim, cessa a manifestação material, por desnecessária. Um ou 
 
 ### 86
 
-Há muitos anos, quando ainda iniciava meus estudos sobre o Espiritismo, estando certa noite entregue a um trabalho referente a esta matéria, pancadas se fizeram ouvir em torno de mim, durante quatro horas consecutivas. Era a primeira vez que tal coisa me acontecia. Verifiquei não serem devidas a nenhuma causa acidental, mas, na ocasião, foi só o que pude saber. Por essa época, tinha eu frequentes ensejos de estar com um excelente médium escrevente. No dia seguinte, perguntei ao Espírito, que por seu intermédio se comunicava, qual a causa daquelas pancadas. “Era”, respondeu-me ele, “o teu Espírito familiar que te desejava falar.” Perguntei: “Que queria de mim?” Respondeu: “Ele está aqui, pergunta-lhe.” Tendo-o interrogado, aquele Espírito se deu a conhecer sob um nome alegórico. (Vim a saber depois, por outros Espíritos, que pertence a uma categoria muito elevada e que desempenhou na Terra importante papel.)
+Há muitos anos, quando ainda iniciava meus estudos sobre o Espiritismo, estando certa noite entregue a um trabalho referente a esta matéria, pancadas se fizeram ouvir em torno de mim, durante quatro horas consecutivas. Era a primeira vez que tal coisa me acontecia. Verifiquei não serem devidas a nenhuma causa acidental, mas, na ocasião, foi só o que pude saber. Por essa época, tinha eu frequentes ensejos de estar com um excelente médium escrevente. No dia seguinte, perguntei ao Espírito, que por seu intermédio se comunicava, qual a causa daquelas pancadas. *Era*, respondeu-me ele, *o teu Espírito familiar que te desejava falar.* Perguntei: *Que queria de mim?* Respondeu: *Ele está aqui, pergunta-lhe.* Tendo-o interrogado, aquele Espírito se deu a conhecer sob um nome alegórico. (Vim a saber depois, por outros Espíritos, que pertence a uma categoria muito elevada e que desempenhou na Terra importante papel.)
 
 Apontou erros no meu trabalho, indicando-me as linhas onde se encontravam; deu-me úteis e sábios conselhos e acrescentou que estaria sempre comigo e atenderia ao meu chamado todas as vezes que o quisesse interrogar.
 
@@ -240,7 +240,7 @@ A teoria do fenômeno dos transportes e das manifestações físicas em geral se
 
 *Bem sei que ides dizer: é que estes são úteis para convencer os incrédulos. Mas, ficai sabendo, se não houvésseis disposto de outros meios de convicção, não contaríeis hoje a centésima parte dos espíritas que existem. Falai ao coração; por aí é que fareis maior número de conversões sérias. Se julgardes conveniente, para certas pessoas valer-vos dos fatos materiais, ao menos apresentai-os em circunstâncias tais, que não possam permitir nenhuma interpretação falsa e, sobretudo, não vos afasteis das condições normais dos mesmos fatos, porque, apresentados em más condições, eles fornecem argumentos aos incrédulos, em vez de convencê-los.*
 
-*ERASTO.*
+ERASTO.
 
 [^1]: Vê-se que, quando se trata de exprimir uma ideia nova, para a qual faltam termos na língua, os Espíritos sabem perfeitamente criar neologismos. Estas palavras: eletromediúnico, perispirítico, — não são de invenção nossa. Os que nos têm criticado por havermos criado os termos espírita, espiritismo, perispírito, que tinham análogos, poderão fazer também a mesma crítica aos Espíritos.
 

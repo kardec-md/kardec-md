@@ -54,7 +54,9 @@ As manifestações espontâneas, que em todos os tempos se hão produzido, e a p
 
 **a) Que circunstâncias podem induzi-los a buscar tais lugares?**
 
-*— A simpatia por algumas das pessoas que os frequentam, ou o desejo de com elas se comunicarem. Entretanto, nem sempre os animam intenções louváveis. Quando são Espíritos maus, podem pretender tirar vingança de pessoas de quem guardam queixas. A permanência em determinado lugar também pode ser, para alguns, uma punição que lhes é infligida, sobretudo se ali cometeram um crime, a fim de que o tenham constantemente diante dos olhos.* (Veja-se Revista Espírita, de fevereiro de 1860: “História de um danado”.)
+*— A simpatia por algumas das pessoas que os frequentam, ou o desejo de com elas se comunicarem. Entretanto, nem sempre os animam intenções louváveis. Quando são Espíritos maus, podem pretender tirar vingança de pessoas de quem guardam queixas. A permanência em determinado lugar também pode ser, para alguns, uma punição que lhes é infligida, sobretudo se ali cometeram um crime, a fim de que o tenham constantemente diante dos olhos.*
+
+(Veja-se Revista Espírita, de fevereiro de 1860: “História de um danado”.)
 
 **X. Os lugares assombrados sempre o são por antigos habitantes deles?**
 
@@ -84,7 +86,9 @@ As manifestações espontâneas, que em todos os tempos se hão produzido, e a p
 
 *— Já tiveste ocasião de verificar a eficácia desse processo? Não tens visto, ao contrário, as tropelias redobrarem de intensidade, depois das cerimônias do exorcismo? É que os Espíritos que as causam se divertem com o serem tomados pelo diabo.*
 
-*Também, os que se não apresentam com intenções malévolas podem manifestar sua presença por meio de ruídos e até tornando-se visíveis, mas nunca praticam desordens, nem incômodos. São, frequentemente, Espíritos sofredores, cujos sofrimentos podeis aliviar orando por eles. Outras vezes, são mesmo Espíritos benfazejos, que vos querem provar estarem junto de vós, ou, então, Espíritos levianos que brincam. Como quase sempre os que perturbam o repouso são Espíritos que se divertem, o que de melhor têm a fazer, os que se veem perseguidos, é rir do que lhes sucede. Os perturbadores se cansam, verificando que não conseguem meter medo, nem impacientar.* (Veja-se atrás o capítulo 5, Manifestações físicas espontâneas.)
+*Também, os que se não apresentam com intenções malévolas podem manifestar sua presença por meio de ruídos e até tornando-se visíveis, mas nunca praticam desordens, nem incômodos. São, frequentemente, Espíritos sofredores, cujos sofrimentos podeis aliviar orando por eles. Outras vezes, são mesmo Espíritos benfazejos, que vos querem provar estarem junto de vós, ou, então, Espíritos levianos que brincam. Como quase sempre os que perturbam o repouso são Espíritos que se divertem, o que de melhor têm a fazer, os que se veem perseguidos, é rir do que lhes sucede. Os perturbadores se cansam, verificando que não conseguem meter medo, nem impacientar.*
+
+(Veja-se atrás o capítulo 5, Manifestações físicas espontâneas.)
 
 Resulta das explicações acima haver Espíritos que se prendem a certos lugares, preferindo permanecer neles, sem que, entretanto, tenham necessidade de manifestar sua presença por meio de efeitos sensíveis. Qualquer lugar pode constituir morada obrigatória, ou predileta de um Espírito, embora mau, sem que jamais qualquer manifestação se produza. Os que se prendem a certas localidades, ou a certas coisas materiais, nunca são Espíritos superiores. Contudo, mesmo que não pertençam a esta categoria, pode dar-se que não sejam maus e nenhuma intenção má alimentem. Não raro, são até comensais mais úteis do que prejudiciais, porquanto, desde que se interessam pelas pessoas, podem protegê-las.
 
