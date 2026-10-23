@@ -18,7 +18,7 @@ Deus é infinito em suas perfeições, mas o infinito é uma abstração. Dizer 
 
 ---
 
-As perguntas feitas aos espíritos estão em **negrito**, e as respostas destes em _itálico_. As notas de Allan Kardec constam logo em seguida, sem formatação.
+As perguntas feitas aos espíritos estão em **negrito**, e as respostas destes em *itálico*. As notas de Allan Kardec constam logo em seguida, sem formatação.
 
 
 ## Provas da existência de Deus
