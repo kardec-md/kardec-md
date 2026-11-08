@@ -1,6 +1,6 @@
 # Capítulo 2 - Elementos gerais do Universo
 
-## Conhecimento do princípio das coisas
+## Conhecimento do princípio das coisas.
 ### 17 — É dado ao ser humano conhecer o princípio das coisas?
 
 *— Não. Deus não permite que tudo seja revelado ao ser humano neste mundo.*
