@@ -1,0 +1,3 @@
+# Versão Kindle: só para o KDP, não pode ficar pública
+*.epub
+*-kindle-cover.jpg

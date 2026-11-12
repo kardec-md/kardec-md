@@ -1,0 +1,22 @@
+---
+title: "Livro dos Espíritos"
+author: "Allan Kardec"
+date: 2026
+lang: pt-BR
+documentclass: extbook
+pagestyle: plain
+fontsize: 12pt
+linestretch: 1
+mainfont: "Source Serif 4"
+geometry:
+  - paperwidth=16.3cm
+  - paperheight=23.9cm
+  - layoutwidth=15.3cm
+  - layoutheight=22.9cm
+  - layoutoffset=0.5cm
+  - inner=2.0cm
+  - outer=1.5cm
+  - top=1.8cm
+  - bottom=2.2cm
+  - footskip=1.1cm
+---

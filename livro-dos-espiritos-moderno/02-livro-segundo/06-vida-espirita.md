@@ -332,11 +332,13 @@ O viajante que atravessa um vale profundo coberto por densa neblina não consegu
 
 *— Isso decorre da escolha das provas e do progresso realizado em existências anteriores.*
 
-### Se, antes de reencarnar, o Espírito analisa os meios de progredir, por que às vezes escolhe nascer entre povos em estágios mais primitivos de desenvolvimento?
+### 271 — Antes de reencarnar, o Espírito estuda como pode progredir. Como ele espera progredir nascendo, por exemplo, entre povos considerados selvagens?
 
-*— Espíritos adiantados geralmente não nascem entre povos extremamente atrasados. Aqueles que ali encarnam possuem natureza semelhante ou ainda inferior. Entretanto, às vezes, Espíritos superiores podem encarnar nesses meios por missão, a fim de auxiliar e orientar os demais.*
+*— Espíritos adiantados não nascem entre povos extremamente atrasados. Aqueles que ali encarnam possuem natureza semelhante ou ainda inferior.*
 
-Existem mundos mais rudes do que a Terra, onde a brutalidade é maior. Para Espíritos desses mundos, nascer entre povos primitivos da Terra representa progresso. O avanço do Espírito é gradual; não se dá por saltos. É por isso que a reencarnação é necessária e justa.
+(Espíritos superiores podem, porém, encarnar em meios inferiores por missão. Ver questão 178.)
+
+Existem mundos mais rudes do que a Terra, onde a brutalidade é ainda maior. Para os Espíritos que vêm de lá, nascer entre os povos mais primitivos da Terra já é um avanço. O Espírito progride aos poucos e não consegue passar de uma vez da barbárie à civilização. Esse é um dos motivos que mostram por que a reencarnação é necessária e por que ela está de acordo com a justiça de Deus. Sem ela, o que aconteceria com os milhões de pessoas que morrem todos os dias em condições de extrema degradação, sem nenhuma chance de evoluir? Por que Deus negaria a elas as oportunidades que dá a todas as outras?
 
 ### 272 — Espíritos vindos de mundos inferiores ou de povos muito atrasados podem nascer entre povos civilizados?
 
