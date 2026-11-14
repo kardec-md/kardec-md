@@ -54,9 +54,9 @@ As manifestações espontâneas, que em todos os tempos se hão produzido, e a p
 
 **a) — Que circunstâncias podem induzi-los a buscar tais lugares?**
 
-*— A simpatia por algumas das pessoas que os frequentam, ou o desejo de com elas se comunicarem. Entretanto, nem sempre os animam intenções louváveis. Quando são Espíritos maus, podem pretender vingar-se de pessoas de quem guardam queixas. A permanência em determinado lugar também pode ser, para alguns, uma punição que lhes é infligida, sobretudo se ali cometeram um crime, a fim de que o tenham constantemente diante dos olhos.[^1]*
+*— A simpatia por algumas das pessoas que os frequentam, ou o desejo de com elas se comunicarem. Entretanto, nem sempre os animam intenções louváveis. Quando são Espíritos maus, podem pretender vingar-se de pessoas de quem guardam queixas. A permanência em determinado lugar também pode ser, para alguns, uma punição que lhes é infligida, sobretudo se ali cometeram um crime, a fim de que o tenham constantemente diante dos olhos.[^10]*
 
-[^1]: Veja-se a Revista Espírita, de fevereiro de 1860: “História de um danado”.
+[^10]: Veja-se a Revista Espírita, de fevereiro de 1860: “História de um danado”.
 
 **X. Os lugares assombrados sempre o são por antigos habitantes deles?**
 

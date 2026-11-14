@@ -1,23 +1,23 @@
 # Capítulo 6 - Lei de destruição
 
 ## Destruição necessária e destruição abusiva
-### 728 — É lei da natureza a destruição?
+### 728 — É Lei da Natureza a destruição?
 
-*— Preciso é que tudo se destrua para renascer e se regenerar; porque, o que chamais destruição não passa de uma transformação, que tem por fim a renovação e melhoria dos seres vivos.*
+*— Preciso é que tudo se destrua para renascer e se regenerar. Porque, o que chamais destruição não passa de uma transformação, que tem por fim a renovação e melhoria dos seres vivos.*
 
-**— O instinto de destruição teria, desse modo, sido dado aos seres vivos por desígnios providenciais?**
+**— O instinto de destruição teria sido dado aos seres vivos por desígnios providenciais?**
 
-*— As criaturas são instrumentos de que Deus se serve para chegar aos fins que objetiva. Para se alimentarem, os seres vivos reciprocamente se destroem, destruição esta que obedece a um duplo fim: manutenção do equilíbrio na reprodução, que poderia tornar-se excessiva, e utilização dos despojos do envoltório exterior que sofre a destruição. Sempre, porém, é apenas esse envoltório que é destruído; e ele é simples acessório, não a parte essencial do ser vivo. A parte essencial é o princípio inteligente, que não se pode destruir e se elabora nas metamorfoses diversas por que passa.*
+*— As criaturas são instrumentos de que Deus se serve para chegar aos fins que objetiva. Para se alimentarem, os seres vivos reciprocamente se destroem, destruição esta que obedece a um duplo fim: manutenção do equilíbrio na reprodução, que poderia tornar-se excessiva, e utilização dos despojos do invólucro exterior que sofre a destruição. Esse invólucro é simples acessório e não a parte essencial do ser pensante. A parte essencial é o princípio inteligente, que não se pode destruir e se elabora nas metamorfoses diversas por que passa.*
 
-### 729 — Se a regeneração dos seres faz necessária a destruição, por que os cerca a natureza de meios de preservação e conservação?
+### 729 — Se a regeneração dos seres faz necessária a destruição, por que os cerca a Natureza de meios de preservação e conservação?
 
-*— A fim de que a destruição não se dê antes do tempo. Toda destruição antecipada obsta ao desenvolvimento do princípio inteligente. Por isso foi que Deus fez que cada ser experimentasse a necessidade de viver e de se reproduzir.*
+*— A fim de que a destruição não se dê antes de tempo. Toda destruição antecipada obsta ao desenvolvimento do princípio inteligente. Por isso foi que Deus fez que cada ser experimentasse a necessidade de viver e de se reproduzir.*
 
-### 730 — Uma vez que a morte nos faz passar a uma vida melhor, nos livra dos males desta, sendo, pois, mais de desejar do que de temer, por que lhe tem o homem, instintivamente, tal horror, que ela lhe é motivo de apreensão?
+### 730 — Uma vez que a morte nos faz passar a uma vida melhor, nos livra dos males desta, sendo, pois, mais de desejar do que de temer, por que lhe tem o homem, instintivamente, tal horror, que ela lhe é sempre motivo de apreensão?
 
-*— Já dissemos que o homem deve procurar prolongar a vida para cumprir a sua tarefa. Tal o motivo por que Deus lhe deu o instinto de conservação, instinto que o sustenta nas provas. A não ser assim, ele muito frequentemente se entregaria ao desânimo. A voz íntima que o induz a repelir a morte lhe diz que ainda pode realizar alguma coisa pelo seu progresso. A ameaça de um perigo constitui aviso para que se aproveite da dilação que Deus lhe concede. Mas, ingrato, o homem rende graças mais vezes à sua estrela do que ao seu Criador.*
+*— Já dissemos que o homem deve procurar prolongar a vida, para cumprir a sua tarefa. Tal o motivo por que Deus lhe deu o instinto de conservação, instinto que o sustenta nas provas. A não ser assim, ele muito frequentemente se entregaria ao desânimo. A voz íntima, que o induz a repelir a morte, lhe diz que ainda pode realizar alguma coisa pelo seu progresso. A ameaça de um perigo constitui aviso para que se aproveite da dilação que Deus lhe concede, mas, ingrato! o homem rende graças mais vezes à sua estrela do que ao seu Criador.*
 
-### 731 — Por que, ao lado dos meios de conservação, colocou a natureza os agentes de destruição?
+### 731 — Por que, ao lado dos meios de conservação, colocou a Natureza os agentes de destruição?
 
 *— É o remédio ao lado do mal. Já dissemos: para manter o equilíbrio e servir de contrapeso.*
 
@@ -31,11 +31,11 @@
 
 ### 734 — Em seu estado atual, tem o homem direito ilimitado de destruição sobre os animais?
 
-*— Tal direito se acha regulado pela necessidade, que ele tem, de prover ao seu sustento e à sua segurança. O abuso jamais constituiu direito.*
+*— Tal direito se acha regulado pela necessidade que ele tem de prover ao seu sustento e à sua segurança. O abuso jamais constituiu direito.*
 
 ### 735 — Que se deve pensar da destruição, quando ultrapassa os limites que as necessidades e a segurança traçam? Da caça, por exemplo, quando não objetiva senão o prazer de destruir sem utilidade?
 
-*— Predominância da bestialidade sobre a natureza espiritual. Toda destruição que excede os limites da necessidade é uma violação da lei de Deus. Os animais só destroem para satisfação de suas necessidades; enquanto que o homem, dotado de livre arbítrio, destrói sem necessidade. Terá que prestar contas do abuso da liberdade que lhe foi concedida, pois isso significa que cede aos maus instintos.*
+*— Predominância da bestialidade sobre a natureza espiritual. Toda destruição que excede os limites da necessidade é uma violação da Lei de Deus. Os animais só destroem para satisfação de suas necessidades; enquanto o homem, dotado de livre-arbítrio, destrói sem necessidade. Terá que prestar contas do abuso da liberdade que lhe foi concedida, pois isso significa que cede aos maus instintos.*
 
 ### 736 — Especial merecimento terão os povos que levam ao excesso o escrúpulo, quanto à destruição dos animais?
 
@@ -43,13 +43,13 @@
 
 
 ## Flagelos destruidores
-### 737 — Com que fim fere Deus a humanidade por meio de flagelos destruidores?
+### 737 — Com que fim fere Deus a Humanidade por meio de flagelos destruidores?
 
-*— Para fazê-la progredir mais depressa. Já não dissemos ser a destruição uma necessidade para a regeneração moral dos Espíritos, que, em cada nova existência, sobem um degrau na escala do aperfeiçoamento? Preciso é que se veja o objetivo, para que os resultados possam ser apreciados. Somente do vosso ponto de vista pessoal os apreciais; daí vem que os qualificais de flagelos, por efeito do prejuízo que vos causam. Essas subversões, porém, são frequentemente necessárias para que mais pronto se dê o advento de uma melhor ordem de coisas e para que se realize em alguns anos o que teria exigido muitos séculos (744).*
+*— Para fazê-la progredir mais depressa. Já não dissemos ser a destruição uma necessidade para a regeneração moral dos Espíritos, que, em cada nova existência, sobem um degrau na escala do aperfeiçoamento? Preciso é que se veja o objetivo, para que os resultados possam ser apreciados. Somente do vosso ponto de vista pessoal os apreciais; daí vem que os qualificais de flagelos, por efeito do prejuízo que vos causam. Essas subversões, porém, são frequentemente necessárias para que mais pronto se dê o advento de uma melhor ordem de coisas e para que se realize em alguns anos o que teria exigido muitos séculos.* (744)
 
-### 738 — Para conseguir a melhora da humanidade não podia Deus empregar outros meios, que não os flagelos destruidores?
+### 738 — Para conseguir a melhora da Humanidade, não podia Deus empregar outros meios que não os flagelos destruidores?
 
-*— Sim, e os emprega todos os dias, pois que deu a cada um os meios de progredir pelo conhecimento do bem e do mal. O homem, porém, não se aproveita desses meios. Necessário, portanto, se torna que seja castigado no seu orgulho e que se lhe faça sentir a sua fraqueza.*
+*— Pode e os emprega todos os dias, pois que deu a cada um os meios de progredir pelo conhecimento do bem e do mal. O homem, porém, não se aproveita desses meios. Necessário, portanto, se torna que seja castigado no seu orgulho e que se lhe faça sentir a sua fraqueza.*
 
 **— Mas nesses flagelos tanto sucumbe o homem de bem como o perverso. Será justo isso?**
 
@@ -57,43 +57,43 @@
 
 **— Mas nem por isso as vítimas desses flagelos deixam de o ser.**
 
-*— Se considerásseis a vida qual ela é, e quão pouca coisa representa com relação ao infinito, menos importância daríeis a isso. Em outra vida, essas vítimas acharão ampla compensação aos seus sofrimentos, se souberem suportá-los sem murmurar.*
+*— Se considerásseis a vida qual ela é e quão pouca coisa representa com relação ao infinito, menos importância lhe daríeis. Em outra vida, essas vítimas acharão ampla compensação aos seus sofrimentos, se souberem suportá-los sem murmurar.*
 
 Venha por um flagelo a morte, ou por uma causa comum, ninguém deixa por isso de morrer, desde que haja soado a hora da partida. A única diferença, em caso de flagelo, é que maior número parte ao mesmo tempo.
 
-Se, pelo pensamento, pudéssemos elevar-nos de maneira a contemplar toda a humanidade e abrangê-la em seu conjunto, esses tão terríveis flagelos não nos pareceriam mais do que passageiras tempestades no destino do mundo.
+Se, pelo pensamento, pudéssemos elevar-nos de maneira a dominar a Humanidade e a abrangê-la em seu conjunto, esses tão terríveis flagelos não nos pareceriam mais do que passageiras tempestades no destino do mundo.
 
-### 739 — Têm os flagelos destruidores utilidade do ponto de vista físico, não obstante os males que ocasionam?
+### 739 — Têm os flagelos destruidores utilidade, do ponto de vista físico, não obstante os males que ocasionam?
 
-*— Têm; mudam, por vezes, as condições de uma região. Mas em muitos casos o bem que deles resulta só as gerações vindouras o experimentam.*
+*— Têm. Muitas vezes mudam as condições de uma região, mas o bem que deles resulta só as gerações vindouras o experimentam.*
 
-### 740 — Não serão os flagelos, igualmente, provas morais para o homem, provas que os põem a braços com as mais aflitivas necessidades?
+### 740 — Não serão os flagelos, igualmente, provas morais para o homem, por porem-no a braços com as mais aflitivas necessidades?
 
-*— Os flagelos são provas que dão ao homem ocasião de exercitar a sua inteligência, de demonstrar sua paciência e resignação ante a vontade de Deus, e que lhe oferecem ensejo de manifestar seus sentimentos de abnegação, de desinteresse e de amor ao próximo, se não estiver dominado pelo egoísmo.*
+*— Os flagelos são provas que dão ao homem ocasião de exercitar a sua inteligência, de demonstrar sua paciência e resignação ante a vontade de Deus e que lhe oferecem ensejo de manifestar seus sentimentos de abnegação, de desinteresse e de amor ao próximo, se o não domina o egoísmo.*
 
 ### 741 — Dado é ao homem conjurar os flagelos que o afligem?
 
-*— Em parte, é; não, porém, como geralmente o entendem. Muitos flagelos resultam da imprevidência do homem. À medida que adquire conhecimentos e experiência, ele os vai podendo conjurar, isto é, prevenir, se lhes souber pesquisar as causas. Contudo, entre os males que afligem a humanidade alguns há de caráter geral, que estão nos decretos da Providência e dos quais cada indivíduo recebe, mais ou menos, o contragolpe. A esses nada pode o homem opor, a não ser sua submissão à vontade de Deus. Esses mesmos males, entretanto, ele muitas vezes os agrava pela sua negligência.*
+*— Em parte, é; não, porém, como geralmente o entendem. Muitos flagelos resultam da imprevidência do homem. À medida que adquire conhecimentos e experiência, ele os vai podendo conjurar, isto é, prevenir, se lhes sabe pesquisar as causas. Contudo, entre os males que afligem a Humanidade, alguns há de caráter geral, que estão nos decretos da Providência e dos quais cada indivíduo recebe, mais ou menos, o contragolpe. A esses nada pode o homem opor, a não ser sua submissão à vontade de Deus. Esses mesmos males, entretanto, ele muitas vezes os agrava pela sua negligência.*
 
-Na primeira linha dos flagelos destruidores, naturais e independentes do homem, devem ser colocadas a peste, a fome, as inundações, as intempéries fatais às produções da terra. Não tem, porém, o homem encontrado na Ciência, nas obras de engenharia, no aperfeiçoamento da agricultura, nos afolhamentos e nas irrigações, no estudo das condições higiênicas, meios de impedir, ou, quando menos, de atenuar muitos desastres? Certas regiões, outrora assoladas por terríveis flagelos, não estão hoje preservadas deles? Que não fará, portanto, o homem pelo seu bem-estar material, quando souber aproveitar-se de todos os recursos da sua inteligência, e quando aos cuidados da sua conservação pessoal souber aliar o sentimento de verdadeira caridade para com os seus semelhantes? (707)
+Na primeira linha dos flagelos destruidores, naturais e independentes do homem, devem ser colocadas a peste, a fome, as inundações e as intempéries fatais às produções da terra. Não tem, porém, o homem encontrado na Ciência, nas obras de arte, no aperfeiçoamento da agricultura, nos afolhamentos e nas irrigações, no estudo das condições higiênicas, meios de impedir, ou, quando menos, de atenuar muitos desastres? Certas regiões, outrora assoladas por terríveis flagelos, não estão hoje preservadas deles? Que não fará, portanto, o homem pelo seu bem-estar material, quando souber aproveitar-se de todos os recursos da sua inteligência e quando, aos cuidados da sua conservação pessoal, souber aliar o sentimento de verdadeira caridade para com os seus semelhantes? (707)
 
 
 ## Guerras
 ### 742 — Que é o que impele o homem à guerra?
 
-*— Predominância da natureza animal sobre a natureza espiritual e transbordamento das paixões. No estado de barbaria, os povos um só direito conhecem: o do mais forte. Por isso é que, para tais povos, o de guerra é um estado normal. À medida que o homem progride, menos frequente se torna a guerra, porque ele lhe evita as causas. E, quando se torna necessária, sabe fazê-la com humanidade.*
+*— Predominância da natureza animal sobre a natureza espiritual e transbordamento das paixões. No estado de barbaria, os povos um só direito conhecem — o do mais forte. Por isso é que, para tais povos, o de guerra é um estado normal. À medida que o homem progride, menos frequente se torna a guerra, porque ele lhe evita as causas, fazendo-a com humanidade, quando a sente necessária.*
 
 ### 743 — Da face da Terra, algum dia, a guerra desaparecerá?
 
-*— Sim, quando os homens compreenderem a justiça e praticarem a lei de Deus. Nessa época, todos os povos serão irmãos.*
+*— Sim, quando os homens compreenderem a justiça e praticarem a Lei de Deus. Nessa época, todos os povos serão irmãos.*
 
 ### 744 — Que objetivou a Providência, tornando necessária a guerra?
 
 *— A liberdade e o progresso.*
 
-**— Se a guerra deve ter por efeito o advento da liberdade, como pode frequentemente ter por objetivo e resultado a subjugação?**
+**— Desde que a guerra deve ter por efeito produzir o advento da liberdade, como pode frequentemente ter por objetivo e resultado a escravização?**
 
-*— Subjugação temporária, para pressionar os povos, a fim de fazê-los progredir mais depressa.*
+*— Escravização temporária, para oprimir os povos, a fim de fazê-los progredir mais depressa.*
 
 ### 745 — Que se deve pensar daquele que suscita a guerra para proveito seu?
 
@@ -111,7 +111,7 @@ Na primeira linha dos flagelos destruidores, naturais e independentes do homem, 
 
 ### 748 — Em caso de legítima defesa, escusa Deus o assassínio?
 
-*— Só a necessidade o pode escusar. Mas se o agredido puder preservar sua vida sem atentar contra a de seu agressor, deverá fazê-lo.*
+*— Só a necessidade o pode escusar mas, desde que o agredido possa preservar sua vida, sem atentar contra a de seu agressor, deve fazê-lo.*
 
 ### 749 — Tem o homem culpa dos assassínios que pratica durante a guerra?
 
@@ -123,7 +123,7 @@ Na primeira linha dos flagelos destruidores, naturais e independentes do homem, 
 
 ### 751 — Como se explica que entre alguns povos, já adiantados sob o ponto de vista intelectual, o infanticídio seja um costume e esteja consagrado pela legislação?
 
-*— O desenvolvimento intelectual não implica a necessidade do bem. Um Espírito superior em inteligência pode ser mau. Isso se dá com aquele que muito tem vivido sem se melhorar: apenas sabe.*
+*— O desenvolvimento intelectual não implica a necessidade do bem. Um Espírito, superior em inteligência, pode ser mau. Isso se dá com aquele que muito tem vivido sem se melhorar: apenas sabe.*
 
 
 ## Crueldade
@@ -133,23 +133,21 @@ Na primeira linha dos flagelos destruidores, naturais e independentes do homem, 
 
 ### 753 — Por que razão a crueldade forma o caráter predominante dos povos primitivos?
 
-*— Nos povos primitivos, como lhes chamas, a matéria prepondera sobre o Espírito. Eles se entregam aos instintos do bruto e, como não experimentam outras necessidades além das da vida do corpo, só da conservação pessoal cogitam, e é o que os torna, em geral, cruéis. Ademais, os povos de imperfeito desenvolvimento se conservam sob o império de Espíritos também imperfeitos, que lhes são simpáticos, até que povos mais adiantados venham destruir ou enfraquecer essa influência.*
+*— Nos povos primitivos, como lhes chamas, a matéria prepondera sobre o Espírito. Eles se entregam aos instintos do bruto e, como não experimentam outras necessidades além das da vida do corpo, só da conservação pessoal cogitam e é o que os torna, em geral, cruéis. Ademais, os povos de imperfeito desenvolvimento se conservam sob o império de Espíritos também imperfeitos, que lhes são simpáticos, até que povos mais adiantados venham destruir ou enfraquecer essa influência.*
 
 ### 754 — A crueldade não derivará da carência de senso moral?
 
-*— Dize da falta de desenvolvimento do senso moral; não digas da carência, porquanto o senso moral existe, como princípio, em todos os homens. É esse senso moral que dos seres cruéis fará mais tarde seres bons e humanos.*
+*— Dize — da falta de desenvolvimento do senso moral; não digas da carência, porquanto o senso moral existe, como princípio, em todos os homens. É esse senso moral que dos seres cruéis fará mais tarde seres bons e humanos. Ele, pois, existe no selvagem, mas como o princípio do perfume no germe da flor que ainda não desabrochou.*
 
-Ele, pois, existe no selvagem, mas como o princípio do perfume no gérmen da flor que ainda não desabrochou.*
+Em estado rudimentar ou latente, todas as faculdades existem no homem. Desenvolvem-se, conforme lhes sejam mais ou menos favoráveis as circunstâncias. O desenvolvimento excessivo de umas detém ou neutraliza o das outras. A sobre-excitação dos instintos materiais abafa, por assim dizer, o senso moral, como o desenvolvimento do senso moral enfraquece pouco a pouco as faculdades puramente animais.
 
-Em estado rudimentar ou latente, todas as faculdades existem no homem. Desenvolvem-se, conforme lhes sejam mais ou menos favoráveis as circunstâncias. O desenvolvimento excessivo de uma detém ou neutraliza o das outras. A sobre-excitação dos instintos materiais abafa, por assim dizer, o senso moral, como o desenvolvimento do senso moral enfraquece pouco a pouco as faculdades puramente animais.
+### 755 — Como pode dar-se que, no seio da mais adiantada civilização, se encontrem seres às vezes tão cruéis quanto os selvagens?
 
-### 755 — Como pode dar-se que no seio da mais adiantada civilização se encontrem seres às vezes tão cruéis quanto os selvagens?
-
-*— Do mesmo modo que numa árvore carregada de bons frutos podem encontrar-se alguns defeituosos. São, se quiseres, selvagens que da civilização só têm o exterior, lobos extraviados em meio de cordeiros. Espíritos de ordem inferior e muito atrasados podem encarnar entre homens adiantados, na esperança de também se adiantarem. Mas se a prova é por demais pesada, predomina a natureza primitiva.*
+*— Do mesmo modo que numa árvore carregada de bons frutos se encontram verdadeiros abortos. São, se quiseres, selvagens que da civilização só têm o exterior, lobos extraviados em meio de cordeiros. Espíritos de ordem inferior e muito atrasados podem encarnar entre homens adiantados, na esperança de também se adiantarem, mas desde que a prova é por demais pesada predomina a natureza primitiva.*
 
 ### 756 — A sociedade dos homens de bem se verá algum dia expurgada dos seres malfazejos?
 
-*— A humanidade progride. Esses homens, em quem o instinto do mal domina e que se acham deslocados entre pessoas de bem, desaparecerão gradualmente, como o mau grão se separa do bom, quando este é joeirado. Mas desaparecerão para renascer sob outros envoltórios. Como então terão mais experiência, compreenderão melhor o bem e o mal. Tens disso um exemplo nas plantas e nos animais que o homem há conseguido aperfeiçoar, desenvolvendo neles qualidades novas. Pois bem: só ao cabo de muitas gerações o desenvolvimento se torna completo. É a imagem das diversas existências do homem.*
+*— A Humanidade progride. Esses homens, em quem o instinto do mal domina e que se acham deslocados entre pessoas de bem, desaparecerão gradualmente, como o mau grão se separa do bom, quando este é joeirado, mas desaparecerão para renascer sob outros invólucros. Como então terão mais experiência, compreenderão melhor o bem e o mal. Tens disso um exemplo nas plantas e nos animais que o homem há conseguido aperfeiçoar, desenvolvendo neles qualidades novas. Pois bem! só ao cabo de muitas gerações o desenvolvimento se torna completo. É a imagem das diversas existências do homem.*
 
 
 ## Duelo
@@ -169,9 +167,9 @@ Em todos os casos, mesmo quando as probabilidades são idênticas para ambos os 
 
 ### 759 — Que valor tem o que se chama ponto de honra, em matéria de duelo?
 
-*— Orgulho e vaidade: dupla chaga da humanidade.*
+*— Orgulho e vaidade: dupla chaga da Humanidade.*
 
-**— Mas não há casos em que a honra se acha verdadeiramente empenhada e em que uma recusa seria covardia?**
+**— Mas não há casos em que a honra se acha verdadeiramente empenhada e em que uma recusa fora covardia?**
 
 *— Isso depende dos usos e costumes. Cada país e cada século tem a esse respeito um modo de ver diferente. Quando os homens forem melhores e estiverem mais adiantados em moral, compreenderão que o verdadeiro ponto de honra está acima das paixões terrenas e que não é matando, nem se deixando matar, que repararão agravos.*
 
@@ -181,26 +179,26 @@ Há mais grandeza e verdadeira honra em confessar-se culpado o homem, se cometeu
 ## Pena de morte
 ### 760 — Desaparecerá algum dia, da legislação humana, a pena de morte?
 
-*— Incontestavelmente desaparecerá e a sua supressão assinalará um progresso da humanidade. Quando os homens estiverem mais esclarecidos, a pena de morte será completamente abolida na Terra. Não mais precisarão os homens de ser julgados pelos homens. Refiro-me a uma época ainda muito distante de vós.*
+*— Incontestavelmente desaparecerá e a sua supressão assinalará um progresso da Humanidade. Quando os homens estiverem mais esclarecidos, a pena de morte será completamente abolida na Terra. Não mais precisarão os homens de ser julgados pelos homens. Refiro-me a uma época ainda muito distante de vós.*
 
-Sem dúvida, o progresso social ainda muito deixa a desejar. Mas seria injusto para com a sociedade moderna quem não visse um progresso nas restrições postas à pena de morte, no seio dos povos mais adiantados, e à natureza dos crimes a que a sua aplicação se acha limitada. Se compararmos as garantias de que, entre esses mesmos povos, a justiça procura cercar o acusado, a humanidade de que usa para com ele, mesmo quando o reconhece culpado, com o que se praticava em tempos que ainda não vão muito longe, não poderemos negar o avanço do gênero humano na senda do progresso.
+Sem dúvida, o progresso social ainda muito deixa a desejar, mas seria injusto para com a sociedade moderna, no seio dos povos mais adiantados, quem não visse um progresso nas restrições postas à pena de morte e à natureza dos crimes a que a sua aplicação se acha limitada. Se, entre esses mesmos povos, compararmos as garantias de que a justiça procura cercar o acusado, a humanidade de que usa para com ele, mesmo quando o reconhece culpado, com o que se praticava em tempos que ainda não vão muito longe, não poderemos negar o avanço do gênero humano na senda do progresso.
 
-### 761 — A lei de conservação dá ao homem o direito de preservar sua vida. Não usará ele desse direito quando elimina da sociedade um membro perigoso?
+### 761 — A lei de conservação dá ao homem o direito de preservar sua vida. Não usará ele desse direito, quando elimina da sociedade um membro perigoso?
 
-*— Há outros meios de ele se preservar do perigo, que não matando. Ademais, é preciso abrir, e não fechar, ao criminoso a porta do arrependimento.*
+*— Há outros meios de ele se preservar do perigo, que não matando. Ademais, é preciso abrir e não fechar ao criminoso a porta do arrependimento.*
 
-### 762 — Se a pena de morte pode ser banida das sociedades civilizadas, não terá sido de necessidade em épocas menos adiantadas?
+### 762 — A pena de morte, que pode vir a ser banida das sociedades civilizadas, não terá sido de necessidade em épocas menos adiantadas?
 
-*— Necessidade não é o termo. O homem julga necessária uma coisa sempre que não descobre nada melhor. À proporção que se esclarece, vai compreendendo melhor o que é justo e o que é injusto e repudia os excessos cometidos, nos tempos de ignorância, em nome da justiça.*
+*— Necessidade não é o termo. O homem julga necessária uma coisa, sempre que não descobre outra melhor. À proporção que se instrui, vai compreendendo melhor o que é justo e o que é injusto e repudia os excessos cometidos, nos tempos de ignorância, em nome da justiça.*
 
 ### 763 — Será um indício de progresso da civilização a restrição dos casos em que se aplica a pena de morte?
 
-*— Podes duvidar disso? Não se revolta o teu Espírito quando lês a narrativa das carnificinas humanas que outrora se faziam em nome da justiça e, não raro, em honra da Divindade? das torturas que se infligiam ao condenado, e até ao simples acusado, para lhe arrancar, pela agudeza do sofrimento, a confissão de um crime que muitas vezes não cometera? Pois bem: se houvesses vivido nessas épocas, terias achado tudo isso natural e talvez mesmo, se foras juiz, fizesses o mesmo. Assim é que o que pareceu justo, numa época, parece bárbaro em outra. Só as leis divinas são eternas; as humanas mudam com o progresso e continuarão a mudar, até que tenham sido postas de acordo com aquelas.*
+*— Podes duvidar disso? Não se revolta o teu Espírito, quando lês a narrativa das carnificinas humanas que outrora se faziam em nome da justiça e, não raro, em honra da Divindade; das torturas que se infligiam ao condenado e até ao simples acusado, para lhe arrancar, pela agudeza do sofrimento, a confissão de um crime que muitas vezes não cometera? Pois bem! Se houvesses vivido nessas épocas, terias achado tudo isso natural e talvez mesmo, se foras juiz, fizesses outro tanto. Assim é que o que pareceu justo, numa época, parece bárbaro em outra. Só as Leis divinas são eternas; as humanas mudam com o progresso e continuarão a mudar, até que tenham sido postas de acordo com aquelas.*
 
-### 764 — Disse Jesus: Quem matou com a espada, pela espada perecerá. Essas palavras não consagram a pena de talião e, assim, a morte dada ao assassino não constitui uma aplicação dessa pena?
+### 764 — Disse Jesus: Quem matou com a espada, pela espada perecerá. Estas palavras não consagram a pena de talião e, assim, a morte dada ao assassino não constitui uma aplicação dessa pena?
 
-*— Tomai cuidado! Tendes-vos enganado a respeito dessas palavras, como acerca de muitas outras. A pena de talião é a justiça de Deus. É Deus quem a aplica. Todos vós sofreis essa pena a cada instante, pois que sois punidos naquilo em que haveis pecado, nesta existência ou em outra. Aquele que foi causa do sofrimento para seus semelhantes virá a achar-se numa condição em que sofrerá o que tenha feito sofrer. Este o sentido das palavras de Jesus. Mas não vos disse ele também: Perdoai aos vossos inimigos? E não vos ensinou a pedir a Deus que vos perdoe as ofensas como houverdes vós mesmos perdoado, isto é, na mesma proporção em que houverdes perdoado? Compreendei-o bem.*
+*— Tomai cuidado! Muito vos tendes enganado a respeito dessas palavras, como acerca de outras. A pena de talião é a Justiça de Deus. É Deus quem a aplica. Todos vós sofreis essa pena a cada instante, pois que sois punidos naquilo em que haveis pecado, nesta existência ou em outra. Aquele que foi causa do sofrimento para seus semelhantes virá a achar-se numa condição em que sofrerá o que tenha feito sofrer. Este o sentido das palavras de Jesus. Não vos disse Ele também: Perdoai aos vossos inimigos? E não vos ensinou a pedir a Deus que vos perdoe as ofensas como houverdes vós mesmos perdoado, isto é, na mesma proporção em que houverdes perdoado, compreendei-o bem?*
 
 ### 765 — Que se deve pensar da pena de morte imposta em nome de Deus?
 
-*— É tomar o homem o lugar de Deus na distribuição da justiça. Os que assim procedem mostram quão longe estão de compreender Deus e que muito ainda têm que expiar. A pena de morte é um crime, quando aplicada em nome de Deus, e os que a impõem tornam-se culpados, como por qualquer outro assassino.*
+*— É tomar o homem o lugar de Deus na distribuição da justiça. Os que assim procedem mostram quão longe estão de compreender Deus e que muito ainda têm que expiar. A pena de morte é um crime, quando aplicada em nome de Deus; e os que a impõem se sobrecarregam de outros tantos assassínios.*

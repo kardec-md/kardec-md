@@ -127,7 +127,7 @@ A natureza deu ao homem a necessidade de amar e ser amado. Um dos maiores prazer
 
 *— Isso pode ser uma consequência educativa, ainda que temporária. Muitas pessoas acreditam amar profundamente apenas porque se deixam levar pelas aparências. Quando passam a conviver de fato com quem dizem amar, percebem que aquilo era apenas atração material. Não basta gostar de alguém à distância ou idealizá-la; é na convivência que se conhece de verdade. Também existem uniões que começam difíceis e sem afinidade, mas que, com o tempo, o conhecimento mútuo e o respeito, se transformam em vínculos duradouros e afetuosos. É importante lembrar que quem ama é o Espírito, não o corpo. Quando a ilusão material cai, o Espírito passa a enxergar a realidade.*
 
-Existem dois tipos de afeição: a do corpo e a da alma. Muitas vezes, uma é confundida com a outra. A afeição da alma, quando é verdadeira, tende a ser duradoura; a do corpo é passageira. Por isso, não é raro que pessoas que acreditavam viver um amor eterno acabem se afastando ou até se odiando quando a ilusão se desfaz.
+*Existem dois tipos de afeição: a do corpo e a da alma. Muitas vezes, uma é confundida com a outra. A afeição da alma, quando é verdadeira, tende a ser duradoura; a do corpo é passageira. Por isso, não é raro que pessoas que acreditavam viver um amor eterno acabem se afastando ou até se odiando quando a ilusão se desfaz.*
 
 ### 940 — A falta de afinidade entre pessoas obrigadas a viver juntas não é uma fonte profunda de sofrimento, capaz de envenenar toda a vida?
 
@@ -159,7 +159,7 @@ Já o homem que supera as necessidades artificiais criadas pelas paixões experi
 
 *— Da ociosidade, da falta de fé e, muitas vezes, do excesso e da saturação.*
 
-Quem utiliza suas capacidades de forma útil e de acordo com suas aptidões naturais não vê o trabalho como um peso, e a vida passa mais rápido. Suporta melhor as dificuldades porque sabe que caminha em direção a uma felicidade mais sólida e duradoura.
+*Quem utiliza suas capacidades de forma útil e de acordo com suas aptidões naturais não vê o trabalho como um peso, e a vida passa mais rápido. Suporta melhor as dificuldades porque sabe que caminha em direção a uma felicidade mais sólida e duradoura.*
 
 ### 944 — O homem tem o direito de tirar a própria vida?
 

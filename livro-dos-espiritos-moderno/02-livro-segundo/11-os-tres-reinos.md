@@ -155,7 +155,7 @@ A crença de que, após a morte física, a alma de uma pessoa deixa o corpo e pa
 
 *— Duas coisas podem ter a mesma origem e, depois, não se parecerem em nada. Quem reconheceria a árvore, com suas folhas, flores e frutos, dentro do pequeno broto escondido na semente? Quando o princípio inteligente alcança o nível necessário para se tornar Espírito e entrar no período humano, ele já não tem mais nada a ver com o estado anterior. Já não é a alma dos animais, do mesmo jeito que a árvore já não é a semente.*
 
-No homem, o que sobrou de animal é só o corpo e as paixões que vêm da influência dele, junto com o instinto de conservação próprio da matéria. Por isso não dá para dizer que esse ou aquele homem seja a encarnação do Espírito de algum animal. A metempsicose, no sentido em que costuma ser entendida, não é verdadeira.
+*No homem, o que sobrou de animal é só o corpo e as paixões que vêm da influência dele, junto com o instinto de conservação próprio da matéria. Por isso não dá para dizer que esse ou aquele homem seja a encarnação do Espírito de algum animal. A metempsicose, no sentido em que costuma ser entendida, não é verdadeira.*
 
 ### 612 — Um Espírito humano pode encarnar em um animal?
 

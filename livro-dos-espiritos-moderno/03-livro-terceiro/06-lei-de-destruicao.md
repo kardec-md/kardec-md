@@ -137,9 +137,7 @@ Entre os flagelos naturais e independentes da ação humana estão a peste, a fo
 
 ### 754 — A crueldade não decorre da ausência de senso moral?
 
-*— Não da ausência, mas do pouco desenvolvimento do senso moral. Ele existe em todos os seres humanos, como princípio. Com o tempo, é esse mesmo senso que transforma os cruéis em pessoas mais humanas.*
-
-O senso moral existe no homem primitivo como o perfume existe no botão da flor antes de desabrochar.
+*— Não da ausência, mas do pouco desenvolvimento do senso moral. Ele existe em todos os seres humanos, como princípio. Com o tempo, é esse mesmo senso que transforma os cruéis em pessoas mais humanas. O senso moral existe no homem primitivo como o perfume existe no botão da flor antes de desabrochar.*
 
 Todas as faculdades humanas existem de forma latente e se desenvolvem conforme as circunstâncias. Quando os instintos materiais são estimulados em excesso, abafam o senso moral. Já quando este se desenvolve, as tendências puramente animais perdem força pouco a pouco.
 

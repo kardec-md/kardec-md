@@ -248,9 +248,9 @@ SÃO VICENTE DE PAULO.
 
 *Se só pelos fenômenos atrairdes, os que vos procurarem o farão pela curiosidade e topareis com curiosos que vos não acreditarão e que rirão de vós. Se unicamente pessoas dignas de apreço se encontrarem entre vós, muitos talvez vos não acreditem, mas respeitar-vos-ão e o respeito inspira sempre a confiança.*
 
-*Estais convencidos de que o Espiritismo acarretará uma reforma moral. Seja, pois, o vosso grupo o primeiro a dar exemplo das virtudes cristãs, visto que, nesta época de egoísmo, é nas Sociedades espíritas que a verdadeira caridade há de encontrar refúgio.[^1]*
+*Estais convencidos de que o Espiritismo acarretará uma reforma moral. Seja, pois, o vosso grupo o primeiro a dar exemplo das virtudes cristãs, visto que, nesta época de egoísmo, é nas Sociedades espíritas que a verdadeira caridade há de encontrar refúgio.[^13]*
 
-[^1]: Conhecemos um senhor que foi aceito para um emprego de confiança, numa casa importante, porque era espírita sincero. Entenderam que as suas crenças eram uma garantia da sua moralidade.
+[^13]: Conhecemos um senhor que foi aceito para um emprego de confiança, numa casa importante, porque era espírita sincero. Entenderam que as suas crenças eram uma garantia da sua moralidade.
 
 *Tal deve ser, meus amigos, um grupo de verdadeiros espíritas. Doutra feita, dar-vos-ei novos conselhos.*
 

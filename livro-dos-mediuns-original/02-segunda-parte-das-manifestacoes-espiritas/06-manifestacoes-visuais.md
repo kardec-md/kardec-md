@@ -10,9 +10,9 @@ De todas as manifestações espíritas, as mais interessantes, sem contestação
 
 *— Podem, sobretudo, durante o sono. Entretanto, algumas pessoas os veem quando acordadas, porém isso é mais raro.*
 
-Enquanto o corpo repousa, o Espírito se desprende dos laços materiais; fica mais livre e pode mais facilmente ver os outros Espíritos, entrando com eles em comunicação. O sonho não é senão a recordação desse estado. Quando de nada nos lembramos, diz-se que não sonhamos, mas nem por isso a alma deixou de ver e de gozar da sua liberdade. Aqui nos ocupamos especialmente com as aparições no estado de vigília.[^1]
+Enquanto o corpo repousa, o Espírito se desprende dos laços materiais; fica mais livre e pode mais facilmente ver os outros Espíritos, entrando com eles em comunicação. O sonho não é senão a recordação desse estado. Quando de nada nos lembramos, diz-se que não sonhamos, mas nem por isso a alma deixou de ver e de gozar da sua liberdade. Aqui nos ocupamos especialmente com as aparições no estado de vigília.[^7]
 
-[^1]: Ver, para mais particularidades sobre o estado do Espírito durante o sono, O Livro dos Espíritos, cap. Da emancipação da alma, questão 409.
+[^7]: Ver, para mais particularidades sobre o estado do Espírito durante o sono, O Livro dos Espíritos, cap. Da emancipação da alma, questão 409.
 
 **II. Pertencem mais a uma categoria do que a outra os Espíritos que se manifestam fazendo-se visíveis?**
 
@@ -192,9 +192,9 @@ O Espírito, que quer ou pode fazer-se visível, reveste às vezes uma forma ain
 
 Dado se possa atribuir à ilusão ou a uma espécie de fascinação a aparição simplesmente visual, o mesmo já não ocorre quando se consegue segurá-la, palpá-la, quando ela própria segura o observador e o abraça, circunstâncias em que nenhuma dúvida mais é lícita.
 
-Os fatos de aparições tangíveis são os mais raros; porém, os que se têm dado nestes últimos tempos, pela influência de alguns médiuns de grande poder[^2] e absolutamente autenticados por testemunhos irrecusáveis, provam e explicam o que a história refere acerca de pessoas que, depois de mortas, se mostraram com todas as aparências da realidade.
+Os fatos de aparições tangíveis são os mais raros; porém, os que se têm dado nestes últimos tempos, pela influência de alguns médiuns de grande poder[^8] e absolutamente autenticados por testemunhos irrecusáveis, provam e explicam o que a história refere acerca de pessoas que, depois de mortas, se mostraram com todas as aparências da realidade.
 
-[^2]: Entre outros, o Sr. Home.
+[^8]: Entre outros, o Sr. Home.
 
 Todavia, conforme já dissemos, por mais extraordinários que sejam, tais fenômenos perdem inteiramente todo caráter de maravilhosos, quando conhecida a maneira por que se produzem e quando se compreende que, longe de constituírem uma derrogação das Leis da natureza, são apenas efeito de uma aplicação dessas leis.
 

@@ -363,7 +363,11 @@ A palavra “eterno” é frequentemente usada de modo figurado, para indicar lo
 Hoje, a teologia já reconhece que o “fogo” das penas é moral, não material. As dores espirituais, embora imateriais, são profundamente intensas. A duração das penas não é fixa: diminui à medida que o Espírito progride.
 
 ## Ressurreição da carne
-### 1010 — O dogma da ressurreição da carne ensina, implicitamente, a reencarnação?
+### 1010 — O dogma da ressurreição da carne confirma a reencarnação ensinada pelos Espíritos?
+
+*— Como poderia ser diferente? Como tantas outras, essas palavras só parecem absurdas para quem as toma ao pé da letra, e por isso levam à descrença. Interpretem-nas de forma lógica, e os chamados livres-pensadores as aceitarão sem dificuldade, justamente porque refletem. Não se enganem: o que eles mais desejam é crer. Têm sede de futuro tanto quanto os outros, talvez mais, mas não podem aceitar o que a ciência desmente. A doutrina das vidas sucessivas está de acordo com a justiça de Deus e é a única que explica o que, sem ela, fica inexplicável. Como o seu princípio poderia deixar de estar na própria religião?*
+
+### 1011 — Então, pelo dogma da ressurreição da carne, a própria Igreja ensina a reencarnação?
 
 *— Sim. Essa doutrina decorre naturalmente de muitas passagens que, por muito tempo, não foram compreendidas. O Espiritismo não destrói a religião: ele a esclarece, retirando o véu da linguagem simbólica.*
 
@@ -374,7 +378,7 @@ SÃO LUÍS.
 A ciência demonstra a impossibilidade literal da ressurreição da carne. A matéria do corpo se transforma e se dispersa, integrando outros corpos. A reencarnação, porém, explica racionalmente o progresso da alma, sem contrariar a ciência nem a fé.
 
 ## Paraíso, inferno e purgatório.
-### 1011 — Existem lugares específicos no universo para penas e recompensas?
+### 1012 — Existem lugares específicos no universo para penas e recompensas?
 
 *— Não. Penas e gozos são estados do Espírito, conforme seu grau de evolução. Não existem lugares fechados destinados ao castigo ou à felicidade.*
 
@@ -382,33 +386,33 @@ A ciência demonstra a impossibilidade literal da ressurreição da carne. A mat
 
 *— São alegorias. Espíritos felizes e infelizes existem em toda parte. Os semelhantes se reúnem por afinidade.*
 
-### 1012 — O que é o purgatório?
+### 1013 — O que é o purgatório?
 
 *— É o estado de expiação. Muitas vezes, ele ocorre na própria Terra.*
 
 O purgatório não é um lugar, mas um estado temporário do Espírito imperfeito, que se purifica por meio de sucessivas existências.
 
-### 1013 — Por que Espíritos elevados falam de inferno e purgatório conforme ideias populares?
+### 1014 — Por que Espíritos elevados falam de inferno e purgatório conforme ideias populares?
 
 *— Porque adaptam a linguagem à compreensão de quem pergunta. Espíritos inferiores também usam termos terrenos para expressar sofrimentos espirituais.*
 
-### 1014 — O que significa uma “alma a penar”?
+### 1015 — O que significa uma “alma a penar”?
 
 *— Um Espírito sofredor, em estado de erraticidade, incerto do futuro, que muitas vezes busca auxílio (664).*
 
-### 1015 — O que se deve entender por céu?
+### 1016 — O que se deve entender por céu?
 
 *— Não é um lugar fixo. É o universo, os mundos superiores, onde os Espíritos vivem sem as angústias da vida material.*
 
-### 1016 — O que significam expressões como “quarto” ou “quinto céu”?
+### 1017 — O que significam expressões como “quarto” ou “quinto céu”?
 
 *— Graus de evolução espiritual, não locais físicos.*
 
-### 1017 — O que quis dizer o Cristo com “meu reino não é deste mundo”?
+### 1018 — O que quis dizer o Cristo com “meu reino não é deste mundo”?
 
 *— Que seu reino é moral, fundado no amor e na pureza de coração, não no poder material.*
 
-### 1018 — O bem reinará algum dia na Terra?
+### 1019 — O bem reinará algum dia na Terra?
 
 *— O bem não se estabelecerá na Terra por imposição, mas como consequência da transformação moral da humanidade. Quanto mais as pessoas desenvolverem a empatia, a justiça e a solidariedade, mais o mundo refletirá esses valores. O egoísmo e o orgulho perderão espaço à medida que a consciência coletiva amadurecer.*
 
