@@ -34,8 +34,6 @@ Quanto às qualidades íntimas, os Espíritos pertencem a diferentes ordens ou g
 
 **- Espíritos puros:** Quando atingiram a perfeição e não necessitam mais encarnar.
 
-Entre os Espíritos errantes, há os que desempenham missões e se dedicam a atividades úteis, gozando de relativa felicidade. Outros permanecem em incerteza e instabilidade; são estes que constituem, propriamente, os Espíritos errantes, no sentido mais restrito do termo, frequentemente chamados de “almas a penar”. Os primeiros nem sempre se consideram errantes, pois distinguem sua condição da dos segundos.
-
 ### 227 — De que forma os Espíritos errantes se instruem? Certamente não como nós.
 
 *— Eles estudam o próprio passado e buscam meios de se elevar. Observam o que acontece nos lugares por onde passam, ouvem os ensinamentos dos homens esclarecidos e os conselhos dos Espíritos mais elevados. Tudo isso desperta neles ideias que antes não possuíam.*
@@ -122,7 +120,7 @@ Nada é inútil na natureza; tudo tem um propósito. Não existe vazio: em toda 
 
 ### 240 — Os Espíritos compreendem o tempo como nós?
 
-*— Não. É por isso que, muitas vezes, não compreendem quando vocês falam de datas ou épocas.*
+*— Não. É por isso que vocês nem sempre nos entendem quando falamos de datas ou épocas.*
 
 Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a duração quase deixa de existir. Séculos, para nós tão longos, lhes parecem instantes perdidos na eternidade.
 
@@ -142,13 +140,13 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 *— Não completamente, pois apenas Deus possui esse conhecimento absoluto.*
 
-### 244 — Os Espíritos conseguem vera Deus?
+### 244 — Os Espíritos conseguem ver Deus?
 
 *— Apenas os Espíritos superiores o veem e compreendem. Os inferiores o sentem e intuem sua existência.*
 
 **— Quando um Espírito inferior afirma que Deus lhe permite ou proíbe algo, como sabe disso?**
 
-*— Ele não vê Deus, mas percebe sua soberania por intuição, como um aviso interior. Algo semelhante ocorre com vocês quando sentem um pressentimento.*
+*— Ele não vê Deus, mas sente sua soberania. Quando algo não deve ser feito ou dito, ele percebe a proibição por uma espécie de intuição. Vocês também passam por isso: quem nunca teve um pressentimento, como um aviso silencioso para fazer ou deixar de fazer alguma coisa? É a mesma intuição. Afinal, vocês também são Espíritos, só que, enquanto estão no corpo, a matéria abafa um pouco essa percepção. Livre do corpo, o Espírito recebe os avisos de Deus com muito mais clareza.*
 
 **— Deus se comunica diretamente com os Espíritos?**
 
@@ -164,7 +162,7 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 ### 247 — Para ver em dois lugares diferentes, o Espírito precisa se deslocar?
 
-*— O Espírito se desloca com a rapidez do pensamento. Pode-se dizer que vê em toda parte ao mesmo tempo, embora essa faculdade dependa de sua pureza.*
+*— Como o Espírito vai aonde quer com a rapidez do pensamento, pode-se dizer que vê em toda parte ao mesmo tempo. Seu pensamento pode se espalhar para muitos lugares de uma só vez, mas essa capacidade depende de sua pureza. Quanto menos puro é o Espírito, mais limitada é sua visão. Só os Espíritos superiores conseguem enxergar o todo de uma só vez.*
 
 ### 248 — O Espírito vê as coisas com a mesma nitidez que nós?
 
@@ -188,7 +186,7 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 ### 252 — Os Espíritos apreciam as belezas naturais?
 
-*— Sim, conforme sua capacidade de compreendê-las. Nos Espíritos elevados, as belezas gerais superam as particularidades.*
+*— As belezas naturais dos mundos são tão diferentes que estamos longe de conhecê-las. Sim, os Espíritos são sensíveis a elas, conforme sua capacidade de apreciá-las e compreendê-las. Para os Espíritos elevados, as belezas do conjunto, por assim dizer, apagam as dos detalhes.*
 
 ### 253 — Os Espíritos sentem nossas necessidades e sofrimentos físicos?
 
@@ -196,7 +194,7 @@ Os Espíritos vivem fora da noção de tempo tal como a conhecemos. Para eles, a
 
 ### 254 — Os Espíritos sentem fadiga ou necessidade de repouso?
 
-*— Não como vocês. Eles não se cansam fisicamente, pois não possuem órgãos. O repouso do Espírito é a diminuição da atividade mental, não a inatividade absoluta.*
+*— Não sentem cansaço do jeito que vocês entendem. Por isso, não precisam de descanso físico, já que não têm órgãos que tenham de recuperar as forças. Mesmo assim, o Espírito repousa, no sentido de não estar sempre em atividade. Ele não age materialmente. Sua ação é toda intelectual, e seu repouso é todo moral. Ou seja, há momentos em que seu pensamento fica menos ativo que de costume e não se fixa em nada específico. É um repouso verdadeiro, mas nada parecido com o do corpo. O cansaço que os Espíritos podem sentir tem a ver com a inferioridade deles. Quanto mais elevados, menos precisam descansar.*
 
 ### 255 — Quando um Espírito diz que sofre, de que natureza é esse sofrimento?
 
@@ -348,7 +346,7 @@ Ao retornarem ao ambiente anterior, não sofrem prejuízo, apenas voltam ao luga
 
 ### 273 — Um homem de sociedade civilizada pode reencarnar, como expiação, entre povos considerados selvagens?
 
-*— Pode, dependendo da natureza da expiação. Quem abusou do poder pode nascer em condição de submissão; quem foi cruel pode sofrer os mesmos maus-tratos que infligiu. Deus pode impor essas experiências como reparação.*
+*— Pode, mas depende do tipo de expiação. Um senhor que foi muito cruel com seus escravos pode, por sua vez, tornar-se escravo e sofrer os mesmos maus-tratos que infligiu aos outros. Quem um dia mandou pode, numa nova existência, ter de obedecer aos que antes lhe obedeciam. Se ele abusou do poder, Deus pode lhe dar essa experiência, não como castigo nem por vingança, mas para que sinta na própria pele o que fez os outros sentirem, entenda que aquilo era errado e cresça moralmente. Um bom Espírito também pode querer encarnar entre esses povos, numa posição de influência, para ajudá-los a progredir. Nesse caso, ele cumpre uma missão.*
 
 ## As relações no além-túmulo
 ### 274 — A existência de diferentes ordens de Espíritos implica hierarquia e autoridade entre eles?
@@ -413,8 +411,6 @@ Ao retornarem ao ambiente anterior, não sofrem prejuízo, apenas voltam ao luga
 
 *— O reconhecimento acontece naturalmente. No estado espiritual, as lembranças tornam-se mais claras. Ao reencontrar outros Espíritos, recordamos quem são, o que vivemos juntos e o caminho que cada um percorreu ao longo das suas existências.*
 
-Os Espíritos também podem, quando necessário, se reconhecer pela aparência que tinham quando vivos. Ao Espírito que acaba de chegar, e ainda pouco familiarizado com seu novo estado, os Espíritos que o recebem apresentam-se sob uma forma que ele consegue reconhecê-los.
-
 ### 286 — Ao deixar o corpo, a alma vê imediatamente parentes e amigos?
 
 *— Nem sempre imediatamente. É preciso algum tempo para que o Espírito se reconheça e se liberte das impressões materiais.*
@@ -433,7 +429,7 @@ Os Espíritos também podem, quando necessário, se reconhecer pela aparência q
 
 ### 290 — Parentes e amigos permanecem sempre juntos após a morte?
 
-*— Depende do grau de elevação e do ritmo de progresso de cada um. Se um avança mais rápido que o outro, não permanecem juntos o tempo todo, embora possam se reencontrar. A separação temporária pode ser, em certos casos, uma prova.*
+*— Depende do grau de elevação e do ritmo de progresso de cada um. Se um avança mais rápido que o outro, não permanecem juntos o tempo todo, embora possam se reencontrar. Em certos casos, essa separação é consequência das próprias faltas.*
 
 
 ## Simpatia e antipatia entre os Espíritos. Metades eternas
@@ -528,7 +524,7 @@ Assim como o adulto ri das imprudências da juventude ou das ingenuidades da inf
 
 ### 308 — O Espírito se recorda de todas as existências anteriores?
 
-*— Seu passado se desenrola diante dele como um caminho percorrido. Contudo, não se lembra de tudo com igual nitidez. As primeiras existências, comparáveis à infância do Espírito, tornam-se vagas e se perdem no esquecimento.*
+*— Todo o seu passado se desenrola diante dele, como o caminho que um viajante deixou para trás. Mas, como já dissemos, ele não se lembra de absolutamente todos os seus atos. Lembra-se deles conforme a influência que tiveram na formação do seu estado atual. As primeiras existências, comparáveis à infância do Espírito, tornam-se vagas e se perdem na noite do esquecimento.*
 
 ### 309 — Como o Espírito vê o corpo de que se separou?
 
@@ -566,7 +562,7 @@ Assim como o adulto não sente falta dos brinquedos da infância.
 
 ### 316 — O Espírito se interessa pelo progresso das artes e das ciências na Terra?
 
-*— Sim, conforme sua elevação ou missão. O que para os humanos parece grandioso pode ser apenas um exercício inicial aos olhos de Espíritos mais avançados.*
+*— Conforme sua elevação ou missão. O que para os humanos parece grandioso pode ser apenas um exercício inicial aos olhos de Espíritos mais avançados.*
 
 ### 317 — O Espírito conserva o amor à pátria?
 
@@ -576,11 +572,11 @@ Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que
 
 ### 318 — As ideias do Espírito se modificam durante a erraticidade?
 
-*— Sim, profundamente. À medida que se desmaterializa, passa a ver as coisas com maior clareza e busca meios de se aprimorar.*
+*— Sim, profundamente, à medida que o Espírito se desmaterializa. Às vezes, ele pode conservar por muito tempo as ideias que tinha na Terra. Mas, pouco a pouco, a influência da matéria diminui e ele vê as coisas com mais clareza. É então que busca meios de se aprimorar.*
 
 ### 319 — Por que o Espírito se espanta ao retornar ao mundo espiritual, se já viveu nele antes?
 
-*— Isso se deve à perturbação inicial após a morte. Com o tempo, a lembrança do passado retorna e a impressão da vida terrena se dissipa.*
+*— Isso só acontece no primeiro momento. É efeito da perturbação que o Espírito sente logo que desperta. Com o tempo, ele vai compreendendo sua situação, à medida que a lembrança do passado retorna e a impressão da vida terrena se dissipa.*
 
 
 ## Comemoração dos mortos. Funerais

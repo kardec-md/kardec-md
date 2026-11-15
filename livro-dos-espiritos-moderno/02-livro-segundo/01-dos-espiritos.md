@@ -12,7 +12,7 @@
 
 ### 78 — Os Espíritos tiveram um princípio ou existem, como Deus, desde toda a eternidade?
 
-*— Se não tivessem tido um princípio, seriam iguais a Deus. No entanto, são criação dele e estão submetidos à sua vontade. Deus existe desde sempre, isso é incontestável. Quanto à forma e ao momento em que fomos criados, nada sabemos.*
+*— Se não tivessem tido um princípio, seriam iguais a Deus. No entanto, são criação dele e estão submetidos à sua vontade. Deus existe desde sempre, isso é incontestável. Quanto à forma e ao momento em que fomos criados, nada sabemos. Você pode até dizer que não tivemos um princípio, se a ideia for esta: como Deus é eterno, ele deve ter criado sempre, sem interrupção. Mas quando e como cada um de nós foi criado, repito, ninguém sabe. Aí está o mistério.*
 
 ### 79 — Considerando que existem dois elementos gerais no universo — o elemento inteligente e o elemento material — pode-se dizer que os Espíritos são formados do elemento inteligente, assim como os corpos inertes o são do elemento material?
 
@@ -227,7 +227,7 @@ Suas qualidades e capacidade de agir para o bem variam conforme o grau de progre
 
 Compreendem Deus e o infinito e já experimentam a felicidade dos bons. São felizes pelo bem que fazem e pelo mal que conseguem impedir. O amor que os une é fonte de uma felicidade profunda, livre de inveja, remorso ou das paixões que atormentam os Espíritos imperfeitos. Ainda assim, precisam passar por provas até alcançarem a perfeição plena.
 
-Como Espíritos, inspiram bons pensamentos, afastam os seres humanos do caminho do mal, protegem aqueles que se mostram dignos e neutralizam a influência dos Espíritos imperfeitos sobre os que não estão preparados para resistir.
+Como Espíritos, inspiram bons pensamentos, afastam os seres humanos do caminho do mal, protegem aqueles que se mostram dignos e neutralizam a influência dos Espíritos imperfeitos sobre as pessoas que não querem ser influenciadas por eles.
 
 Quando encarnados, são bondosos e benevolentes. Não se deixam mover por orgulho, egoísmo ou ambição. Não alimentam ódio, rancor, inveja ou ciúme e fazem o bem simplesmente pelo bem.
 
@@ -367,7 +367,7 @@ A palavra “anjo” costuma evocar a ideia de perfeição moral. No entanto, mu
 
 ### 131 — Existem demônios, no sentido absoluto da palavra?
 
-*— Se existissem demônios nesse sentido, seriam obra de Deus. Mas seria Deus justo e bom se tivesse criado seres destinados eternamente ao mal e à infelicidade? Se há demônios, eles se encontram no mundo inferior em que vivem e em outros semelhantes. São homens hipócritas que transformam um Deus justo em um Deus vingativo, acreditando agradá-lo por meio das atrocidades que cometem em seu nome.*
+*— Se existissem demônios nesse sentido, seriam obra de Deus. Mas seria Deus justo e bom se tivesse criado seres destinados eternamente ao mal e à infelicidade? Se há demônios, eles se encontram no mundo inferior em que vocês vivem e em outros semelhantes. São homens hipócritas que transformam um Deus justo em um Deus vingativo, acreditando agradá-lo por meio das atrocidades que cometem em seu nome.*
 
 A palavra "demônio", em sua origem grega "daímōn", significava gênio ou inteligência e se aplicava aos seres incorpóreos, bons ou maus, sem distinção. A ideia moderna associa o termo exclusivamente a seres essencialmente maus.
 

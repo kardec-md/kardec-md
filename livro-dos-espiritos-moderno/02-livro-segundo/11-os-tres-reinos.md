@@ -37,9 +37,7 @@ O organismo humano oferece exemplos semelhantes de movimentos automáticos, sem 
 ## Os animais e o homem
 ### 592 — Comparando a inteligência do homem com a dos animais, parece difícil estabelecer uma linha clara de separação, pois alguns animais demonstram superioridade intelectual em relação a certos homens. É possível definir essa distinção de forma precisa?
 
-*— Nesse ponto, os filósofos de vocês discordam completamente. Alguns dizem que o homem é apenas um animal; outros afirmam que o animal é um homem incompleto. Ambos estão errados. O homem é um ser distinto, que pode rebaixar-se muito ou elevar-se muito.*
-
-Fisicamente, o homem se assemelha aos animais e, em alguns aspectos, é menos bem dotado do que muitos deles. A natureza concedeu aos animais, de forma instintiva, tudo aquilo que o homem precisou criar por meio da inteligência para suprir suas necessidades. O corpo humano se destrói como o dos animais, mas o Espírito humano possui um destino que só ele pode compreender, pois só ele é plenamente livre. Reconhece-se o homem pela capacidade de pensar em Deus.
+*— Nesse ponto, os filósofos de vocês discordam completamente. Alguns dizem que o homem é um animal; outros, que o animal é um homem. Todos estão errados. O homem é um ser à parte: às vezes desce muito baixo, mas também pode subir muito alto. Fisicamente, é como os animais, e menos bem dotado do que muitos deles. A natureza deu aos animais tudo o que o homem precisa inventar com a inteligência para suprir suas necessidades e sobreviver. O corpo do homem se destrói como o dos animais, mas o seu Espírito tem um destino que só ele pode compreender, porque só ele é totalmente livre. Pobres homens, que se rebaixam mais do que os animais! Não sabem se distinguir deles? Reconheçam o homem pela capacidade de pensar em Deus.*
 
 ### 593 — Pode-se dizer que os animais agem apenas por instinto?
 
@@ -59,7 +57,7 @@ Peixes nadam em cardumes e aves voam em bando, seguindo um líder e se movendo e
 
 ### 595 — Os animais possuem livre-arbítrio?
 
-*— Não são simples máquinas, mas sua liberdade é limitada às necessidades da vida material. Não se compara à liberdade humana.*
+*— Os animais não são simples máquinas, como vocês pensam. Mas a liberdade de ação deles é limitada pelas próprias necessidades e não se compara à do homem. Como são muito inferiores ao homem, não têm os mesmos deveres. A liberdade deles se restringe aos atos da vida material.*
 
 ### 596 — De onde vem a capacidade de certos animais imitarem a linguagem humana?
 
@@ -83,7 +81,7 @@ Peixes nadam em cardumes e aves voam em bando, seguindo um líder e se movendo e
 
 ### 600 — A alma do animal, após a morte, entra em estado de erraticidade como a do homem?
 
-*— Permanece em um estado intermediário, mas não como Espírito errante. O Espírito errante pensa e age por vontade própria, o que não ocorre com o princípio espiritual dos animais. Eles são rapidamente encaminhados para nova utilização.*
+*— Fica numa espécie de erraticidade, porque já não está unida ao corpo, mas não é um Espírito errante. O Espírito errante pensa e age por vontade própria, o que não ocorre com o princípio espiritual dos animais. O traço principal do Espírito é a consciência de si mesmo. Depois da morte, o princípio espiritual do animal é classificado pelos Espíritos encarregados dessa tarefa e logo encaminhado para nova utilização. Não tem tempo de entrar em contato com outros seres.*
 
 ### 601 — Os animais estão sujeitos a uma lei de progresso?
 

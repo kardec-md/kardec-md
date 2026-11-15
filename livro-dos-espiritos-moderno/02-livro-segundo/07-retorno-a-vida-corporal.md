@@ -181,9 +181,9 @@ Assim como a morte do corpo é, para o Espírito, uma espécie de renascimento, 
 
 *Com frequência, o ser humano se queixa de não compreender certas coisas, mas curiosamente multiplica as dificuldades quando tem à disposição uma explicação simples e natural. Nesse caso, confunde-se o efeito com a causa. O mesmo erro foi cometido pelos antigos pagãos, que acreditavam em vários deuses para explicar os fenômenos da natureza, quando esses fenômenos eram apenas manifestações de um único princípio.*
 
-*O mundo físico e o mundo moral oferecem muitos exemplos semelhantes. Enquanto os homens se fixavam apenas na aparência dos fenômenos, acreditavam que a matéria fosse múltipla. Hoje se compreende que fenômenos diversos podem ser apenas modificações de uma única matéria fundamental. Do mesmo modo, as diferentes faculdades humanas são manifestações de uma única causa — a alma ou Espírito encarnado — e não de várias almas, assim como os diferentes sons de um instrumento provêm do mesmo ar, e não de vários tipos de ar.*
+O mundo físico e o mundo moral oferecem muitos exemplos semelhantes. Enquanto os homens se fixavam apenas na aparência dos fenômenos, acreditavam que a matéria fosse múltipla. Hoje se compreende que fenômenos diversos podem ser apenas modificações de uma única matéria fundamental. Do mesmo modo, as diferentes faculdades humanas são manifestações de uma única causa — a alma ou Espírito encarnado — e não de várias almas, assim como os diferentes sons de um instrumento provêm do mesmo ar, e não de vários tipos de ar.
 
-*Se fosse diferente, ao perder ou adquirir certas aptidões, o ser humano estaria recebendo ou perdendo Espíritos, tornando-se um ser múltiplo, sem identidade e sem responsabilidade. Além disso, essa teoria é desmentida pelas inúmeras manifestações espirituais que comprovam a individualidade e a identidade dos Espíritos.*
+Se fosse diferente, ao perder ou adquirir certas aptidões, o ser humano estaria recebendo ou perdendo Espíritos, tornando-se um ser múltiplo, sem identidade e sem responsabilidade. Além disso, essa teoria é desmentida pelas inúmeras manifestações espirituais que comprovam a individualidade e a identidade dos Espíritos.
 
 ## Influência do organismo
 ### 367 — Ao se unir ao corpo, o Espírito se identifica com a matéria?
@@ -212,15 +212,15 @@ Pode-se também comparar a ação da matéria grosseira sobre o Espírito à de 
 
 *— A palavra "apenas" não expressa com exatidão a realidade. A origem dessa diversidade está, de fato, nas qualidades do Espírito, que pode ser mais ou menos adiantado. No entanto, é preciso considerar também a influência da matéria, que pode limitar em maior ou menor grau o exercício dessas faculdades.*
 
-*Ao encarnar, o Espírito traz certas predisposições. Se admitirmos que a cada uma delas corresponda um órgão cerebral específico, o desenvolvimento desses órgãos será consequência, e não causa. Se os órgãos fossem a origem das faculdades, o ser humano seria apenas uma máquina, sem livre-arbítrio e sem responsabilidade moral.*
+Ao encarnar, o Espírito traz certas predisposições. Se admitirmos que a cada uma delas corresponda um órgão cerebral específico, o desenvolvimento desses órgãos será consequência, e não causa. Se os órgãos fossem a origem das faculdades, o ser humano seria apenas uma máquina, sem livre-arbítrio e sem responsabilidade moral.
 
-*Seria necessário admitir, então, que os grandes gênios — cientistas, poetas, artistas — o são apenas por acaso, porque receberam órgãos especiais. Isso levaria à conclusão absurda de que, sem esses órgãos, um gênio não existiria, e que qualquer pessoa poderia ter sido um Newton, um Virgílio ou um Rafael, bastando possuir determinados órgãos.*
+Seria necessário admitir, então, que os grandes gênios — cientistas, poetas, artistas — o são apenas por acaso, porque receberam órgãos especiais. Isso levaria à conclusão absurda de que, sem esses órgãos, um gênio não existiria, e que qualquer pessoa poderia ter sido um Newton, um Virgílio ou um Rafael, bastando possuir determinados órgãos.
 
-*Essa ideia se torna ainda mais insustentável quando aplicada às qualidades morais. Segundo essa lógica, um Vicente de Paulo poderia ter sido um criminoso se tivesse órgãos diferentes, e o maior dos criminosos poderia tornar-se um Vicente de Paulo apenas por uma alteração orgânica.*
+Essa ideia se torna ainda mais insustentável quando aplicada às qualidades morais. Segundo essa lógica, um Vicente de Paulo poderia ter sido um criminoso se tivesse órgãos diferentes, e o maior dos criminosos poderia tornar-se um Vicente de Paulo apenas por uma alteração orgânica.
 
-*Ao contrário, se admitirmos que os órgãos, quando especializados, se desenvolvem pelo exercício da faculdade — assim como os músculos se desenvolvem com o movimento — nenhuma conclusão absurda será necessária.*
+Ao contrário, se admitirmos que os órgãos, quando especializados, se desenvolvem pelo exercício da faculdade — assim como os músculos se desenvolvem com o movimento — nenhuma conclusão absurda será necessária.
 
-*Usemos uma comparação simples, mas verdadeira: certos traços físicos permitem reconhecer uma pessoa com o vício da embriaguez. Esses sinais fazem dela um alcoólatra, ou é o alcoolismo que imprime esses sinais? Assim ocorre com o Espírito: os órgãos recebem a marca das faculdades, e não o contrário.*
+Usemos uma comparação simples, mas verdadeira: certos traços físicos permitem reconhecer uma pessoa com o vício da embriaguez. Esses sinais fazem dela um alcoólatra, ou é o alcoolismo que imprime esses sinais? Assim ocorre com o Espírito: os órgãos recebem a marca das faculdades, e não o contrário.
 
 
 ## Idiotismo, loucura
@@ -321,7 +321,7 @@ A observação confirma isso: os sonhos infantis têm caráter simples e pueril,
 ## Simpatias e antipatias terrenas
 ### 386 — Dois seres que se conheceram e se amaram podem reencontrar-se em outra existência corporal e reconhecer-se?
 
-*— Não se reconhecem. Mas podem sentir atração mútua. Muitas ligações profundas, fundadas em sincera afeição, têm origem nessa atração entre Espíritos.*
+*— Não se reconhecem. Mas podem sentir atração um pelo outro. Muitas ligações profundas, fundadas em sincera afeição, nascem dessa atração. Dois seres se aproximam por circunstâncias que parecem obra do acaso. Na verdade, são dois Espíritos que se atraem e se procuram no meio da multidão.*
 
 **— Não seria mais agradável que se reconhecessem?**
 
@@ -400,7 +400,7 @@ As existências futuras não podem, em nenhum caso, ser reveladas, pois dependem
 
 O esquecimento das faltas cometidas não impede o progresso, pois, ainda que o Espírito não se lembre delas com precisão, o fato de tê-las conhecido na erraticidade e desejado repará-las o guia por intuição e lhe dá a ideia de resistir ao mal. Essa ideia é a voz da consciência, secundada pelos Espíritos superiores que o assistem, se ele atende às boas inspirações.
 
-O ser humano não se lembra dos atos que praticou em existências anteriores, mas pode reconhecer o tipo de faltas que cometeu e o traço dominante de seu caráter. Para isso, basta observar a si mesmo: é possível entender o passado não apenas pelo que se é hoje, mas pelas próprias tendências.
+O ser humano não se lembra dos atos que praticou em existências anteriores, mas pode reconhecer o tipo de faltas que cometeu e o traço dominante de seu caráter. Para isso, basta observar a si mesmo: é possível entender o passado não pelo que se é hoje, mas pelas próprias tendências.
 
 As dificuldades da vida corporal funcionam como reparação do passado e, ao mesmo tempo, como provas para o futuro. Elas contribuem para o nosso crescimento, desde que sejam enfrentadas com equilíbrio, sem revolta.
 

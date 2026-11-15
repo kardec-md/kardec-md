@@ -106,7 +106,7 @@ Quem, ao final da vida, não lamenta ter adquirido tarde demais uma experiência
 
 **— Isso também pode ocorrer como forma de expiação? Deus pode enviar Espíritos rebeldes para mundos inferiores?**
 
-*— Sim, pode encarnar em um mundo inferior, sem que isso signifique retrocesso ou expiação. Muitas vezes, essa experiência lhe permite utilizar suas qualidades em favor de outros, ou recomeçar existências anteriores.* 
+*— Sim, pode encarnar em um mundo inferior, sem que isso signifique retrocesso ou expiação. Muitas vezes, essa experiência lhe permite utilizar suas qualidades em favor de outros, ou recomeçar existências anteriores mal-aproveitadas.* 
 
 **— Quais Espíritos precisam recomeçar a mesma existência?**
 
@@ -130,9 +130,9 @@ Quem, ao final da vida, não lamenta ter adquirido tarde demais uma experiência
 
 *— Nós, Espíritos, só podemos responder de acordo com o grau de desenvolvimento em que vocês se encontram. Isso significa que não devemos revelar essas coisas a todos, pois nem todos estariam preparados para compreendê-las, e tais revelações poderiam causar confusão.*
 
-À medida que o Espírito se purifica, o corpo que o reveste também se aproxima da natureza espiritual. A matéria torna-se menos densa; o ser deixa de arrastar-se penosamente sobre o solo; as necessidades físicas se tornam menos grosseiras, e já não é preciso que os seres vivos se destruam mutuamente para sobreviver. O Espírito se torna mais livre e passa a perceber coisas distantes que vocês ainda não conseguem captar. Ele vê com os olhos do corpo aquilo que vocês apenas vislumbram pelo pensamento.
+À medida que o Espírito se purifica, o corpo que o reveste também se aproxima da natureza espiritual. A matéria torna-se menos densa; o ser deixa de arrastar-se penosamente sobre o solo; as necessidades físicas se tornam menos grosseiras, e já não é preciso que os seres vivos se destruam mutuamente para sobreviver. O Espírito se torna mais livre e passa a perceber coisas distantes que nós ainda não conseguimos captar. Ele vê com os olhos do corpo aquilo que nós apenas vislumbramos pelo pensamento.
 
-Do aperfeiçoamento do Espírito decorre também o progresso moral dos seres que ele anima quando encarnado. As paixões instintivas se enfraquecem e o egoísmo dá lugar ao sentimento de fraternidade. É por isso que, nos mundos mais elevados que o de vocês, não existem guerras: não há ódio nem discórdia, porque ninguém pensa em prejudicar o outro. A intuição que seus habitantes têm do futuro, aliada à tranquilidade de uma consciência sem remorso, faz com que a morte não lhes cause temor. Eles a encaram serenamente, como uma simples transformação.
+Do aperfeiçoamento do Espírito decorre também o progresso moral dos seres que ele anima quando encarnado. As paixões instintivas se enfraquecem e o egoísmo dá lugar ao sentimento de fraternidade. É por isso que, nos mundos mais elevados que o nosso, não existem guerras: não há ódio nem discórdia, porque ninguém pensa em prejudicar o outro. A intuição que seus habitantes têm do futuro, aliada à tranquilidade de uma consciência sem remorso, faz com que a morte não lhes cause temor. Eles a encaram serenamente, como uma simples transformação.
 
 A duração da vida, nos diferentes mundos, parece guardar relação com o grau de superioridade física e moral de seus habitantes, o que é perfeitamente lógico. Quanto menos material é o corpo, menos sujeito está às vicissitudes que o desorganizam. Quanto mais puro é o Espírito, menos paixões o corroem. Essa também é uma forma de misericórdia divina, que assim reduz os sofrimentos.
 
@@ -207,9 +207,7 @@ Assim como na vida humana há dias improdutivos, na vida espiritual existem enca
 
 *— Não. Aquilo que o ser humano considera perfeição está muito distante da perfeição absoluta. Há qualidades que ele ainda não conhece nem compreende. Pode ser tão perfeito quanto sua natureza terrena permite, mas isso não equivale à perfeição suprema.*
 
-Assim como a criança precisa passar pela juventude antes de atingir a maturidade, e o doente pela convalescença antes de recuperar a saúde, o Espírito precisa progredir tanto em conhecimento quanto em moralidade. Se avançou apenas em um aspecto, precisa avançar no outro.
-
-Quanto mais o ser humano progride nesta vida, menos longas e penosas serão as provas futuras.
+*Com o Espírito acontece o mesmo que com uma criança: por mais inteligente que seja, ela não pula etapas e precisa crescer até virar adulta. Ou com um doente: mesmo depois de curado, ele ainda precisa de um tempo de recuperação antes de voltar à plena saúde. Além disso, o Espírito precisa avançar tanto em conhecimento quanto em moral. Se avançou só em um desses lados, ainda precisa avançar no outro para chegar ao topo. Ainda assim, quanto mais a pessoa progride nesta vida, mais curtas e leves serão as provas que virão depois.*
 
 **— Pode o ser humano, já nesta vida, preparar uma existência futura menos difícil?**
 
@@ -361,7 +359,7 @@ Os Espíritos encarnam ora como homens, ora como mulheres, porque não possuem s
 
 ### 216 — O Espírito conserva, em novas existências, traços morais das anteriores?
 
-*— Pode conservar, mas ao melhorar, muda. A posição social pode ser diferente, o que dificulta reconhecê-lo. O Espírito é o mesmo, mas suas manifestações variam conforme as circunstâncias e o progresso alcançado.*
+*— Pode conservar, mas, ao melhorar, muda. A posição social também pode ser outra. Se passa de senhor a escravo, seus gostos serão completamente diferentes, e vocês mal o reconheceriam. Como o Espírito é sempre o mesmo de uma encarnação para outra, pode haver semelhanças no jeito de se manifestar, mas moldadas pelos hábitos da nova posição. Isso dura até que um progresso marcante mude totalmente seu caráter. Com o arrependimento, quem era orgulhoso e mau pode se tornar humilde e bondoso.*
 
 ### 217 — O Espírito conserva traços físicos de existências anteriores?
 

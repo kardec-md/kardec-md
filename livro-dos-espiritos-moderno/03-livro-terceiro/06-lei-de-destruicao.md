@@ -111,7 +111,7 @@ Entre os flagelos naturais e independentes da ação humana estão a peste, a fo
 
 ### 748 — Em caso de legítima defesa, Deus absolve o assassínio?
 
-*— Somente a necessidade pode atenuá-lo. Mas, se quem se defende puder preservar a própria vida sem tirar a do agressor, deve fazê-lo.*
+*— Somente a real necessidade pode justificar esse ato. Mas, se quem se defende puder preservar a própria vida sem tirar a do agressor, deve fazê-lo.*
 
 ### 749 — O homem é culpado pelas mortes que causa durante a guerra?
 

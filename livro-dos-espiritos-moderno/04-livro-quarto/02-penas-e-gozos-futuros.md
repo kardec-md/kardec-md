@@ -107,7 +107,7 @@ Deus é ainda mais cuidadoso: Ele nos adverte constantemente, por meio da consci
 
 ### 973 — Quais são os maiores sofrimentos dos Espíritos maus?
 
-*— Não há palavras capazes de descrever plenamente as torturas morais que acompanham certos crimes. Mesmo o Espírito que as sofre teria dificuldade em explicá-las. Mas a mais terrível delas é a certeza de estar condenado sem possibilidade imediata de reparação.*
+*— Não há palavras capazes de descrever plenamente as torturas morais que acompanham certos crimes. Mesmo o Espírito que as sofre teria dificuldade em explicá-las. Mas a mais terrível delas é acreditar que está condenado para sempre.*
 
 A ideia que o ser humano faz das penas e alegrias após a morte depende do seu grau de entendimento. Quanto mais se desenvolve intelectualmente, mais essa ideia se depura e se afasta das imagens materiais. Passa a compreender de forma mais racional, sem tomar ao pé da letra figuras simbólicas. Sabendo que a alma é espiritual, a razão entende que ela não pode sofrer como o corpo sofre, mas isso não significa que esteja isenta de dor ou de consequências (237).
 
@@ -161,13 +161,13 @@ A alma que alcança certo grau de pureza já experimenta felicidade. Sente grati
 
 ### 980 — A afinidade entre Espíritos da mesma ordem é fonte de felicidade?
 
-*— Sim. A união baseada na afinidade para o bem é uma das maiores alegrias, pois não há medo de que o egoísmo a destrua. No mundo espiritual formam-se famílias pela identidade de sentimentos, e nisso reside a felicidade espiritual, assim como na Terra as pessoas se agrupam e sentem prazer em conviver.*
+*— Sim. A união baseada na afinidade para o bem é uma das maiores alegrias, pois não há medo de que o egoísmo a destrua. No mundo espiritual formam-se famílias pela identidade de sentimentos, e nisso reside a felicidade espiritual, assim como na Terra as pessoas se agrupam e sentem prazer em conviver. Na afeição sincera e pura, livre de falsidade e hipocrisia, está uma fonte constante de felicidade.*
 
-Na afeição sincera e pura, livre de falsidade e hipocrisia, está uma fonte constante de felicidade. Na Terra, o ser humano já prova um reflexo disso quando encontra almas com quem pode se unir de forma verdadeira. Em um estado mais elevado, essa alegria será plena e ilimitada, pois ali o egoísmo não a sufoca. Na essência, tudo é amor; é o egoísmo que o destrói.
+Na Terra, o ser humano já prova um reflexo disso quando encontra almas com quem pode se unir de forma verdadeira. Em um estado mais elevado, essa alegria será plena e ilimitada, pois ali o egoísmo não a sufoca. Na essência, tudo é amor; é o egoísmo que o destrói.
 
 ### 981 — Ter medo da morte ou aceitá-la faz diferença para o Espírito após o desencarne?
 
-*— Sim, mas não da forma como vocês imaginam. O que realmente importa não é temer ou desejar a morte, e sim o motivo desses sentimentos. Há quem tema a morte por apego egoísta e quem a tema por amor aos que ficará deixando. Há quem a deseje por desespero e quem a aceite com serenidade. É a qualidade desses sentimentos que influencia a situação do Espírito.*
+*— Sim, mas não da forma como vocês imaginam. O que realmente importa não é temer ou desejar a morte, e sim o motivo desses sentimentos. É a qualidade desses sentimentos que influencia a situação do Espírito. Quem deseja a morte só para se livrar dos próprios problemas, por exemplo, está de certa forma reclamando da Providência e das provas que precisa enfrentar.*
 
 ### 982 — É necessário professar o Espiritismo para garantir uma boa sorte futura?
 
@@ -322,35 +322,45 @@ SÃO LUÍS.
 
 ### 1009 — As penas impostas podem ser eternas?
 
-*— Consultem a sua razão. Uma condenação sem fim, por erros cometidos em um tempo limitado, não seria a negação da bondade de Deus? O que representa uma vida de cem anos diante da eternidade? Sofrimentos sem fim, sem esperança, por faltas temporárias: essa ideia não repugna ao bom senso?*
+*— Perguntem ao seu bom senso e à sua razão se uma condenação sem fim, por alguns momentos de erro, não seria a negação da bondade de Deus. O que é uma vida, mesmo de cem anos, diante da eternidade? Eternidade! Vocês entendem bem essa palavra? Sofrimentos sem fim, sem esperança, por algumas faltas! Como aceitar uma ideia dessas?*
 
-*A ignorância dos povos antigos explica que tenham concebido Deus como severo e vingativo, atribuindo-lhe paixões humanas. Mas esse não é o Deus ensinado pelo Cristo, cujo fundamento é o amor, a misericórdia e o perdão. Poderia Deus exigir virtudes que Ele próprio não tivesse? Poderia ser infinitamente bom e infinitamente vingativo ao mesmo tempo?*
+*Dá para entender que os antigos, na sua ignorância, vissem Deus como terrível, ciumento e vingativo: atribuíam a Ele as paixões humanas. Mas esse não é o Deus dos cristãos, que põe em primeiro lugar o amor, a caridade, a misericórdia e o perdão das ofensas. Poderia Deus exigir das suas criaturas virtudes que Ele próprio não tivesse? Poderia ser infinitamente bom e infinitamente vingativo ao mesmo tempo?*
 
-*A verdadeira justiça divina está em fazer com que a duração das penas dependa dos esforços do culpado. A cada um segundo as suas obras.*
+*Vocês dizem que Ele é, acima de tudo, justo, e que o ser humano não compreende a sua justiça. Mas a justiça não exclui a bondade, e Deus não seria bom se condenasse a maioria das suas criaturas a penas horríveis e eternas. E teria Ele o direito de exigir que os seus filhos sejam justos sem lhes dar meios de compreender a justiça? A grandeza da justiça unida à bondade está justamente em fazer a duração das penas depender dos esforços do culpado. Aí está a verdade da frase: “A cada um segundo as suas obras”.*
 
 SANTO AGOSTINHO.
 
 ***
 
-*— Empenhem-se em destruir a ideia da eternidade absoluta das penas, ideia que vai contra a justiça e a bondade de Deus e que tem sido uma das maiores fontes do materialismo, do ceticismo e da indiferença moral. A razão humana, ao se esclarecer, percebe essa injustiça e, rejeitando-a, muitas vezes rejeita também Deus.*
+*— Façam tudo o que puderem para combater e destruir a ideia da eternidade das penas. Essa ideia, uma blasfêmia contra a justiça e a bondade de Deus, é a semente da descrença, do materialismo e da indiferença que tomaram conta das multidões desde que a inteligência humana começou a se desenvolver. O Espírito que começa a se esclarecer, mesmo que pouco, logo percebe essa injustiça monstruosa. A sua razão a rejeita e, quase sempre, ele rejeita junto com ela o Deus a quem a atribui. Daí vêm os incontáveis males que caíram sobre vocês e que nós viemos remediar.*
 
-*Pobres almas desgarradas, olhem para o bom Pastor que vem ao encontro de vocês, não para os excluir para sempre, mas para reconduzi-los ao caminho. Filhos pródigos, abandonem o exílio voluntário: o Pai os espera de braços abertos.*
+*Essa tarefa será ainda mais fácil porque as autoridades em que se apoiam os defensores dessa crença evitaram se pronunciar claramente sobre ela. Nem os concílios nem os Pais da Igreja resolveram essa questão séria. Segundo os evangelistas, e tomando ao pé da letra as palavras simbólicas do Cristo, Ele ameaçou os culpados com um fogo eterno, que não se apaga. Mas nada nas suas palavras prova que os tenha condenado para sempre.*
+
+*Pobres ovelhas desgarradas, aprendam a ver o Bom Pastor que se aproxima. Longe de afastá-los para sempre, Ele mesmo vem ao encontro de vocês para levá-los de volta ao rebanho. Filhos pródigos, abandonem o exílio voluntário e voltem para a casa do Pai. Ele os espera de braços abertos, sempre pronto a festejar a volta de vocês à família.*
 
 LAMENNAIS.
 
 ***
 
-*— Guerras de palavras! Ainda não bastou o sangue derramado? Vocês discutem sobre a eternidade das penas sem perceber que os antigos não entendiam eternidade como vocês entendem hoje. A eternidade dos castigos significa a permanência do mal enquanto o mal existir. Quando o arrependimento for geral, cessarão as penas.*
+*— Guerras de palavras! Ainda não bastou o sangue que vocês derramaram? Será preciso acender de novo as fogueiras? Vocês discutem sobre palavras: eternidade das penas, eternidade dos castigos. Não sabem que os antigos não entendiam eternidade como vocês entendem hoje? Que o teólogo consulte as fontes. Vai descobrir que o texto hebraico não dava esse sentido à palavra que gregos, latinos e modernos traduziram como penas sem fim e sem perdão.*
 
-*Somente Deus é eterno. Admitir um mal eterno seria negar o seu poder soberano. Humanidade, não busques nos abismos da Terra o castigo: espera, expia e confia num Deus essencialmente bom, justo e poderoso.*
+*A eternidade dos castigos corresponde à eternidade do mal. Sim, enquanto houver mal entre as pessoas, haverá castigos. Os textos sagrados devem ser entendidos em sentido relativo. A eternidade das penas é, portanto, relativa, e não absoluta. No dia em que todos, pelo arrependimento, se vestirem com a túnica da inocência, não haverá mais gemidos nem ranger de dentes.*
+
+*A razão de vocês é limitada, é verdade, mas é um presente de Deus. Com ela, nenhuma pessoa de boa-fé entenderia a eternidade dos castigos de outro modo. Senão, seria preciso admitir um mal eterno. Somente Deus é eterno, e Ele não poderia ter criado um mal eterno, ou perderia o maior dos seus atributos, o poder soberano, porque não é todo-poderoso quem cria algo capaz de destruir as suas próprias obras. Humanidade, não mergulhe mais o seu olhar triste nas profundezas da Terra à procura de castigos. Chore, espere, expie e busque abrigo na ideia de um Deus profundamente bom, absolutamente poderoso e essencialmente justo.*
 
 PLATÃO.
 
 ***
 
-*— O fim da humanidade é gravitar para a unidade divina. Para isso, são necessários justiça, amor e conhecimento. O castigo não é vingança: é consequência natural do desvio. Serve para despertar a alma, levá-la ao arrependimento e à reparação.*
+*— O fim da humanidade é gravitar para a unidade divina. Para isso, são necessários a justiça, o amor e o conhecimento. A isso se opõem a ignorância, o ódio e a injustiça. Pois eu lhes digo: vocês traem esses princípios quando comprometem a ideia de Deus exagerando a sua severidade. E a comprometem duas vezes, porque deixam a criatura supor que ela tem mais clemência, virtude, amor e verdadeira justiça do que vocês atribuem ao Ser infinito. Vocês destroem até a ideia do inferno: ela fica tão ridícula e inaceitável para a fé de vocês quanto as execuções, as fogueiras e as torturas da Idade Média já são para o seu coração. Se as leis humanas baniram para sempre a época das vinganças cegas, como vocês esperam mantê-la na ideia que fazem de Deus?*
 
-*Querer penas eternas para faltas temporárias é negar a razão de ser do castigo. Não coloques o Mal, obra da criatura, no mesmo nível do Bem, essência do Criador.*
+*Acreditem em mim, irmãos em Deus e em Jesus Cristo: ou vocês deixam todos os seus dogmas morrerem nas suas mãos, só para não mudá-los, ou lhes dão vida nova, abrindo-os à boa influência que os Espíritos bons trazem agora. A ideia do inferno, com fornalhas ardentes e caldeirões fervendo, pôde ser tolerada numa época brutal. Hoje, não passa de um fantasma, bom no máximo para assustar crianças, que deixam de acreditar nele assim que crescem. Se insistirem nessa mitologia de terror, vocês vão gerar a descrença, mãe de toda desordem social. Tremo ao ver toda uma ordem social abalada e desabando por falta de punição para o mal. Pessoas de fé viva, que abrem caminho para o dia da luz, mãos à obra! Não para manter fábulas velhas e desacreditadas, mas para dar vida nova à verdadeira ideia de punição, de um jeito que combine com os costumes, os sentimentos e o conhecimento do seu tempo.*
+
+*Afinal, quem é o culpado? É quem, por um movimento errado da alma, se afasta do objetivo da Criação: o culto harmonioso do belo e do bem, cujo modelo ideal é Jesus Cristo, o Homem-Deus.*
+
+*E o que é o castigo? É a consequência natural desse movimento errado: uma dose de dor, necessária para que o culpado, provando o sofrimento, sinta repulsa pela própria deformidade. O castigo é a espora que, pela amargura, leva a alma a se voltar para si mesma e a buscar o porto da salvação. O seu único objetivo é a reabilitação, a redenção. Querer um castigo eterno para uma falta que não é eterna é negar a sua razão de ser.*
+
+*Em verdade lhes digo: parem de colocar lado a lado, como se os dois fossem eternos, o Bem, essência do Criador, e o Mal, obra da criatura. Isso seria criar uma pena impossível de justificar. Afirmem, ao contrário, que os castigos diminuem aos poucos, ao longo das existências sucessivas. Assim vocês vão confirmar a unidade divina, unindo o sentimento e a razão.*
 
 PAULO, APÓSTOLO.
 
@@ -369,7 +379,7 @@ Hoje, a teologia já reconhece que o “fogo” das penas é moral, não materia
 
 ### 1011 — Então, pelo dogma da ressurreição da carne, a própria Igreja ensina a reencarnação?
 
-*— Sim. Essa doutrina decorre naturalmente de muitas passagens que, por muito tempo, não foram compreendidas. O Espiritismo não destrói a religião: ele a esclarece, retirando o véu da linguagem simbólica.*
+*— Sim. Essa doutrina decorre de muitas coisas que passaram despercebidas e que em breve serão compreendidas nesse sentido. Logo se verá que o Espiritismo aparece a cada passo no próprio texto das Escrituras. Os Espíritos, portanto, não vêm destruir a religião, como alguns afirmam. Ao contrário, vêm confirmá-la com provas que ninguém pode negar. Chegou o tempo de deixar de lado a linguagem simbólica. Por isso, eles falam sem alegorias e dão às coisas um sentido claro e preciso, sem margem para interpretações falsas. Assim, daqui a algum tempo, haverá muito mais pessoas sinceramente religiosas e com fé do que hoje.*
 
 SÃO LUÍS.
 
@@ -380,7 +390,7 @@ A ciência demonstra a impossibilidade literal da ressurreição da carne. A mat
 ## Paraíso, inferno e purgatório.
 ### 1012 — Existem lugares específicos no universo para penas e recompensas?
 
-*— Não. Penas e gozos são estados do Espírito, conforme seu grau de evolução. Não existem lugares fechados destinados ao castigo ou à felicidade.*
+*— Não. Já respondemos a essa pergunta. Penas e gozos são estados do Espírito, conforme seu grau de evolução. Cada um tira de si mesmo a fonte da própria felicidade ou infelicidade. E, como os Espíritos estão em toda parte, não existem lugares fechados destinados ao castigo ou à felicidade. Quanto aos encarnados, são mais ou menos felizes conforme o mundo em que vivem é mais ou menos avançado.*
 
 **— Então, inferno e paraíso não existem como o homem imagina?**
 
@@ -394,7 +404,13 @@ O purgatório não é um lugar, mas um estado temporário do Espírito imperfeit
 
 ### 1014 — Por que Espíritos elevados falam de inferno e purgatório conforme ideias populares?
 
-*— Porque adaptam a linguagem à compreensão de quem pergunta. Espíritos inferiores também usam termos terrenos para expressar sofrimentos espirituais.*
+*— Porque falam numa linguagem que quem pergunta consegue entender. Quando a pessoa está apegada a certas ideias, eles evitam chocá-la de forma brusca, para não ferir suas convicções. Se um Espírito dissesse a um muçulmano, sem rodeios, que Maomé não foi profeta, seria muito mal recebido.*
+
+**— Faz sentido que os Espíritos que querem nos ensinar façam isso. Mas por que alguns Espíritos, quando perguntados sobre a própria situação, responderam que sofriam as torturas do inferno ou do purgatório?**
+
+*— Os Espíritos inferiores, ainda não totalmente livres da matéria, guardam parte das ideias que tinham na Terra. Para descrever o que sentem, usam as palavras a que estão acostumados. Estão num meio em que só conseguem ver o futuro de forma imperfeita.*
+
+*Por isso alguns Espíritos errantes, ou recém-desencarnados, falam como se ainda estivessem encarnados. “Inferno” pode ser entendido como uma vida de provas muito dolorosa, sem saber se virá outra melhor. “Purgatório”, como uma vida também de provas, mas sabendo que virá um futuro melhor. Quando você sente uma grande dor, não diz que sofre “como um condenado”? São só palavras, sempre em sentido figurado.*
 
 ### 1015 — O que significa uma “alma a penar”?
 
@@ -402,24 +418,24 @@ O purgatório não é um lugar, mas um estado temporário do Espírito imperfeit
 
 ### 1016 — O que se deve entender por céu?
 
-*— Não é um lugar fixo. É o universo, os mundos superiores, onde os Espíritos vivem sem as angústias da vida material.*
+*— Você acha que o céu é um lugar, como os Campos Elísios dos antigos, onde os bons Espíritos ficam amontoados, apenas desfrutando para sempre uma felicidade passiva? Não. É o espaço universal: os planetas, as estrelas e todos os mundos superiores. Lá os Espíritos usam plenamente suas capacidades, sem as dificuldades da vida material nem as angústias da inferioridade.*
 
 ### 1017 — O que significam expressões como “quarto” ou “quinto céu”?
 
-*— Graus de evolução espiritual, não locais físicos.*
+*— Ao perguntar em que céu eles moram, vocês já imaginam vários céus empilhados, como os andares de um prédio. E eles respondem na linguagem de vocês. Mas, com “quarto” ou “quinto céu”, querem dizer graus de purificação e, portanto, de felicidade. É como perguntar a um Espírito se está no inferno. Se for infeliz, dirá que sim, porque para ele inferno é sofrimento. Mas sabe bem que não é uma fornalha. Um pagão diria que está no Tártaro.*
 
 ### 1018 — O que quis dizer o Cristo com “meu reino não é deste mundo”?
 
-*— Que seu reino é moral, fundado no amor e na pureza de coração, não no poder material.*
+*— O Cristo falava em sentido figurado. Queria dizer que seu reino só existe nos corações puros e desinteressados. Ele está onde o amor ao bem fala mais alto. Mas quem vive correndo atrás das coisas deste mundo, apegado aos bens da Terra, não está com Ele.*
 
 ### 1019 — O bem reinará algum dia na Terra?
 
-*— O bem não se estabelecerá na Terra por imposição, mas como consequência da transformação moral da humanidade. Quanto mais as pessoas desenvolverem a empatia, a justiça e a solidariedade, mais o mundo refletirá esses valores. O egoísmo e o orgulho perderão espaço à medida que a consciência coletiva amadurecer.*
+*— O bem reinará na Terra quando os bons forem maioria entre os Espíritos que vêm viver aqui. Eles farão reinar o amor e a justiça, fonte do bem e da felicidade. É pelo progresso moral e pela prática das leis de Deus que o ser humano vai atrair os bons Espíritos e afastar os maus. Mas os maus só vão embora quando o orgulho e o egoísmo forem banidos daqui.*
 
-*Essa mudança já faz parte do processo evolutivo da humanidade. Novas gerações, compostas por Espíritos mais preparados para viver esses ideais, ajudarão a construir uma sociedade mais equilibrada e fraterna. Os que ainda não estiverem prontos não serão condenados, mas continuarão aprendendo em outros mundos compatíveis com suas necessidades de crescimento.*
+*Essa transformação da humanidade foi anunciada, e vocês estão perto dela. Quem ajuda o progresso apressa sua chegada. Ela virá pela encarnação de Espíritos melhores, que vão formar uma nova geração na Terra. Então os Espíritos dos maus, que a morte leva dia após dia, e todos os que tentarem impedir essa mudança serão afastados daqui. Ficariam deslocados entre as pessoas de bem e perturbariam a felicidade delas. Irão para mundos novos, menos adiantados, cumprir missões difíceis, trabalhando pelo próprio progresso e pelo de irmãos ainda mais atrasados.*
 
-*As antigas narrativas religiosas podem ser vistas como símbolos dessa jornada. O ser humano não carrega uma culpa herdada, mas imperfeições que precisa vencer gradualmente. O progresso espiritual depende do esforço, das escolhas e da disposição sincera de melhorar.*
+*Nesse afastamento de Espíritos da Terra transformada, vocês não veem a bela alegoria do Paraíso perdido? O ser humano chegou à Terra em condições parecidas, trazendo a semente das suas paixões e as marcas da sua inferioridade primitiva. Não reconhecem aí a alegoria do pecado original? Visto assim, o pecado original está ligado à natureza ainda imperfeita do ser humano. Ninguém carrega uma culpa herdada: cada um responde pelos próprios erros, não pelos dos pais.*
 
-*Cada pessoa, portanto, participa dessa transformação. Quem trabalha pelo bem ajuda a construir o futuro. Quem se prende ao egoísmo e aos interesses exclusivamente materiais acaba criando para si dificuldades que somente a renovação interior poderá superar.*
+*Por isso, todos vocês, pessoas de fé e de boa vontade, trabalhem com coragem e dedicação na grande obra da regeneração. Vão colher cem vezes mais do que semearem. Ai de quem fecha os olhos para a luz! Está preparando para si longos séculos de escuridão e decepções. Ai de quem faz dos bens deste mundo a fonte de todas as alegrias! Vai sofrer muito mais privações do que os prazeres que teve. Ai, sobretudo, dos egoístas! Não vão ter quem os ajude a carregar o peso das suas misérias.*
 
 SÃO LUÍS.

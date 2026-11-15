@@ -16,7 +16,7 @@ Outros defendem a ideia de uma alma universal, da qual cada ser receberia uma pa
 
 Por fim, há a concepção mais difundida: a alma como um ser imaterial, individual e independente da matéria, que sobrevive ao corpo. Essa é a visão espiritualista. O problema é que a mesma palavra é usada para ideias diferentes. Para evitar confusão, é preciso definir claramente o sentido adotado. Nesta obra, chamamos alma o ser imaterial e individual que existe em nós e continua a existir após a morte.
 
-Quando nos referimos à força que sustenta a vida biológica, usamos a expressão princípio vital. Trata-se da energia que mantém os seres orgânicos (plantas, animais e seres humanos) independentemente da inteligência ou do pensamento. A vida material é comum a todos os organismos; já a inteligência e o senso moral aparecem em graus diferentes, atingindo no ser humano seu desenvolvimento mais completo.
+Quando nos referimos à força que sustenta a vida biológica, usamos a expressão princípio vital. Trata-se da energia que mantém os seres orgânicos (plantas, animais e seres humanos) independentemente da inteligência ou do pensamento. A vida material é comum a todos os organismos; a inteligência aparece em graus diferentes em várias espécies, mas só o ser humano tem também o senso moral.
 
 Muitas divergências ao longo do tempo nasceram apenas do uso impreciso das palavras. Ao esclarecer o sentido de alma desde o início, evitamos mal-entendidos e discussões desnecessárias.
 
@@ -184,7 +184,7 @@ Além disso, ambientes marcados por descuido ou falta de intenção sincera não
 
 O movimento de objetos é um fato amplamente relatado. A questão não é se ocorre, mas se há nele uma manifestação inteligente e, caso haja, qual sua origem.
 
-Não nos limitaremos aqui em manifestações verbais ou em mensagens escritas diretamente pelo médium, pois para quem observa pela primeira vez pode parecer que ainda dependem da vontade ou da habilidade de quem as produz. Consideremos apenas a escrita obtida por meio de um objeto munido de lápis (como cesta ou prancheta) sobre o qual o médium apenas repousa os dedos. A posição das mãos torna difícil supor interferência consciente no traçado das letras. Ainda que se admitisse habilidade extraordinária capaz de enganar o observador mais atento, restaria explicar algo mais complexo: a natureza das respostas.
+Não vamos tratar aqui das manifestações verbais nem das mensagens escritas diretamente pelo médium, pois para quem observa pela primeira vez pode parecer que ainda dependem da vontade ou da habilidade de quem as produz. Consideremos apenas a escrita obtida por meio de um objeto munido de lápis (como cesta ou prancheta) sobre o qual o médium apenas repousa os dedos. A posição das mãos torna difícil supor interferência consciente no traçado das letras. Ainda que se admitisse habilidade extraordinária capaz de enganar o observador mais atento, restaria explicar algo mais complexo: a natureza das respostas.
 
 Muitas vezes não se trata de palavras isoladas, mas de páginas inteiras escritas com rapidez, espontaneamente ou sobre temas propostos. Surgem textos fora do campo de conhecimento do médium e, ocasionalmente, composições de qualidade literária inesperada. Esses fatos são relatados em diferentes lugares e por inúmeros médiuns. São reais ou não? A resposta proposta é simples: observar com atenção, repetidamente e nas condições adequadas.
 
@@ -202,7 +202,7 @@ No mundo espiritual, como no mundo humano, há diferentes níveis. Permanecer ap
 
 Outra interpretação atribui todos os fenômenos à ação de uma força exclusivamente maligna, capaz de assumir qualquer forma para enganar. Essa hipótese, além de extrema, pouco se sustenta. Se assim fosse, seria preciso admitir que essa força age, em muitos casos, com coerência moral e bom senso, o que enfraquece a própria acusação.
 
-Além disso, admitir a intervenção de espíritos malignos já é reconhecer que há manifestações espirituais. Se elas existem, só podem ocorrer com a permissão divina. Seria coerente supor que Deus permita apenas a ação do mal, sem conceder espaço para orientações elevadas? Se não pudesse impedir, não seria soberano; se pudesse e não o fizesse, não seria justo. Ambas as conclusões contradizem noções básicas de razão e de fé.
+Além disso, quem admite que maus Espíritos se comunicam já reconhece que as comunicações existem. E, se existem, só acontecem com a permissão de Deus. Faz sentido acreditar que Deus deixaria apenas os maus Espíritos nos influenciar e aconselhar, sem permitir que os bons também nos dessem seus conselhos? Se Deus não pudesse fazer isso, não seria soberano; se pudesse e não fizesse, não seria bom. As duas ideias vão contra o bom senso e contra a fé.
 
 ### XI
 

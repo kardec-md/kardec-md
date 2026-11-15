@@ -11,9 +11,7 @@ Todos os homens estão submetidos às mesmas leis da natureza. Todos nascem igua
 ## Desigualdade das aptidões
 ### 804 — Por que Deus não deu as mesmas aptidões a todos os homens?
 
-*— Deus criou todos os Espíritos iguais, mas cada um vive há mais ou menos tempo e, por isso, adquiriu mais ou menos experiência. As diferenças surgem do grau de vivência acumulada e da forma como cada um usa a própria vontade, isto é, o livre-arbítrio. Assim, alguns se aperfeiçoam mais rapidamente do que outros, o que explica a diversidade de aptidões.*
-
-Essa variedade é necessária para que cada um possa contribuir, dentro de suas capacidades físicas e intelectuais, para a realização dos desígnios da Providência. O que um não faz, outro fará; todos têm um papel útil. Além disso, como os mundos são solidários entre si, os Espíritos mais adiantados, em sua maioria criados antes deste mundo, vêm habitar mundos menos evoluídos para servir de exemplo e impulso ao progresso (361).
+*— Deus criou todos os Espíritos iguais, mas cada um vive há mais ou menos tempo e, por isso, adquiriu mais ou menos experiência. As diferenças surgem do grau de vivência acumulada e da forma como cada um usa a própria vontade, isto é, o livre-arbítrio. Assim, alguns se aperfeiçoam mais rapidamente do que outros, o que explica a diversidade de aptidões. Essa variedade é necessária para que cada um possa contribuir, dentro de suas capacidades físicas e intelectuais, para a realização dos desígnios da Providência. O que um não faz, outro fará; todos têm um papel útil. Além disso, como os mundos são solidários entre si, os Espíritos mais adiantados, em sua maioria criados antes deste mundo, vêm habitar mundos menos evoluídos para servir de exemplo e impulso ao progresso (361).*
 
 ### 805 — Ao passar de um mundo mais evoluído para outro menos evoluído, o Espírito conserva as faculdades que já adquiriu?
 

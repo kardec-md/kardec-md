@@ -119,7 +119,7 @@ As dificuldades da vida parecem insuportáveis enquanto duram. Mas, quando super
 
 *— Só se a pessoa preferir a falsa felicidade do egoísta. Amigos ingratos que se afastam não eram dignos dessa amizade. Mais tarde, surgirão outros que saberão compreender melhor. Tenha compaixão de quem agiu mal com você, pois a dor maior será deles. Não se deixe abater: isso o coloca acima dessas situações.*
 
-A natureza deu ao homem a necessidade de amar e ser amado. Um dos maiores prazeres da vida é encontrar pessoas com quem haja verdadeira afinidade. Essas alegrias são um prenúncio da felicidade que aguarda no mundo espiritual, onde tudo é amor e bondade. O egoísta, porém, se exclui desse bem.
+A natureza deu ao homem a necessidade de amar e ser amado. Um dos maiores prazeres da vida é encontrar pessoas com quem haja verdadeira afinidade. Essas alegrias são uma amostra da felicidade que o espera no mundo dos Espíritos puros, onde tudo é amor e bondade. O egoísta, porém, se exclui desse bem.
 
 
 ## Uniões antipáticas
@@ -201,7 +201,7 @@ Quem se mata para fugir da vergonha mostra que valoriza mais a opinião dos home
 
 ### 951 — O sacrifício da própria vida é meritório quando visa salvar outra pessoa ou beneficiar a coletividade?
 
-*— Pode ser, dependendo da intenção. Nesse caso, não se trata de suicídio. Mas Deus não aprova sacrifícios inúteis nem aqueles manchados pelo orgulho. Apenas o desinteresse torna o sacrifício realmente valioso.*
+*— Isso é sublime, dependendo da intenção. Nesse caso, não se trata de suicídio. Mas Deus não aprova sacrifícios inúteis nem aqueles manchados pelo orgulho. Apenas o desinteresse torna o sacrifício realmente valioso.*
 
 Todo sacrifício feito em nome da caridade tem grande valor espiritual. Renunciar à própria vida pelo bem dos outros não é um atentado, mas um gesto elevado. Ainda assim, antes de agir, é preciso refletir se a própria vida não será mais útil do que a própria morte.
 
@@ -227,7 +227,7 @@ Todo sacrifício feito em nome da caridade tem grande valor espiritual. Renuncia
 
 ### 954 — Uma imprudência que coloca a vida em risco sem intenção é condenável?
 
-*— Não há culpa quando não existe intenção consciente de fazer o mal.*
+*— Não há culpa quando não existe intenção ou plena consciência de fazer o mal.*
 
 ### 955 — Mulheres que, por tradição cultural, se sacrificam junto ao corpo do marido são consideradas suicidas?
 
@@ -235,13 +235,13 @@ Todo sacrifício feito em nome da caridade tem grande valor espiritual. Renuncia
 
 ### 956 — Aqueles que se matam para reencontrar entes queridos alcançam esse objetivo?
 
-*— Não. O efeito é o oposto. Em vez de se aproximarem, afastam-se ainda mais. Deus não recompensa um ato de desespero. Sofrerão consequências mais dolorosas do que aquelas que tentaram evitar (934 e seguintes).*
+*— Não. O efeito é o oposto. Em vez de se aproximarem, afastam-se ainda mais. Deus não recompensa um ato de desespero, nem a ofensa de duvidar da Providência. Sofrerão consequências mais dolorosas do que aquelas que tentaram evitar (934 e seguintes).*
 
 ### 957 — Quais são, em geral, as consequências espirituais do suicídio?
 
 *— Variam conforme as causas. Não há consequência fixa, mas uma é inevitável: a decepção. Alguns sofrem imediatamente; outros passam por existências futuras mais difíceis.*
 
-Em muitos casos, o vínculo entre o Espírito e o corpo se rompe de forma brusca, prolongando a confusão após a morte. O Espírito pode, por algum tempo, acreditar que ainda está vivo. Em certos casos, sente até reflexos da decomposição do corpo, o que gera angústia intensa. Nem todos passam por isso, mas ninguém escapa das consequências.
+Como a vida é interrompida de forma brusca, o vínculo entre o Espírito e o corpo ainda está forte e demora mais para se desfazer. Isso prolonga a confusão após a morte. O Espírito pode, por algum tempo, acreditar que ainda está vivo. Em certos casos, sente até reflexos da decomposição do corpo, o que gera angústia intensa. Nem todos passam por isso, mas ninguém escapa das consequências.
 
 Alguns Espíritos relatam ter escolhido novas provas após o suicídio, buscando aprender a suportar a vida com mais resignação. Outros permanecem presos à matéria, impedidos de avançar para mundos melhores. A maioria percebe que o ato foi inútil e fonte apenas de arrependimento.
 

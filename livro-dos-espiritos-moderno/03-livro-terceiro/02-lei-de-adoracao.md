@@ -118,7 +118,7 @@ O Cristianismo não eliminou o que pertence à natureza: apenas redirecionou a a
 ## Sacrifícios
 ### 669 — Por que os sacrifícios humanos surgiram na antiguidade, se são incompatíveis com a ideia de Deus?
 
-*— Primeiro, porque os homens ainda não compreendiam Deus como fonte de bondade. Nos povos primitivos, o instinto predominava sobre o espírito, e o senso moral era pouco desenvolvido. Segundo, acreditavam que uma vida tinha mais valor para Deus do que um objeto material. Assim, começaram sacrificando animais e depois passaram aos homens, acreditando que quanto maior a vítima, maior o agrado a Deus.*
+*— Primeiro, porque os homens ainda não compreendiam Deus como fonte de bondade. Nos povos primitivos, a matéria predominava sobre o espírito, e eles se entregavam aos instintos do animal selvagem. Por isso, em geral, eram cruéis: neles, o senso moral ainda não tinha se desenvolvido. Segundo, era natural que os homens primitivos acreditassem que um ser vivo valia muito mais para Deus do que um objeto material. Foi isso que os levou a sacrificar primeiro animais e, mais tarde, homens. Pela falsa crença que tinham, achavam que o valor do sacrifício dependia da importância da vítima. No dia a dia, quando vocês dão um presente a alguém, quanto mais afeto e consideração querem mostrar, mais valioso é o presente que escolhem. Entre homens ignorantes, tinha que ser assim também em relação a Deus.*
 
 **— Os sacrifícios de animais vieram antes dos humanos?**
 
@@ -134,11 +134,11 @@ O Cristianismo não eliminou o que pertence à natureza: apenas redirecionou a a
 
 ### 671 — O que pensar das chamadas guerras santas? O fanatismo que leva certos povos a exterminar os que não compartilham de sua fé, acreditando agradar a Deus, tem a mesma origem dos antigos sacrifícios humanos?
 
-*— Sim. Essas guerras são inspiradas por Espíritos maus. Fazer guerra ao semelhante contraria a vontade de Deus, que ordena amar o próximo como a si mesmo. Todos os povos adoram o mesmo Deus, sob nomes diferentes. Por que, então, exterminar uns aos outros apenas por diferenças religiosas, ou porque um povo ainda não alcançou o mesmo grau de progresso? Os que não creem em Jesus, sobretudo por não terem testemunhado seus atos, têm desculpa. Mas como esperar que aceitem uma palavra de paz quando ela é imposta pela espada? É preciso esclarecê-los, sim, mas com persuasão e bondade, nunca com ferro e fogo. Vocês mesmos, em sua maioria, não acreditam nas comunicações que temos com certos mortais. Como esperar, então, que estranhos acreditem na palavra de quem desmente, com os próprios atos, a doutrina que prega?*
+*— Essas guerras são inspiradas por Espíritos maus. Fazer guerra ao semelhante contraria a vontade de Deus, que ordena amar o próximo como a si mesmo. Todos os povos adoram o mesmo Deus, sob nomes diferentes. Por que, então, exterminar uns aos outros apenas por diferenças religiosas, ou porque um povo ainda não alcançou o mesmo grau de progresso? Os que não creem em Jesus, sobretudo por não terem testemunhado seus atos, têm desculpa. Mas como esperar que aceitem uma palavra de paz quando ela é imposta pela espada? É preciso esclarecê-los, sim, mas com persuasão e bondade, nunca com ferro e fogo. Vocês mesmos, em sua maioria, não acreditam nas comunicações que temos com certos mortais. Como esperar, então, que estranhos acreditem na palavra de quem desmente, com os próprios atos, a doutrina que prega?*
 
 ### 672 — A oferta de frutos da terra agradava mais a Deus do que o sacrifício de animais?
 
-*— Deus julga pela intenção, não pela forma. Oferecer frutos era mais agradável do que derramar sangue, mas o mais importante sempre foi a intenção. Uma prece sincera vale mais do que qualquer oferenda material.*
+*— Já respondi a isso: Deus julga pela intenção, e o ato em si pouco importava. Claro que frutos da terra agradavam mais a Deus do que o sangue de vítimas. Como já dissemos e sempre vamos repetir, uma prece feita do fundo da alma agrada a Deus cem vezes mais do que todas as oferendas que vocês possam fazer. Repito: a intenção é tudo, o ato não vale nada.*
 
 ### 673 — Não seria mais agradável a Deus que essas oferendas fossem usadas para aliviar o sofrimento dos necessitados? Nesse caso, o sacrifício de animais com finalidade útil não se tornaria meritório, ao contrário daquele que não servia a ninguém ou só beneficiava quem nada precisava? Não haveria algo verdadeiramente piedoso em destinar aos pobres os primeiros frutos dos bens que Deus nos concede?
 

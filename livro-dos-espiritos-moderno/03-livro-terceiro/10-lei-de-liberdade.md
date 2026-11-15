@@ -169,7 +169,7 @@ Muitas vezes preferimos atribuir nossos fracassos à sorte ou ao destino, pois i
 
 ### 859 — Os acidentes da vida também são inevitáveis quando devem ocorrer, assim como a morte?
 
-*— Muitas vezes, tratam-se de fatos pequenos demais para que sejamos avisados. Em alguns casos, podemos até ajudar a evitá-los, pois o sofrimento material nos desagrada. Mas isso tem pouca importância diante do conjunto da vida escolhida. A verdadeira fatalidade limita-se ao momento de nascer e de morrer.*
+*— Em geral, são coisas pequenas, e por isso podemos avisar vocês e, algumas vezes, ajudar a evitá-las, guiando o seu pensamento, pois o sofrimento material nos desagrada. Mas isso tem pouca importância diante do conjunto da vida escolhida. A verdadeira fatalidade limita-se ao momento de nascer e de morrer.*
 
 **— Existem fatos que obrigatoriamente devem acontecer, mesmo contra a vontade dos Espíritos?**
 

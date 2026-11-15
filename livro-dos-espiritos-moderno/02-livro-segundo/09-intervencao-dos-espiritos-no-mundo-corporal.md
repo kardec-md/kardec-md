@@ -332,7 +332,7 @@ O mau gênio é um Espírito imperfeito que tenta desviar a pessoa do bem. Age p
 
 ### 518 — Assim como Espíritos se ligam a indivíduos por afinidade, podem também se ligar a grupos?
 
-*— Sim. Os Espíritos preferem estar entre aqueles que lhes são semelhantes. Sociedades, cidades e povos atraem Espíritos conforme os pensamentos e sentimentos predominantes. O aperfeiçoamento moral coletivo afasta Espíritos inferiores e atrai os bons.*
+*— Sim. Os Espíritos preferem estar entre aqueles que se parecem com eles. Ali se sentem mais à vontade e mais certos de que serão ouvidos. O ser humano atrai os Espíritos pelas suas tendências, esteja sozinho ou faça parte de uma sociedade, uma cidade ou um povo. Por isso, cada grupo é acompanhado por Espíritos mais ou menos elevados, conforme os sentimentos e o caráter que nele predominam. Os Espíritos imperfeitos se afastam de quem os rejeita. Assim, o aperfeiçoamento moral de um grupo, como o de uma pessoa, tende a afastar os Espíritos inferiores e a atrair os bons. Os bons estimulam e alimentam o desejo do bem; os maus podem despertar as piores tendências.*
 
 ### 519 — Coletividades como cidades e nações têm Espíritos protetores?
 
@@ -418,9 +418,11 @@ A experiência mostra que alguns Espíritos continuam, em outra existência, a e
 
 ### 532 — Os Espíritos podem afastar males ou favorecer alguém com prosperidade?
 
-*— Não completamente, pois há sofrimentos previstos pela Providência. Eles, porém, aliviam as dores, inspirando paciência e resignação. Muitas vezes, depende de vocês evitar ou suavizar esses males.*
+*— Não completamente, pois alguns males fazem parte dos planos da Providência. Mas os Espíritos aliviam as dores, inspirando paciência e resignação.*
 
-Deus deu ao ser humano a inteligência para usá-la, e é principalmente por meio dela que os Espíritos auxiliam, sugerindo ideias úteis. Mas só ajudam de fato aqueles que também se ajudam.
+*Saibam também que muitas vezes depende de vocês evitar esses males ou, ao menos, suavizá-los. Deus deu a vocês a inteligência para que a usem. É sobretudo por meio dela que os Espíritos ajudam, sugerindo ideias úteis. Mas só ajudam quem sabe ajudar a si mesmo. É esse o sentido de “Buscai e achareis, batei e se vos abrirá.”*
+
+*Saibam ainda que nem tudo o que parece um mal é um mal. Muitas vezes, dele nasce um bem muito maior. Vocês quase nunca percebem isso, porque só olham para o presente ou para si mesmos.*
 
 ### 533 — Os Espíritos podem conceder riquezas a quem pede?
 
@@ -432,7 +434,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 ### 534 — Quando obstáculos parecem impedir nossos projetos, isso é sempre influência espiritual?
 
-*— Às vezes sim, mas na maioria dos casos é erro de planejamento ou de execução. Se insistem em um caminho errado, não podem culpar os Espíritos pelos fracassos.*
+*— Às vezes, é ação dos Espíritos. Mas, na maioria dos casos, vocês erram ao planejar ou ao executar seus projetos. A posição e o caráter de cada pessoa pesam muito nisso. Se insistem num caminho que não deveriam seguir, os Espíritos não têm culpa pelos fracassos. Vocês mesmos se tornam o mau Espírito que atrapalha seus planos.*
 
 ### 535 — Quando algo bom acontece, devemos agradecer ao Espírito protetor?
 
@@ -446,6 +448,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 *— É verdade, mas é preciso esperar o desfecho. Pagarão caro essa felicidade que não merecem, pois quanto mais receberam, mais terão de prestar contas.*
 
+## Ação dos Espíritos nos fenômenos da natureza
 ### 536 — Os grandes fenômenos da natureza são fruto do acaso ou têm finalidade providencial?
 
 *— Tudo tem uma razão de ser e nada acontece sem a permissão de Deus.*
@@ -476,7 +479,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 ### 540 — Esses Espíritos atuam conscientemente ou por impulso instintivo?
 
-*— Alguns têm consciência, outros não. Os Espíritos menos adiantados executam tarefas sem plena noção do conjunto, como instrumentos da lei divina.*
+*— Alguns têm consciência, outros não. Pensem, por exemplo, nos incontáveis animais que, pouco a pouco, fazem surgir do mar ilhas e arquipélagos. Essa transformação da superfície do planeta tem uma finalidade providencial e é necessária à harmonia geral. No entanto, esse trabalho é feito por animais muito inferiores, que só cuidam das próprias necessidades e nem desconfiam de que são instrumentos de Deus. Do mesmo modo, os Espíritos menos adiantados são úteis ao conjunto. Enquanto ainda se preparam para a vida, antes de terem plena consciência dos próprios atos e pleno livre-arbítrio, atuam em certos fenômenos sem saber que são agentes deles. Primeiro, executam. Mais tarde, com a inteligência mais desenvolvida, vão organizar e dirigir as coisas do mundo material. Depois, poderão dirigir as do mundo moral. É assim que, na natureza, tudo serve e tudo está interligado, do átomo primitivo ao arcanjo, que também começou como átomo. Uma lei de harmonia admirável, que a mente limitada de vocês ainda não consegue compreender por inteiro!*
 
 ## Os Espíritos durante os combates
 ### 541 — Durante uma batalha há Espíritos auxiliando os combatentes?
@@ -505,15 +508,15 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 ### 547 — Após a morte, antigos inimigos continuam se odiando?
 
-*— No início pode acontecer, mas com o retorno da lucidez o ódio tende a desaparecer, embora possam restar resquícios.*
+*— Nessas situações, o Espírito nunca está calmo. Nos primeiros momentos depois da morte, ele pode ainda odiar o inimigo e até persegui-lo. Mas, quando recupera a serenidade, percebe que essa hostilidade já não tem motivo. Mesmo assim, pode guardar resquícios dela, mais ou menos fortes, conforme o seu caráter.*
 
 **— Eles ainda ouvem os sons da batalha?**
 
 *— Sim. Perfeitamente.*
 
-### 548 — Como o Espírito percebe a separação da alma e do corpo em uma morte violenta?
+### 548 — Um Espírito desencarnado que assiste com calma a uma batalha consegue ver a alma se separar do corpo de quem morre? Como ele vê isso?
 
-*— Raramente a morte é instantânea. No começo, o Espírito fica confuso e não percebe imediatamente que morreu. Aos poucos, compreende a situação, e a separação lhe parece natural.*
+*— Raramente a morte é instantânea. Quem é ferido de morte quase nunca percebe na hora o que aconteceu. Só quando começa a entender sua nova condição é que os Espíritos ao redor conseguem vê-lo, ao lado do próprio corpo. Tudo parece tão natural que ver o corpo morto não o perturba. Daí em diante, é com ele, e não com o corpo, que os outros conversam.*
 
 
 ## Pactos
@@ -521,7 +524,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 *— Não, não existem pactos no sentido literal. O que existe são pessoas de natureza má que entram em sintonia com Espíritos igualmente maus. Por exemplo: alguém deseja prejudicar o vizinho e não sabe como fazer isso. Ao alimentar esse desejo, acaba atraindo Espíritos inferiores que, como ele, querem o mal. Esses Espíritos ajudam, mas exigem que a pessoa também os sirva em seus propósitos negativos. Isso não impede, porém, que o vizinho se liberte dessa influência por meio de sua própria vontade e de uma influência contrária. É apenas nisso que consiste o chamado “pacto”.*
 
-*Quando alguém se torna dependente de Espíritos inferiores, isso acontece porque se entrega aos pensamentos ruins que eles sugerem, e não porque tenha feito algum acordo formal. O pacto, no sentido comum da palavra, é apenas uma imagem que representa a afinidade entre uma pessoa de má índole e Espíritos igualmente mal-intencionados.*
+Quando alguém se torna dependente de Espíritos inferiores, isso acontece porque se entrega aos pensamentos ruins que eles sugerem, e não porque tenha feito algum acordo formal. O pacto, no sentido comum da palavra, é apenas uma imagem que representa a afinidade entre uma pessoa de má índole e Espíritos igualmente mal-intencionados.
 
 ### 550 — Qual o significado das lendas que falam de pessoas que teriam vendido a alma ao diabo para obter vantagens?
 
@@ -555,7 +558,7 @@ Deus deu ao ser humano a inteligência para usá-la, e é principalmente por mei
 
 *— O que vocês chamam de feiticeiros são, muitas vezes, pessoas que possuem certas faculdades naturais, como o magnetismo ou a segunda vista, e que, agindo de boa-fé, produzem efeitos que os ignorantes não compreendem. Por isso, são tidas como dotadas de poderes sobrenaturais. Quantas vezes cientistas também não foram considerados feiticeiros pelos ignorantes?*
 
-*O Espiritismo e o magnetismo explicam inúmeros fenômenos que a ignorância transformou em lendas exageradas. O conhecimento claro dessas duas áreas, que no fundo formam uma só, é o melhor antídoto contra a superstição, pois mostra o que é possível, o que é natural e o que não passa de fantasia.*
+O Espiritismo e o magnetismo explicam inúmeros fenômenos que a ignorância transformou em lendas exageradas. O conhecimento claro dessas duas áreas, que no fundo formam uma só, é o melhor antídoto contra a superstição, pois mostra o que é possível, o que é natural e o que não passa de fantasia.
 
 ### 556 — Algumas pessoas realmente têm o poder de curar pelo simples contato?
 

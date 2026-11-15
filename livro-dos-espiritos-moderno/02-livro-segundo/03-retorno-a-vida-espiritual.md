@@ -125,5 +125,3 @@ Há casos em que o Espírito assiste ao próprio enterro como se fosse o de outr
 Para o homem de bem, a perturbação é calma, semelhante a um despertar tranquilo. Para aquele cuja consciência não está em paz, ela é cheia de angústia e ansiedade, que aumentam à medida que ele compreende sua situação.
 
 Em mortes coletivas, observa-se que os Espíritos que faleceram ao mesmo tempo nem sempre se reencontram de imediato, pois cada um segue para onde o atraem seus vínculos.
-
-Na morte natural, a perturbação começa antes do fim da vida orgânica. O Espírito perde toda consciência de si no momento da morte e por isso jamais testemunha o último suspiro. As convulsões da agonia são efeitos nervosos que quase nunca o afetam, exceto em casos específicos em que o sofrimento pode ter caráter expiatório.

@@ -25,7 +25,7 @@
 
 ### 707 — Por que, mesmo havendo abundância ao redor, algumas pessoas não conseguem garantir o próprio sustento?
 
-*— Isso acontece principalmente por causa do egoísmo humano, que faz com que muitos não cumpram sua responsabilidade de partilhar e cooperar. Em muitos casos, porém, a causa também está no próprio indivíduo. “Buscai e achareis” não significa que basta olhar em volta, mas que é preciso procurar com esforço, perseverança e sem desistir diante das dificuldades. Muitas dessas dificuldades são, na verdade, provas usadas pela Providência para testar a constância, a paciência e a firmeza do homem (534).*
+*— Isso acontece por causa do egoísmo humano, que faz com que muitos não cumpram sua responsabilidade de partilhar e cooperar. Mas, na maioria das vezes, a causa está no próprio indivíduo. “Buscai e achareis” não significa que basta olhar em volta, mas que é preciso procurar com esforço, perseverança e sem desistir diante das dificuldades. Muitas dessas dificuldades são, na verdade, provas usadas pela Providência para testar a constância, a paciência e a firmeza do homem (534).*
 
 Se é verdade que a civilização cria novas necessidades, também é verdade que ela amplia as oportunidades de trabalho e os meios de garantir a própria sobrevivência. Ainda assim, é preciso reconhecer que muito resta a ser feito. Quando a civilização cumprir plenamente seu papel, ninguém poderá dizer que lhe faltou o necessário, a não ser por responsabilidade própria.
 

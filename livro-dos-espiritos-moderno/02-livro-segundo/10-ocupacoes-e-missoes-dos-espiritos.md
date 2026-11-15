@@ -38,7 +38,7 @@ Entre os seres humanos, ninguém alcança grande domínio em uma arte sem antes 
 
 *— Sim, mas apenas de forma temporária. Esse estado depende do desenvolvimento de sua inteligência. Há Espíritos que, como certos seres humanos, vivem apenas para si mesmos. No entanto, essa ociosidade logo se torna pesada, e o desejo de progredir desperta a necessidade de agir. Quando conseguem tornar-se úteis, sentem-se felizes.*
 
-Falamos aqui dos Espíritos que já têm consciência de si e livre-arbítrio. Em sua origem, todos são como crianças recém-nascidas, agindo mais por instinto do que por vontade consciente.
+*Falamos aqui dos Espíritos que já têm consciência de si e livre-arbítrio. Em sua origem, todos são como crianças recém-nascidas, agindo mais por instinto do que por vontade consciente.*
 
 ### 565 — Os Espíritos observam e se interessam pelas obras de arte humanas?
 
@@ -94,7 +94,7 @@ Existem missões das mais diversas naturezas, voltadas tanto às necessidades ma
 
 *— Em instruir, auxiliar o progresso e melhorar as instituições humanas por meios diretos e materiais. As missões variam em alcance e importância. Quem cultiva a terra cumpre uma missão, assim como quem governa ou ensina. Tudo na natureza está interligado.*
 
-Ao mesmo tempo em que o Espírito se aprimora pela encarnação, contribui para a realização dos desígnios da Providência. Todos têm uma missão, pois todos podem ser úteis.
+*Ao mesmo tempo em que o Espírito se aprimora pela encarnação, contribui para a realização dos desígnios da Providência. Todos têm uma missão, pois todos podem ser úteis.*
 
 ### 574 — Qual é a missão daqueles que vivem voluntariamente sem utilidade?
 
@@ -116,7 +116,7 @@ Ao mesmo tempo em que o Espírito se aprimora pela encarnação, contribui para 
 
 *— Não. Muitas vezes, ela se torna instrumento de um Espírito que deseja realizar algo útil. Por exemplo, um Espírito pode inspirar alguém a escrever um livro que ele próprio escreveria se estivesse encarnado. O autor executa a ideia, mesmo sem ter vindo à Terra com essa missão específica.*
 
-Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espíritos errantes e combinar a execução dessas tarefas.
+*Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espíritos errantes e combinar a execução dessas tarefas.*
 
 ### 578 — Um Espírito pode falhar em sua missão?
 
@@ -128,7 +128,7 @@ Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espírit
 
 ### 579 — Se Deus confia missões importantes, como pode confiá-las a Espíritos que podem falhar?
 
-*— Deus conhece o futuro, embora vocês não o conheçam. Seus grandes planos não dependem exclusivamente de quem pode desistir no meio do caminho.*
+*— Deus não sabe se o seu general vai vencer ou perder? Acreditem, Ele sabe. E os seus grandes planos não se apoiam em quem vai desistir no meio do caminho. Para vocês, a questão toda se resume a isto: Deus conhece o futuro, e vocês não.*
 
 ### 580 — O Espírito que encarna para cumprir uma missão sente as mesmas dificuldades que outro que encarna apenas para ser provado?
 
@@ -140,9 +140,7 @@ Durante o sono, o Espírito encarnado pode se comunicar diretamente com Espírit
 
 ### 582 — A paternidade pode ser considerada uma missão?
 
-*— Sem dúvida. É uma missão e um dever de enorme responsabilidade. Deus confiou os filhos aos pais para que os conduzam no caminho do bem, e facilitou essa tarefa dando à criança uma constituição física frágil e delicada, que a torna receptiva a todas as impressões. Muitos, porém, cuidam mais das plantas do jardim do que da formação moral dos filhos.*
-
-Se o filho se perde por negligência dos pais, eles responderão por isso, compartilhando de seus sofrimentos no futuro.
+*— Sem dúvida. É uma missão e um dever de enorme responsabilidade. Deus confiou os filhos aos pais para que os conduzam no caminho do bem, e facilitou essa tarefa dando à criança uma constituição física frágil e delicada, que a torna receptiva a todas as impressões. Muitos, porém, cuidam mais das plantas do jardim do que da formação moral dos filhos. Se o filho se perde por negligência dos pais, eles responderão por isso, compartilhando de seus sofrimentos no futuro.*
 
 ### 583 — Os pais são responsáveis quando um filho segue o mau caminho, apesar dos cuidados recebidos?
 

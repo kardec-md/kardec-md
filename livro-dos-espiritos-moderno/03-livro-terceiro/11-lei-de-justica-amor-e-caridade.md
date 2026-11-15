@@ -47,7 +47,7 @@ De fato, o critério da verdadeira justiça está em desejar para os outros o qu
 
 ### 881 — O direito à vida dá ao homem o direito de acumular bens para descansar quando não puder mais trabalhar?
 
-*— Sim, mas isso deve ser feito de forma coletiva, como a abelha, por meio de trabalho honesto, e não por egoísmo. Até os animais dão exemplo de previdência.*
+*— Sim, mas isso deve ser feito em família, como a abelha, por meio de trabalho honesto, e não por egoísmo. Até os animais dão exemplo de previdência.*
 
 ### 882 — O homem tem o direito de defender os bens que adquiriu com seu trabalho?
 
@@ -120,7 +120,7 @@ SÃO VICENTE DE PAULO
 
 ### 891 — Se o amor materno é natural, como explicar que existam mães que odeiam seus filhos, às vezes desde o nascimento?
 
-*— Em alguns casos, trata-se de uma prova escolhida pelo Espírito do filho ou de uma expiação, quando esse Espírito não foi bom pai, mãe ou filho em outra existência (392). Em todo caso, uma mãe cruel só pode ser a encarnação de um Espírito ainda imperfeito, que cria dificuldades para que o filho enfrente a prova que escolheu. Essa violação das leis naturais não ficará sem consequência, e o Espírito do filho será recompensado por ter superado esses obstáculos.*
+*— Em alguns casos, trata-se de uma prova escolhida pelo Espírito do filho ou de uma expiação, quando esse Espírito não foi bom pai, mãe ou filho em outra existência (392). Em todo caso, uma mãe cruel só pode ser a encarnação de um Espírito ainda imperfeito, que cria dificuldades para que o filho fracasse na prova que escolheu. Essa violação das leis naturais não ficará sem consequência, e o Espírito do filho será recompensado por ter superado esses obstáculos.*
 
 ### 892 — Quando os filhos causam sofrimento aos pais, estes ficam isentos de lhes oferecer afeto?
 

@@ -22,7 +22,7 @@
 
 *O sonho é a lembrança do que o Espírito viu durante o sono. Observe, porém, que nem sempre se sonha, pois nem sempre o ser humano se lembra do que viu, ou de tudo o que viu enquanto dormia. Os sonhos nem sempre refletem a ação plena da alma; muitas vezes são apenas a lembrança confusa da perturbação sentida na partida ou no retorno ao corpo, somada ao que se fez ou ao que preocupa a pessoa quando está desperta. Caso contrário, como se explicariam os sonhos absurdos que tanto os sábios quanto as pessoas mais simples têm? Também acontece que Espíritos inferiores se aproveitam do estado de sonho para atormentar almas frágeis e inseguras.*
 
-*Além disso, em breve se desenvolverá outro tipo de sonhos. Embora tão antigos quanto os anteriores, são pouco conhecidos. Refiro-me aos sonhos de Joana d’Arc, aos de Jacó, aos dos profetas judeus e aos de alguns sábios indianos. São lembranças conservadas por almas que se desprendem completamente do corpo, recordações dessa segunda vida a que nos referimos há pouco.*
+*Além disso, em breve se desenvolverá outro tipo de sonhos. Embora tão antigos quanto os anteriores, são pouco conhecidos. Refiro-me aos sonhos de Joana d’Arc, aos de Jacó, aos dos profetas judeus e aos de alguns sábios indianos. São lembranças conservadas por almas que se desprendem quase totalmente do corpo, recordações dessa segunda vida a que nos referimos há pouco.*
 
 *Procura distinguir essas duas espécies de sonhos entre aqueles de que te lembras; do contrário, cairás em contradições e erros prejudiciais à tua compreensão.*
 
@@ -82,7 +82,7 @@ Assim, quando estamos apenas sonolentos ou em leve dormência, muitas vezes vemo
 ## Visitas espíritas entre pessoas vivas
 ### 413 — Do princípio da emancipação da alma podemos concluir que vivemos, ao mesmo tempo, uma vida corporal e uma vida espiritual?
 
-*— Durante a emancipação, a vida da alma se torna predominante. Contudo, não existem duas existências distintas, mas duas fases de uma única existência, porque o homem não vive duas vezes.*
+*— Durante a emancipação, a vida da alma se torna predominante. Contudo, não existem duas existências distintas, mas duas fases de uma única existência, porque o homem não vive duas vidas ao mesmo tempo.*
 
 ### 414 — Pessoas que se conhecem podem se encontrar espiritualmente enquanto dormem?
 
@@ -177,7 +177,7 @@ A letargia e a catalepsia derivam do mesmo princípio, que é a perda temporári
 
 *— O sonâmbulo possui mais conhecimentos do que se imagina. Esses conhecimentos apenas permanecem adormecidos, pois, sendo o envoltório corporal imperfeito, não permite que ele se recorde plenamente. O que é um sonâmbulo, afinal? Um Espírito encarnado como qualquer outro. A encarnação cobre temporariamente suas lembranças e limita a manifestação de suas faculdades espirituais. No estado sonambúlico, porém, essas limitações diminuem e ele pode ter acesso a conhecimentos que conserva em seu íntimo, inclusive de existências anteriores, ainda que de forma parcial. Muitas vezes sabe, mas não consegue explicar como sabe. Terminada a crise sonambúlica, essas percepções voltam a se apagar e ele retorna às condições habituais da vida material.* 
 
-*A experiência mostra também que os sonâmbulos recebem comunicações de outros Espíritos, que lhes transmitem o que devem dizer e suprem as limitações que apresentam. Isso se verifica principalmente nas prescrições médicas. O Espírito do sonâmbulo percebe o mal, e outro Espírito lhe indica o remédio. Essa dupla ação às vezes é evidente e se revela por expressões frequentes como: “disseram-me que eu dissesse” ou “não me permitem dizer tal coisa”. Neste último caso, há sempre perigo em insistir numa revelação negada, pois se abre espaço para a intervenção de Espíritos levianos, que falam sem critério e sem compromisso com a verdade.*
+A experiência mostra também que os sonâmbulos recebem comunicações de outros Espíritos, que lhes transmitem o que devem dizer e suprem as limitações que apresentam. Isso se verifica principalmente nas prescrições médicas. O Espírito do sonâmbulo percebe o mal, e outro Espírito lhe indica o remédio. Essa dupla ação às vezes é evidente e se revela por expressões frequentes como: “disseram-me que eu dissesse” ou “não me permitem dizer tal coisa”. Neste último caso, há sempre perigo em insistir numa revelação negada, pois se abre espaço para a intervenção de Espíritos levianos, que falam sem critério e sem compromisso com a verdade.
 
 ### 432 — Como se explica a visão à distância em certos sonâmbulos?
 
@@ -195,7 +195,7 @@ A letargia e a catalepsia derivam do mesmo princípio, que é a perda temporári
 
 *— A maioria os vê muito bem, conforme o grau e a natureza da lucidez de cada um. Algumas vezes, porém, não percebem de imediato que estão vendo Espíritos e os tomam por seres corpóreos. Isso ocorre principalmente com aqueles que nada conhecem do Espiritismo e ainda não compreendem a natureza dos Espíritos. O fato os espanta e os leva a acreditar que estão diante de pessoas encarnadas.*
 
-*O mesmo acontece com Espíritos recém-desencarnados que ainda se julgam vivos. Não percebendo nenhuma alteração ao seu redor e vendo Espíritos com aparência semelhante à humana, tomam a aparência do próprio perispírito por um corpo material.*
+O mesmo acontece com Espíritos recém-desencarnados que ainda se julgam vivos. Não percebendo nenhuma alteração ao seu redor e vendo Espíritos com aparência semelhante à humana, tomam a aparência do próprio perispírito por um corpo material.
 
 ### 436 — Se, nos fenômenos sonambúlicos, é a alma que se desloca, de onde o sonâmbulo vê: do local onde está o corpo ou de onde está a alma?
 
@@ -273,7 +273,7 @@ A letargia e a catalepsia derivam do mesmo princípio, que é a perda temporári
 
 *— Sim. Doença, perigo iminente e grandes emoções podem despertá-la. Às vezes, o corpo entra num estado especial que permite ao Espírito ver o que não se pode perceber com os sentidos físicos.*
 
-*Em épocas de crises e calamidades, grandes comoções morais frequentemente provocam o desenvolvimento da segunda vista. Parece que a Providência, quando um perigo nos ameaça, nos oferece um meio de enfrentá-lo.*
+Em épocas de crises e calamidades, grandes comoções morais frequentemente provocam o desenvolvimento da segunda vista. Parece que a Providência, quando um perigo nos ameaça, nos oferece um meio de enfrentá-lo.
 
 ### 453 — As pessoas dotadas de segunda vista sempre têm consciência dessa faculdade?
 
