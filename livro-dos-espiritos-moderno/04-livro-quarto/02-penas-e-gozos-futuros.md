@@ -404,7 +404,7 @@ O purgatório não é um lugar, mas um estado temporário do Espírito imperfeit
 
 ### 1014 — Por que Espíritos elevados falam de inferno e purgatório conforme ideias populares?
 
-*— Porque falam numa linguagem que quem pergunta consegue entender. Quando a pessoa está apegada a certas ideias, eles evitam chocá-la de forma brusca, para não ferir suas convicções. Se um Espírito dissesse a um muçulmano, sem rodeios, que Maomé não foi profeta, seria muito mal recebido.*
+*— Porque falam numa linguagem que quem pergunta consegue entender. Quando a pessoa está apegada a certas ideias, eles evitam chocá-la de forma brusca, para não ferir suas convicções. Se um Espírito dissesse a um muçulmano que Maomé não foi profeta, seria muito mal recebido.*
 
 **— Faz sentido que os Espíritos que querem nos ensinar façam isso. Mas por que alguns Espíritos, quando perguntados sobre a própria situação, responderam que sofriam as torturas do inferno ou do purgatório?**
 

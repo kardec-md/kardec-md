@@ -54,9 +54,9 @@ Em todas as épocas houve manifestações espontâneas, aquelas que acontecem se
 
 **a) — Que motivos podem levá-los a procurar esses lugares?**
 
-*— A simpatia por algumas das pessoas que frequentam o lugar, ou a vontade de se comunicar com elas. Mas nem sempre as intenções são boas. Quando são Espíritos maus, podem querer se vingar de pessoas contra quem guardam ressentimento. Para alguns, ser obrigado a ficar num lugar também pode ser uma expiação, uma consequência das próprias faltas. Isso acontece principalmente quando cometeram um crime ali. Assim, ficam com esse crime sempre diante dos olhos.[^2]*
+*— A simpatia por algumas das pessoas que frequentam o lugar, ou a vontade de se comunicar com elas. Mas nem sempre as intenções são boas. Quando são Espíritos maus, podem querer se vingar de pessoas contra quem guardam ressentimento. Para alguns, ser obrigado a ficar num lugar também pode ser uma expiação, uma consequência das próprias faltas. Isso acontece principalmente quando cometeram um crime ali. Assim, ficam com esse crime sempre diante dos olhos.[^4]*
 
-[^2]: Há um caso assim na Revista Espírita, fevereiro de 1860.
+[^4]: Há um caso assim na Revista Espírita, fevereiro de 1860.
 
 **X. Os lugares assombrados são sempre assombrados por quem morou neles?**
 

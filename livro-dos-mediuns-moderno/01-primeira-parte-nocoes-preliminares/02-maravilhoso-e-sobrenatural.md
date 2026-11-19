@@ -36,13 +36,13 @@ Portanto, a existência dos Espíritos não é uma teoria pronta, nem uma hipót
 
 ### 10
 
-Para quem acha que a matéria é a única força da natureza, tudo o que as leis da matéria não explicam é maravilhoso ou sobrenatural. E, para essas pessoas, maravilhoso é o mesmo que superstição. Se fosse assim, a religião, que se baseia na existência de algo além da matéria, seria um amontoado de superstições. Elas não têm coragem de dizer isso em voz alta, mas dizem baixinho. E acham que disfarçam bem ao admitir que a religião é necessária para o povo simples e para as crianças, para que se comportem.
+Para quem acha que a matéria é a única força da natureza, tudo o que as leis da matéria não explicam é maravilhoso ou sobrenatural. E, para essas pessoas, maravilhoso é o mesmo que superstição. Se fosse assim, a religião, que se baseia na existência de algo além da matéria, seria só um monte de superstições. Muitas dessas pessoas pensam exatamente isso, mas não têm coragem de falar abertamente. Para disfarçar, dizem que a religião é útil para as pessoas simples e para as crianças, porque ajuda a mantê-las na linha. Ou seja: acham que a religião não é verdadeira, mas que serve para fazer os outros se comportarem.
 
-Mas é uma coisa ou outra: ou o princípio religioso é verdadeiro, ou é falso. Se é verdadeiro, vale para todo mundo. Se é falso, não vale nem para quem estudou, nem para quem não estudou.
+Só que não dá para ser as duas coisas. Ou a religião é verdadeira, ou é falsa. Se é verdadeira, é verdadeira para todo mundo. Se é falsa, é falsa para todo mundo, tanto para quem estudou quanto para quem não estudou.
 
 ### 11
 
-Quem ataca o Espiritismo dizendo que ele é coisa do maravilhoso costuma partir da ideia materialista de que só a matéria existe. E quem nega qualquer efeito que vá além da matéria já nega, automaticamente, a existência da alma. Examinem a fundo o que essas pessoas pensam e dizem, e quase sempre vão encontrar essa ideia. Mesmo quando não aparece com todas as letras, ela está lá, disfarçada de uma suposta filosofia racional. Quando chamam de maravilhoso tudo o que vem da existência da alma, elas são coerentes: quem não aceita a causa não pode aceitar os efeitos. Por isso já chegam com a opinião pronta e não conseguem julgar o Espiritismo com justiça, porque partem da negação de tudo o que não é matéria.
+No fundo, quase todo mundo que chama o Espiritismo de “coisa do maravilhoso” é materialista, mesmo quando disfarça isso com um discurso de pessoa racional. E quem não acredita na alma acaba rejeitando, naturalmente, tudo o que vem dela. Por isso essas pessoas já chegam com a opinião formada e não conseguem julgar o Espiritismo com justiça.
 
 E nós? Só porque aceitamos os efeitos que vêm da existência da alma, vamos aceitar todos os fatos chamados de maravilhosos? Vamos defender todos os sonhadores, todas as utopias, todas as teorias excêntricas? Quem pensa assim conhece muito pouco do Espiritismo. Mas nossos adversários não se preocupam muito em conhecer o que criticam.
 
@@ -58,9 +58,9 @@ O Espiritismo não tem culpa dos absurdos feitos em seu nome. Do mesmo jeito, a 
 
 Como se vê, o Espiritismo não aceita todos os fatos tidos como maravilhosos ou sobrenaturais. Muito pelo contrário: ele mostra que muitos deles são impossíveis e que certas crenças são ridículas. Essas crenças, sim, são superstição de verdade.
 
-É verdade que, entre as coisas que ele aceita, há algumas que os céticos colocam no campo do maravilhoso, ou seja, da superstição. Tudo bem. Mas, então, discutam só esses pontos. Atacar o que o próprio Espiritismo rejeita é falar à toa. Quem faz isso só prova que não conhece o assunto, e seus argumentos erram o alvo.
+É verdade que, entre as coisas que ele aceita, há algumas que os céticos colocam no campo do maravilhoso, ou seja, da superstição. Tudo bem. Mas, então, discutam só esses pontos. Atacar o que o próprio Espiritismo rejeita é falar à toa. Quem faz isso só prova que não conhece o assunto.
 
-Alguém vai perguntar: então, o que exatamente o Espiritismo aceita? Leiam, observem e vão descobrir. Nenhuma ciência se aprende sem tempo e estudo. E o Espiritismo trata das questões mais sérias da filosofia e de todos os aspectos da vida em sociedade. Ele cuida tanto do lado físico quanto do lado moral do ser humano. É, ao mesmo tempo, uma ciência e uma filosofia.
+Alguém vai perguntar: então, o que exatamente o Espiritismo aceita? Leiam, observem e irão descobrir. Nenhuma ciência se aprende sem tempo e estudo. E o Espiritismo trata das questões mais sérias da filosofia e de todos os aspectos da vida em sociedade. Ele cuida tanto do lado físico quanto do lado moral do ser humano. É, ao mesmo tempo, uma ciência e uma filosofia.
 
 Querer ver todo o Espiritismo numa mesa girante, dessas que se mexem e respondem por pancadas, é tão infantil quanto querer ver toda a Física em alguns brinquedos de criança. Para quem não quer ficar na superfície, não bastam algumas horas: é preciso estudar por meses e anos para conhecê-lo a fundo. Imagine, então, quanto vale a opinião de quem se acha no direito de julgar depois de ver um ou dois experimentos, quase sempre por diversão.
 
@@ -82,7 +82,7 @@ Vamos resumir o que dissemos até aqui:
 
 6. Julgar o Espiritismo pelos fatos que ele não aceita é mostrar ignorância, e isso tira todo o valor da opinião.
 
-7. Os fatos que o Espiritismo aceita têm causas e consequências morais. A explicação de tudo isso forma uma ciência e uma filosofia inteiras, que exigem estudo sério, constante e profundo.
+7. Os fatos que o Espiritismo aceita têm causas e consequências morais. A explicação de tudo isso forma uma ciência e uma filosofia, que exigem estudo sério, constante e profundo.
 
 8. Para o Espiritismo, crítico sério é só aquele que:
 
@@ -98,7 +98,7 @@ Vamos resumir o que dissemos até aqui:
 
 Falamos há pouco em milagre. Como este capítulo trata do maravilhoso, vale fazer uma observação rápida sobre essa palavra.
 
-No sentido usual, milagre é um ato do poder de Deus contrário às leis comuns da natureza. Quando chamamos de milagre alguma coisa comum que nos surpreende e cuja causa não conhecemos, é só força de expressão. Não vamos discutir aqui se Deus já achou útil, em certas situações, suspender as leis que Ele mesmo criou. Nosso objetivo é apenas mostrar que os fenômenos espíritas, por mais extraordinários que sejam, não suspendem essas leis de forma alguma. Eles não têm nada de milagroso, assim como não têm nada de maravilhoso ou sobrenatural.
+No sentido usual, milagre é um ato do poder de Deus contrário às leis comuns da natureza. Quando chamamos de milagre alguma coisa comum que nos surpreende e cuja causa não conhecemos, é só força de expressão. Os fenômenos espíritas, por mais extraordinários que sejam, não vão contra essas leis de forma alguma. Por isso, não têm nada de milagroso, assim como não têm nada de maravilhoso ou sobrenatural.
 
 O milagre não tem explicação. Os fenômenos espíritas, ao contrário, têm uma explicação perfeitamente racional. Então, não são milagres: são efeitos das leis gerais da natureza. O milagre tem ainda outra característica: é fora do comum e acontece de forma isolada. Já um fato que se repete quase sempre que se quer, com pessoas diferentes, não pode ser milagre.
 
@@ -116,7 +116,7 @@ Por isso, quando um espírita faz uma mesa se mover ou obtém uma mensagem escri
 
 ### 16
 
-Enquanto ninguém conhecia a causa deles, os fenômenos espíritas, assim como os do magnetismo, só podiam parecer milagres. Acontece que os céticos, que se acham donos exclusivos da razão e do bom senso, não admitem que uma coisa seja possível se não a entendem. Por isso, zombam de todo fato que pareça sobrenatural. Como a religião está cheia de fatos assim, eles não acreditam na religião, e daí para não acreditar em mais nada é um pulo.
+Enquanto ninguém conhecia a causa deles, os fenômenos espíritas, assim como os do magnetismo, só podiam parecer milagres. Acontece que os céticos, que se acham donos exclusivos da razão e do bom senso, não admitem que uma coisa seja possível se não a entendem. Por isso, zombam de todo fato que pareça sobrenatural. Como a religião está cheia de fatos assim, eles deixam de acreditar na religião e, pouco depois, acabam não acreditando em mais nada.
 
 Ao explicar a maioria desses fatos, o Espiritismo acaba ajudando a religião, porque mostra que muitos deles são possíveis. Eles perdem o caráter de milagre, mas não deixam de ser extraordinários. E Deus não fica menor nem menos poderoso por não ter quebrado as próprias leis.
 
@@ -128,4 +128,6 @@ Entre esses fatos que muita gente considera milagres, as aparições vêm em pri
 
 Já quem era a figura que apareceu em Salette é outra questão, e isso ninguém nunca nos provou. Reconhecemos apenas que pode ter havido uma aparição. O resto não cabe a nós julgar. Sobre isso, cada um tem o direito de pensar o que quiser. O Espiritismo não toma partido. Dizemos só o seguinte: os fenômenos espíritas revelam leis novas e explicam muitas coisas que antes pareciam sobrenaturais. Alguns fatos considerados milagres já ganharam uma explicação lógica. Só isso já basta para ninguém se apressar em negar o que ainda não entende.
 
-Algumas pessoas rejeitam os fenômenos espíritas justamente porque não conseguem explicá-los e porque eles parecem fugir das leis da natureza. Quando essas pessoas recebem uma explicação racional, a dúvida desaparece. Numa época em que ninguém aceita uma coisa só porque alguém disse, a explicação pesa muito na hora de convencer. Por isso vemos, todos os dias, pessoas ficarem tão convencidas quanto nós só porque leram e entenderam. Elas nunca viram uma mesa se mexer nem um médium escrever uma mensagem dos Espíritos. Se só acreditássemos no que vemos com os próprios olhos, acreditaríamos em muito pouca coisa.
+Algumas pessoas rejeitam os fenômenos espíritas justamente porque não conseguem explicá-los e porque eles parecem fugir das leis da natureza. Quando essas pessoas recebem uma explicação racional, a dúvida desaparece. Numa época em que ninguém aceita uma coisa só porque alguém disse, a explicação pesa muito na hora de convencer. Por isso vemos, todos os dias, pessoas ficarem tão convencidas quanto nós só porque leram e entenderam[^2]. Elas nunca viram uma mesa se mexer nem um médium escrever uma mensagem dos Espíritos. Se só acreditássemos no que vemos com os próprios olhos, acreditaríamos em muito pouca coisa.
+
+[^2]: N.E.: É exatamente para isso que nós do Projeto Kardec Moderno trabalhamos. Queremos que você leia e entenda Kardec sem tropeçar na linguagem rebuscada e chegue às suas próprias conclusões.

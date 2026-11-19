@@ -4,7 +4,7 @@
 
 É natural que todo espírita queira trazer outras pessoas para o Espiritismo, e esse desejo merece todo o incentivo. Para ajudar nessa tarefa e evitar esforço à toa, vamos mostrar o caminho que nos parece mais seguro.
 
-Já dissemos que o Espiritismo é uma ciência e uma filosofia completas. Por isso, quem quer conhecê-lo de verdade precisa, antes de tudo, estar disposto a estudar a sério. Como qualquer outra ciência, ele não se aprende de brincadeira. Também já dissemos que o Espiritismo trata de todas as questões que interessam à humanidade. O campo é enorme, e o mais importante é olhar o Espiritismo pelas consequências que ele traz.
+Já dissemos que o Espiritismo é uma ciência e uma filosofia. Por isso, quem quer conhecê-lo de verdade precisa, antes de tudo, estar disposto a estudar a sério. Como qualquer outra ciência, ele não se aprende de brincadeira. Também já dissemos que o Espiritismo trata de todas as questões que interessam à humanidade. O campo é enorme, e o mais importante é olhar o Espiritismo pelas consequências que ele traz.
 
 A crença nos Espíritos é, sem dúvida, a base do Espiritismo. Mas ela sozinha não faz de ninguém um espírita esclarecido, assim como acreditar em Deus não transforma ninguém em teólogo. Vamos ver, então, qual é a melhor maneira de ensinar a Doutrina Espírita para levar as pessoas à convicção com mais segurança.
 
@@ -24,13 +24,13 @@ Por isso, antes de tentar convencer um cético, mesmo com fatos, é preciso sabe
 
 Entre os materialistas, é importante distinguir dois grupos. No primeiro estão os materialistas por convicção, os que fizeram disso uma teoria. Eles não duvidam. Negam tudo, com uma lógica só deles. Para eles, o ser humano é só uma máquina: funciona enquanto está montada, um dia quebra e, depois da morte, sobra apenas a carcaça. Felizmente, são poucos e não formam um movimento que se declare abertamente.
 
-Já dissemos que a dúvida dos céticos desaparece diante de uma explicação racional. Isso não vale para os materialistas radicais, que negam qualquer força ou inteligência fora da matéria. A maioria deles se agarra à própria opinião por orgulho: acha que mudar de ideia seria dar o braço a torcer. Por isso não muda, apesar de todas as provas em contrário. Com gente assim, não há nada a fazer. E ninguém deve se deixar enganar pelo falso tom de sinceridade de quem diz: “Me mostre que eu acredito.” Outros são mais francos e dizem sem rodeios: “Mesmo que eu visse, não acreditaria.”
+Já dissemos que a dúvida dos céticos desaparece diante de uma explicação racional. Mas isso não vale para os materialistas radicais, que negam qualquer força ou inteligência fora da matéria. A maioria deles se agarra à própria opinião por orgulho: acham que mudar de ideia seria dar o braço a torcer. Por isso não mudam, apesar de todas as provas em contrário. Com gente assim, não há nada a fazer. E ninguém deve se deixar enganar pelo falso tom de sinceridade de quem diz: “Me mostre que eu acredito.” Outros são mais francos e dizem abertamente: “Mesmo que eu visse, não acreditaria.”
 
 ### 21
 
-O segundo grupo de materialistas é muito maior que o primeiro, porque o materialismo de verdade vai contra a natureza humana. São os materialistas por indiferença ou, digamos, por falta de coisa melhor. Eles não escolheram ser materialistas. O que mais querem é acreditar, porque a incerteza os atormenta. Sentem um desejo vago de que exista um futuro depois da morte. Mas esse futuro foi pintado para eles de um jeito que a razão não consegue aceitar. Daí vem a dúvida e, da dúvida, a descrença. Por isso, neles, a descrença não é uma teoria.
+O segundo grupo de materialistas é muito maior que o primeiro, porque o materialismo de verdade vai contra a natureza humana. São os materialistas por indiferença ou, digamos, por falta de coisa melhor. Eles não escolheram ser materialistas. O que mais querem é acreditar, porque a incerteza os atormenta. Sentem um desejo vago de que exista um futuro depois da morte. Mas esse futuro foi pintado para eles de um jeito que a razão não consegue aceitar. Daí vem a dúvida e, da dúvida, a descrença.
 
-Assim, se vocês mostrarem a essas pessoas algo racional, elas aceitam na hora. Elas podem nos entender, porque estão muito mais perto de nós do que imaginam.
+Para essas pessoas, a descrença não é uma convicção. Por isso, quando recebem uma explicação que faz sentido, aceitam na hora. Elas estão muito mais perto do Espiritismo do que imaginam.
 
 Com o primeiro grupo, o dos materialistas por convicção, não falem de revelação, de anjos nem de paraíso: eles não entenderiam. Vão até o terreno deles e provem, primeiro, que as leis da fisiologia, a ciência que estuda o funcionamento do corpo, não conseguem explicar tudo. O resto vem depois.
 
@@ -44,13 +44,13 @@ Além dos materialistas, existe um terceiro grupo de céticos, tão fechados qua
 
 Vale citar ainda um quarto grupo: os céticos por interesse, ou de má-fé. No fundo, sabem muito bem o que o Espiritismo vale, mas o condenam em público por interesse pessoal. Não há o que dizer sobre eles, nem o que fazer com eles.
 
-O materialista puro, se está errado, pelo menos tem a desculpa da boa-fé. É possível tirá-lo do erro, mostrando onde ele se engana. Já o cético de má-fé está decidido, e argumento nenhum muda isso. Com o tempo, ele vai abrir os olhos e descobrir, talvez à própria custa, onde estavam seus verdadeiros interesses. Como não vai conseguir impedir que a verdade se espalhe, será arrastado pela correnteza, junto com os interesses que achava que estava protegendo.
+O materialista puro, se está errado, pelo menos tem a desculpa da boa-fé. É possível tirá-lo do erro, mostrando onde ele se engana. Já o cético de má-fé está decidido, e argumento nenhum muda isso. Mas o tempo vai mostrar a ele, talvez do jeito mais difícil, que estava apostando nos interesses errados. Ele não vai conseguir impedir que a verdade se espalhe e vai ser arrastado pela correnteza, junto com tudo o que tentava proteger.
 
 ### 24
 
 Além desses grupos de opositores, existem muitos outros, com todo tipo de nuance. Entre eles, podemos citar:
 
-- os céticos por medo, que só vão criar coragem quando virem que os outros não se queimaram;
+- os céticos por medo, que só vão ter coragem quando virem que os outros não se prejudicaram por acreditar;
 - os céticos por motivos religiosos, que temem ir contra a própria fé. Um estudo bem-feito vai mostrar a eles que o Espiritismo se apoia nas bases da religião e respeita todas as crenças. Mais do que isso: um dos efeitos dele é despertar o sentimento religioso em quem não o tem e fortalecê-lo em quem anda com a fé abalada;
 - e ainda os céticos por orgulho, por mania de contrariar, por descaso, por superficialidade etc.
 
@@ -76,7 +76,7 @@ Entre os que se convenceram estudando o Espiritismo diretamente, dá para destac
 
 1. Os que acreditam nas manifestações e mais nada. Para eles, o Espiritismo é só uma ciência de observação, uma série de fatos mais ou menos curiosos. Vamos chamá-los de espíritas experimentadores.
 
-2. Os que veem no Espiritismo mais do que fatos. Entendem a parte filosófica e admiram a moral que vem dela, mas não a colocam em prática. Essa moral tem pouca ou nenhuma influência sobre o caráter deles. Não mudam nenhum hábito e não abrem mão de um único prazer. O avarento continua avarento, o orgulhoso continua cheio de si, o invejoso e o ciumento continuam hostis com os outros. Para eles, a caridade cristã é só uma frase bonita. São os espíritas imperfeitos.
+2. Os que veem no Espiritismo mais do que fatos. Entendem a parte filosófica e admiram a moral que vem dela, mas não a colocam em prática. Essa moral tem pouca ou nenhuma influência sobre o caráter deles. Não mudam nenhum hábito e não abrem mão de um único prazer. O pão-duro continua pão-duro, o orgulhoso continua cheio de si, o invejoso e o ciumento continuam hostis com os outros. Para eles, a caridade cristã é só uma frase bonita. São os espíritas imperfeitos.
 
 3. Os que não se contentam em admirar a moral espírita: eles a praticam e aceitam tudo o que ela pede. Estão convencidos de que a vida na Terra é uma prova passageira. Por isso, aproveitam o pouco tempo que têm aqui para progredir, já que só o progresso pode elevá-los no mundo dos Espíritos. Eles se esforçam para fazer o bem e controlar suas más tendências. Dá para confiar neles em qualquer situação, porque a convicção que têm os afasta até da ideia de fazer o mal. A caridade é a regra que seguem em tudo. São os verdadeiros espíritas, ou melhor, os espíritas cristãos.
 
@@ -108,7 +108,7 @@ Seria difícil contar quantas pessoas nos procuraram desde que começamos a trab
 
 Estudar a teoria antes tem ainda outra vantagem: mostra logo como é grande o objetivo desta ciência e até onde ela pode chegar. Quem começa vendo uma mesa girar ou dar pancadas, como acontecia nas primeiras experiências espíritas, tende mais a fazer piada. Dificilmente vai imaginar que uma mesa possa dar origem a uma doutrina capaz de renovar a humanidade. Sempre notamos que quem acredita antes de ver, só porque leu e entendeu, não tem nada de superficial. Pelo contrário: é quem mais reflete. Essas pessoas dão mais atenção ao conteúdo do que à forma. Para elas, o principal é a parte filosófica, e os fenômenos em si são secundários. Dizem que, mesmo sem esses fenômenos, ainda sobraria uma filosofia. Segundo elas, só essa filosofia resolve problemas que até hoje ninguém resolveu, e só ela dá a explicação mais racional para o passado e o futuro do ser humano. E é natural que prefiram uma doutrina que explica, em vez das que não explicam ou explicam mal.
 
-Quem pensa um pouco entende muito bem que a Doutrina continuaria de pé mesmo sem as manifestações. Elas reforçam a Doutrina, mas não são a base dela. O observador sensato não rejeita as manifestações. Ao contrário, espera a ocasião certa para presenciá-las. A prova disso é que muita gente, antes de ouvir falar das manifestações, já intuía esta Doutrina. Ela só veio dar forma e coerência às ideias que essas pessoas já tinham.
+Quem pensa um pouco entende muito bem que a Doutrina continuaria de pé mesmo sem as manifestações. Elas reforçam a Doutrina, mas não são a base dela. Mesmo assim, o observador sensato não rejeita as manifestações. Pelo contrário, espera uma boa oportunidade para presenciá-las.
 
 ### 33
 
@@ -122,7 +122,7 @@ Quem achar que estamos aconselhando a deixar os fatos de lado nos entendeu muito
 
 Isso é tão verdade que, se dez pessoas que não sabem nada do assunto forem a uma sessão de experimentos, nove vão sair sem se convencer. E pode ser uma das melhores sessões, na opinião dos espíritas. Algumas vão sair até mais céticas do que entraram, porque os experimentos não foram o que elas esperavam.
 
-Acontece o contrário com quem estudou a teoria antes e já entende os fatos. Para essas pessoas, a teoria serve para conferir o que veem. Nada as surpreende, nem mesmo um fracasso, porque elas sabem em que condições os fenômenos acontecem. E sabem que não adianta pedir a eles o que não podem dar. Como entendem os fatos antes de vê-los, percebem qualquer coisa que esteja fora do normal. Notam também muitos detalhes, às vezes bem sutis, que passam batido para quem observa sem saber nada.
+Acontece o contrário com quem estudou a teoria antes e já entende os fatos. Para essas pessoas, a teoria serve para conferir o que veem. Nada as surpreende, nem mesmo um fracasso, porque elas sabem em que condições os fenômenos acontecem. Como entendem os fatos antes de vê-los, percebem qualquer coisa que esteja fora do normal. Notam também muitos detalhes, às vezes bem sutis, que passam batido para quem observa sem saber nada.
 
 É por isso que, nas nossas sessões de experimentos, só aceitamos quem já tem noções suficientes para entender o que está sendo feito. Sem essas noções, a pessoa só perderia o próprio tempo, ou nos faria perder o nosso.
 

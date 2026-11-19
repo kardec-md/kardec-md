@@ -262,9 +262,9 @@ SÃO VICENTE DE PAULO.
 
 *Se atraírem as pessoas só com fenômenos, vão aparecer curiosos, que não vão acreditar e ainda vão rir de vocês. Se no grupo houver só pessoas dignas de respeito, talvez muitos não acreditem, mas vão respeitar vocês. E o respeito sempre inspira confiança.*
 
-*Vocês estão convencidos de que o Espiritismo vai trazer uma reforma moral. Então, que o grupo de vocês seja o primeiro a dar o exemplo das virtudes cristãs. Nesta época de egoísmo, é nas sociedades espíritas que a verdadeira caridade vai encontrar abrigo.[^4]*
+*Vocês estão convencidos de que o Espiritismo vai trazer uma reforma moral. Então, que o grupo de vocês seja o primeiro a dar o exemplo das virtudes cristãs. Nesta época de egoísmo, é nas sociedades espíritas que a verdadeira caridade vai encontrar abrigo.[^6]*
 
-[^4]: Conhecemos um homem que foi aceito para um cargo de confiança, numa empresa importante, justamente por ser um espírita sincero. A empresa viu na crença dele uma garantia de honestidade.
+[^6]: Conhecemos um homem que foi aceito para um cargo de confiança, numa empresa importante, justamente por ser um espírita sincero. A empresa viu na crença dele uma garantia de honestidade.
 
 *É assim, meus amigos, que deve ser um grupo de verdadeiros espíritas. Em outra ocasião, darei novos conselhos.*
 

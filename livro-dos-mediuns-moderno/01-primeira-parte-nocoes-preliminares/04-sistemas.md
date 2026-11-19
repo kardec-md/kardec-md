@@ -160,7 +160,7 @@ Há casos em que o Espírito prova quem é. Pela escrita, por uma aparição ou 
 
 Só que eles não explicam por que os outros Espíritos não poderiam se comunicar. Nem por que o Cristo, o Espírito da Verdade, viria nos enganar, fingindo ser quem não é. Por que ele iludiria uma pobre mãe, fazendo-a acreditar que o filho por quem ela chora está ali, ao seu lado? Não faz sentido que o mais santo de todos os Espíritos se rebaixe a encenar uma farsa dessas.
 
-Além disso, negar que qualquer outro Espírito possa se comunicar seria tirar do Espiritismo o que ele tem de mais doce: o consolo de quem sofre. Vamos dizer sem rodeios: essa teoria não tem lógica e não resiste a um exame sério.
+Além disso, negar que qualquer outro Espírito possa se comunicar seria tirar do Espiritismo o que ele tem de mais doce: o consolo de quem sofre. Vamos dizer claramente: essa teoria não tem lógica e não resiste a um exame sério.
 
 ### 49. Teoria dos muitos Espíritos
 
