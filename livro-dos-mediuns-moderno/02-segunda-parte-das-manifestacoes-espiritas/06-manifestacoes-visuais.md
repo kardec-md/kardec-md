@@ -186,7 +186,7 @@ Esse mundo oculto nos cerca. Vivemos dentro dele sem perceber, do mesmo jeito qu
 
 ### 104
 
-O Espírito que quer, ou consegue, se tornar visível às vezes assume uma forma ainda mais definida, com toda a aparência de um corpo sólido. A ilusão é tão completa que quem observa a aparição acredita estar diante de uma pessoa de carne e osso. Em certas circunstâncias, a aparição chega a ficar tangível de verdade, ou seja, dá para tocá-la. Quem observa pode apalpá-la e sentir nela a mesma firmeza e o mesmo calor de um corpo vivo. Mesmo assim, essa solidez pode sumir num piscar de olhos.
+O Espírito que quer, ou consegue, se tornar visível às vezes assume uma forma ainda mais definida, com toda a aparência de um corpo sólido. A ilusão é tão completa que quem observa a aparição acredita estar diante de uma pessoa de carne e osso. Em certas circunstâncias, a aparição chega a ficar tangível de verdade. Quem observa pode apalpá-la e sentir nela a mesma firmeza e o mesmo calor de um corpo vivo. Mesmo assim, essa solidez pode sumir num piscar de olhos.
 
 Quando a aparição só é vista, ainda dá para dizer que foi uma ilusão, um engano dos olhos. Mas isso já não vale quando a pessoa consegue segurá-la e apalpá-la, ou quando é a aparição que segura e abraça quem a observa. Aí não há mais espaço para dúvida.
 

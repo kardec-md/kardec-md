@@ -34,7 +34,7 @@ O perispírito não é uma dessas hipóteses que a ciência costuma criar para e
 
 ### 55
 
-Já se disse que o Espírito é uma chama, uma centelha. Isso vale para o Espírito em si, a parte que pensa e tem senso moral. Essa parte não tem uma forma definida. Mas, seja qual for o grau de adiantamento em que esteja, o Espírito sempre está revestido de um envoltório, o perispírito. E esse envoltório fica mais sutil à medida que o Espírito se purifica e sobe na hierarquia espiritual. Por isso, para nós, a ideia de Espírito vem sempre junto com a ideia de forma: não conseguimos imaginar uma sem a outra.
+Já se disse que o Espírito é uma chama, uma centelha. Isso vale para o Espírito em si, a parte que pensa e tem senso moral. Essa parte não tem uma forma definida. Mas, seja qual for o grau de adiantamento em que esteja, o Espírito sempre está revestido de um envoltório, o perispírito. E esse envoltório fica mais sutil à medida que o Espírito se purifica e sobe na hierarquia espiritual.
 
 O perispírito, então, faz parte do Espírito. Mas, sozinho, ele não é o Espírito, porque não pensa. É para o Espírito o que o corpo é para nós: o instrumento com que ele age.
 
@@ -52,7 +52,7 @@ Como se vê, os Espíritos são seres como nós. Eles formam, à nossa volta, to
 
 Vamos voltar à natureza do perispírito, porque ela é essencial para a explicação que vem a seguir. Já dissemos que o perispírito, embora seja feito de fluido, é um tipo de matéria. As aparições tangíveis, aquelas que podem ser tocadas, mostram isso. Vamos falar delas mais adiante.
 
-Por influência de certos médiuns, já apareceram mãos iguais em tudo às de uma pessoa viva. Elas são quentes, dá para tocá-las e são firmes como qualquer objeto sólido. Chegam a agarrar as pessoas presentes. E, de repente, se desfazem como sombras.
+Por influência de certos médiuns, já apareceram mãos iguais em tudo às de uma pessoa viva. Elas são quentes, podem ser tocadas e são firmes como qualquer objeto sólido. Chegam a agarrar as pessoas presentes. E, de repente, se desfazem como sombras.
 
 Essas mãos agem com inteligência: fazem movimentos precisos e chegam a tocar melodias num instrumento. Está claro que obedecem a uma vontade. Isso prova que elas são a parte que vemos de um ser inteligente que não vemos.
 
@@ -72,6 +72,6 @@ São fatos de um tipo novo, explicados por uma lei nova. Daqui a algum tempo, ni
 
 Alguém pode perguntar: se essa matéria é tão sutil, como o Espírito consegue usá-la para agir sobre objetos pesados e sólidos, a ponto de levantar uma mesa?
 
-Quem entende de ciência não faria essa pergunta. Essa matéria nova pode ter propriedades que ainda não conhecemos, mas nem é preciso ir tão longe: já temos exemplos parecidos diante dos olhos. Repare: a indústria tira suas forças mais potentes justamente de gases muito leves e de fluidos sem peso, como a eletricidade.
+Essa matéria nova pode ter propriedades que ainda não conhecemos, mas nem é preciso ir tão longe: já temos exemplos parecidos diante dos olhos. Repare: a indústria tira suas forças mais potentes justamente de gases muito leves e de fluidos sem peso, como a eletricidade.
 
 Vemos o vento derrubar prédios e o vapor mover cargas enormes. Vemos a pólvora, ao virar gás, erguer rochas imensas, e a eletricidade dos raios rachar árvores e partir paredes. Então, por que seria difícil aceitar que o Espírito, com a ajuda do perispírito, levante uma mesa? Ainda mais sabendo que o perispírito pode ficar visível, ser tocado e se comportar como algo sólido.
